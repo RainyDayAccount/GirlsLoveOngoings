@@ -749,7 +749,7 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*During troubled times, Weng Shaoying is one of the most famous singers in Dongping. Many people go to Song of Fairyland just to see her perform. However, under her glamorous facade, she has been controlled for more than 10 years. On the other side of Dongping is Bi Xing Tang, one of the most famous gangs there. After her father’s death, Yanchu became the young female leader of Bi Xing Tang, which caused a lot of rumors to spread. On one inevitably fortuitous night, the two happened to meet. At that time, neither of them knew that they would eventually become the most important person in the other’s life. Starting from that night onwards, the gears in Shaoying and Yanchu’s fate will forever be rotating together.*
 
-- [IDOL×IDOL STORY!](https://mangadex.org/title/30b89356-952c-4a72-9d8c-cf44147e881a/idol-idol-story) <sup>Same Author as</sup> [<sup>New Game!</sup>](https://mangadex.org/title/d7a0991d-2913-4b3c-8fb6-2b752f9e5f3a/new-game) <sup> - Not Listed as GL on Mangaupdates)</sup>
+- [IDOL×IDOL STORY!](https://mangadex.org/title/30b89356-952c-4a72-9d8c-cf44147e881a/idol-idol-story) <sup>Same Author as</sup> [<sup>New Game!</sup>](https://mangadex.org/title/d7a0991d-2913-4b3c-8fb6-2b752f9e5f3a/new-game) <sup> - Not Listed as GL on Mangaupdates</sup>
 
     >*Mimi Nagisa (22 years old) is a former idol. After giving up on her dream of being an idol because of her lacking talent she spends her days working part-time while attending college. However, the moment she meets the idol Ibuki Nanakusa, whom she recently found interest in, their lives begin to cross each other.*
 
