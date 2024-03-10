@@ -381,7 +381,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*There is nothing definitive about life after death, except the involuntary enrollment at the mysterious Nevermore Academy. Now Lenore and Annabel Lee must begin their curriculum to recover the memories of their tragic demise. Between the Dean's macabre demeanor and the tell-tale dangers of Final Exams, both girls must learn to rely on one another and their newly acquired ghost forms, or Spectres, to not only graduate from the academy… but to earn a second chance at life.*
 
-- [Not So Shoujo Love Story](https://www.webtoons.com/en/comedy/not-so-shoujo-love-story/list?title_no=2189) <sup>Just Went on Hiatus</sup>
+- [Not So Shoujo Love Story](https://www.webtoons.com/en/comedy/not-so-shoujo-love-story/list?title_no=2189)
 
     >*Romance-super-fan Rei Chan is ready for her first boyfriend and she knows just who it'll be: the most handsome boy in school, Hansum Ochinchin. But her plans for the perfect love story are derailed when the most popular girl in class declares herself a rival....for Rei's heart?! This is the year her not so shoujo love story begins!*
 
