@@ -22,11 +22,11 @@
 
     >*Beautiful, brainy Tsuda Akane is indispensable at the robotics manufacturer where she works, but her colleagues never saw her private side. At home, Akane’s a hot mess with an apartment that looks more like a landfill than a living space. When she drunkenly orders a maid to help her tidy up, the lady android who arrives is a horny hottie who’s about to give Akane more service than she bargained for!*
 
-- [My Cute Little Kitten](https://mangadex.org/title/2e71d530-79b7-444d-89c9-29f9534d08d2/my-cute-little-kitten) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/my-cute-little-kitten/)
+- [My Cute Little Kitten](https://mangadex.org/title/2e71d530-79b7-444d-89c9-29f9534d08d2/my-cute-little-kitten) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/my-cute-little-kitten/) <sup> - Same Creator as </sup> [<sup>Girl Friends and More</sup>](https://sevenseasentertainment.com/creator/milk-morinaga/)
 
     >*Rena has had a crush on her roommate Yuna since college, but Yuna has never noticed. One night, Yuna brings home a tiny kitten, even though their apartment doesn’t allow pets! Rena decides it would be better to let Yuna find her own place. But when Yuna says she wants to stay with Rena forever, Rena’s feelings are forced to the surface. Can Rena make Yuna understand what being together forever really means?*
 
-- [My Girlfriend's Not Here Today](https://mangadex.org/title/215e3ced-247e-4f34-8e1a-27b60ffef8ac/my-girlfriend-s-not-here-today) [<sup>Seven Seas. Releasing May 2024.</sup>](https://sevenseasentertainment.com/2023/09/20/seven-seas-licenses-my-girlfriends-not-here-today-yuri-girls-love-manga-series/)
+- [My Girlfriend's Not Here Today](https://mangadex.org/title/215e3ced-247e-4f34-8e1a-27b60ffef8ac/my-girlfriend-s-not-here-today) [<sup>Seven Seas. Releasing May 2024.</sup>](https://sevenseasentertainment.com/2023/09/20/seven-seas-licenses-my-girlfriends-not-here-today-yuri-girls-love-manga-series/) <sup> - Same Creator as </sup> [<sup>Transparent Light Blue</sup>](https://sevenseasentertainment.com/series/transparent-light-blue/)
 
     >*It's a secret that I'm dating the love of my life at school. There's no way I can tell anyone, especially when we're both girls. But I can't help my feelings from slipping out in the background. It's not the ideal way to be a couple, but I can put up with it because I really love her... But such loneliness has also nurtured dark thoughts in my head.*
 
@@ -42,7 +42,7 @@
 
     >*Ruby is a student at an elite European boarding school. Things are going pretty well for her until she finds out that she won’t be able to go home at Christmas. Instead, she’ll be stuck at school with only one other student—the aloof and beautiful Steph—for company. As Ruby tries to understand Steph, she becomes more and more attracted to the other girl. But can she break through Steph’s icy exterior?*
 
-- [Even Though We're Adults](https://mangadex.org/title/4cd749d5-0576-4978-96e8-1dca5f46a592/even-though-we-re-adults) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/even-though-were-adults/)
+- [Even Though We're Adults](https://mangadex.org/title/4cd749d5-0576-4978-96e8-1dca5f46a592/even-though-we-re-adults) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/even-though-were-adults/) <sup> - Same Creator as </sup> [<sup>Sweet Blue Flowers</sup>](https://www.viz.com/sweet-blue-flowers)
 
     >*Ayano, an elementary school teacher in her thirties, stops by a bar one day and meets another woman named Akari. Sparks fly as the two chat, and before the night is over, Ayano even goes in for a kiss. Akari is intrigued but confused…especially when she discovers that Ayano has a husband! Both Ayano and Akari are about to find out that love doesn’t get any easier, even as you grow older.*
 
@@ -58,7 +58,7 @@
 
     >*Talk about your extreme career changes! Naruse Soushi, a single, middle-aged man and private secretary to a politician, lies on the verge of death. Meanwhile, in another world, the princess knight Reina is about to lose her life. The princess’s soul is removed—and Naruse is summoned into the empty husk of her body! Reincarnated as a beautiful young woman, this man is doomed to the fate of…working at a yuri brothel! Does he have what it takes to succeed?*
 
-- [How Do I Turn My Best Friend Into My Girlfriend?](https://mangadex.org/title/4de70c96-566b-4cdb-88f4-6c7fd5184991/doushitara-osananajimi-no-kanojo-ni-naremasu-ka) [<sup>Seven Seas - Releasing Mar 19, 2024</sup>](https://sevenseasentertainment.com/series/how-do-i-turn-my-best-friend-into-my-girlfriend/)
+- [How Do I Turn My Best Friend Into My Girlfriend?](https://mangadex.org/title/4de70c96-566b-4cdb-88f4-6c7fd5184991/doushitara-osananajimi-no-kanojo-ni-naremasu-ka) [<sup>Seven Seas - Releasing Mar 19, 2024</sup>](https://sevenseasentertainment.com/series/how-do-i-turn-my-best-friend-into-my-girlfriend/) <sup> - Same Creator as </sup> [<sup>Monologue Woven For You</sup>](https://sevenseasentertainment.com/series/monologue-woven-for-you/)
 
     >*Minami and Yuzu have been besties since…well, forever! Or at least that’s what Minami thought. But when some rando confesses to Yuzu, Minami realizes that her feelings might not be what you’d typically call “friendship” anymore. It doesn’t take long for Minami to realize she wants to change their relationship status, but will she be able to muster the courage to confess? Or will she simply be happy being by Yuzu’s side?*
 
@@ -107,15 +107,15 @@
 
     >*The second floor of the gym. That’s our spot. Class is in session right now, but they don’t hold class in a place like this. This is where Shimamura and I became friends. What is this feeling? Yesterday, I dreamed of kissing her. I’m not like that, and I’m sure Shimamura isn’t either. But…when Shimamura thinks of the word “friend”, I want to be the first thing that comes to her mind. That’s all.*
 
-- [Assorted Entanglements](https://mangadex.org/title/5412816d-a3c9-4bab-956b-b08d1f8f41f6/fuzoroi-no-renri) [<sup>Yen Press</sup>](https://yenpress.com/series/assorted-entanglements)
+- [Assorted Entanglements](https://mangadex.org/title/5412816d-a3c9-4bab-956b-b08d1f8f41f6/fuzoroi-no-renri) [<sup>Yen Press</sup>](https://yenpress.com/series/assorted-entanglements) <sup> - Same Creator as </sup> [<sup>Now Loading…!</sup>](https://sevenseasentertainment.com/series/now-loading/)
 
     >*Discover a variety of stories about women's love, starting with Iori: twenty-eight-year-old office worker who sets out to drown her love and job sorrows in booze. When she wakes up next to someone, she can’t believe her partner was Minami, a worker at the bar who doesn’t want to forget what they have!*
 
-- [Coccon Entwined](https://mangadex.org/title/bf7fbf85-00ed-4cda-9f8c-149f3113b096/cocoon-entwined) [<sup>Yen Press</sup>](https://yenpress.com/series/cocoon-entwined)
+- [Cocoon Entwined](https://mangadex.org/title/bf7fbf85-00ed-4cda-9f8c-149f3113b096/cocoon-entwined) [<sup>Yen Press</sup>](https://yenpress.com/series/cocoon-entwined)
 
     >*Clad in school uniforms practically breathing with life are the girls of Hoshimiya Girls’ Academy, their hair long and luxurious. When a puzzling incident involving the ever-mysterious and elusive student Hoshimiya-san disturbs their peaceful paradise, the hidden feelings these innocent schoolgirls possess begin to entwine and overflow in unimaginable ways…*
 
-- [I Don't Know Which is Love](https://mangadex.org/title/79ca6344-5468-4fa8-8eb7-859728b27156/i-don-t-know-which-is-love) [<sup>Yen Press</sup>](https://yenpress.com/series/i-don-t-know-which-is-love)
+- [I Don't Know Which is Love](https://mangadex.org/title/79ca6344-5468-4fa8-8eb7-859728b27156/i-don-t-know-which-is-love) [<sup>Yen Press</sup>](https://yenpress.com/series/i-don-t-know-which-is-love) <sup> - Same Creator as </sup> [<sup>Cheerful Amnesia</sup>](https://yenpress.com/series/cheerful-amnesia)
 
     >*In her final days of high school, Mei Soraike tried to confess her love to her best friend only to have her hopes crushed. A little heartbreak is fine, though—because she’ll absolutely, definitely, undoubtedly get a girlfriend in college! And as soon as Mei sets her resolve, potential paramours start aggressively sidling up to her one after another...! How on earth is she supposed to settle on someone when she’s falling head over heels for every cutie she meets?*
 
@@ -165,7 +165,7 @@
 
     >*Hime is a picture-perfect high school princess—she’s admired by all and never trips up! So when she accidentally injures a café manager named Mai, she’s willing to cover some shifts to keep her facade intact. To Hime’s surprise, the café is themed after a private school where the all-female staff always puts on their best act for their loyal customers. However, under the guidance of the most graceful girl there, Hime can’t help but blush and blunder! Beneath all the frills and laughter, Hime feels tension brewing as she finds out more about her new job and her budding feelings…*
 
-- [The Moon on a Rainy Night](https://mangadex.org/title/c8a0426d-539b-4f6a-9537-fbccf4962529/the-moon-on-a-rainy-night) [<sup>Kodansha</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/)
+- [The Moon on a Rainy Night](https://mangadex.org/title/c8a0426d-539b-4f6a-9537-fbccf4962529/the-moon-on-a-rainy-night) [<sup>Kodansha</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/) <sup> - Same Creator as </sup> [<sup>Living With My Brother's Wife</sup>](https://global.manga-up.com/manga/33)
 
     >*One rainy night, Saki is rushing to a piano lesson when she crashes into a beautiful, long-haired girl, dropping her sheet music in the process. Saki stutters an apology, but the girl simply hands back her sheet music and leaves without a word. Saki begins her first day of high school the following morning, only to find the stranger from the night before sitting at the desk next to hers. She learns that the girl’s name is Kanon and that she is not quite completely deaf, but very hard of hearing. Though Kanon needs to be close to people to read their lips, she tends to push people away with her icy demeanor. Through one kind gesture, Saki slowly begins breaking down the walls around Kanon, even as she feels something new blossoming within her.*
 
@@ -210,7 +210,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*Meet Chise, a young girl who is reborn in a new world with her old memories lost. A goddess grants her the gift of 'Creation Magic' under one condition - that she enjoys her new life! Together with Teto, a golem she creates, Chise embarks on an enchanting journey across the world.*
 
-- [Living With My Brother's Wife](https://mangadex.org/title/6204ff54-c3d5-4645-b21f-f83f6fa303d0/ani-no-yome-to-kurashite-imasu) [<sup>Square Enix - Not Listed as GL</sup>](https://global.manga-up.com/manga/33)
+- [Living With My Brother's Wife](https://mangadex.org/title/6204ff54-c3d5-4645-b21f-f83f6fa303d0/ani-no-yome-to-kurashite-imasu) [<sup>Square Enix - Not Listed as GL</sup>](https://global.manga-up.com/manga/33) <sup> - Same Creator as </sup> [<sup>The Moon on a Rainy Night</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/)
 
     >*Since the death of her brother, seventeen year-old Shino Kishibe has been living with her sister-in-law Nozomi. Nozomi wants to be a person Shino can lean on, while Shino is determined not to be a burden. Together the orphaned high-schooler and young widow try to support one another while carrying on with their everyday lives.*
 
@@ -226,7 +226,13 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*After being stranded in a forgotten military outpost, grumpy Dobrinia sets out on a quest to marry a princess. But in the vast Tzardom of Glas, where magic has been outlawed, troubled histories can catch up with even a flying ship.*
 
+- [The Legend of Korra](https://digital.darkhorse.com/series/450/the-legend-of-korra) [<sup>Next Release - Sep 4, 2024</sup>](https://leagueofcomicgeeks.com/comics/series/171781/the-legend-of-korra-mystery-of-penquan-island)
+
+    >*Mystery of Penquan Island is an upcoming, standalone graphic novel that will focus on Mako.*
+
 **Bilibili**
+
+*Listing What Was Ongoing at Site*
 
 - [Please Bully Me, Miss Villainess!](https://mangadex.org/title/8b34f37a-0181-4f0b-8ce3-01217e9a602c/please-bully-me-miss-villainess) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc2295)
 
@@ -295,7 +301,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*Pah Doyeon, a college student living in an old apartment building, gets used to the thugs coming to her neighbor's door every day. One day, when she sees the thugs trying to break into her neighbor's house, she unwittingly hides her next-door neighbor, Jinju, in her apartment... Looking at Jinju, who is much older than her, Doyeon gradually becomes engulfed in an unknown desire. How will their awkward cohabitation end?*
 
-- Talk Dirty to Me<sup>Not on Mangadex</sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/talkdirty)
+- Talk Dirty to Me<sup>Not on Mangadex</sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/talkdirty) <sup> - Same Creator as </sup> [<sup>The Chain of Youth</sup>](https://www.lezhinus.com/en/comic/chainofyouth)
 
     >*Yeon-hwa has always dreamed of being a top k-pop idol, and she’s worked hard to make it to her debut. But she’s certainly never dreamed of having her idol group partner to be a hell of a masochistic pervert. Insoo is uncooperative, but she’s infinitely easier to control when you become her master. Now, Yeon-hwa is determined to make Insoo an ideal idol partner—and to do that, she’s going to be Insoo’s ideal partner in bed. But this solution might not be as simple as she thinks…*
 
@@ -317,7 +323,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
 **Manta**
 
-- [Bittersweet Con Panna](https://mangadex.org/title/3902c3bb-192a-4aae-ab87-b23548f4d8d9/bittersweet-con-panna) [<sup>Manta</sup>](https://manta.net/en/series/bittersweet-con-panna?seriesId=2006)
+- [Bittersweet Con Panna](https://mangadex.org/title/3902c3bb-192a-4aae-ab87-b23548f4d8d9/bittersweet-con-panna) [<sup>Manta</sup>](https://manta.net/en/series/bittersweet-con-panna?seriesId=2006) <sup> - Same Artist as </sup> [<sup>Reign of Desire</sup>](https://www.tappytoon.com/en/series/reignofdesire/1)
 
     >*Graduate student Songah thinks her girlfriend Yoosung is the cutest girl in the world. It doesn't matter if she's actually more sophisticated than adorable; Yoosung is number one in her heart! So how is she supposed to react when some hot childhood friend suddenly enters the mix?!*
 
@@ -337,11 +343,11 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*Haegu, a proficient and merciless hitwoman, executes a man in front of his own daughter and takes the child under her wing. She decides to name her Mian, the word for "sorry" in Korean, and gives her one mission: "Kill me when you can." From that moment on, Mian decides that she will do this by choking Haegu with feigned love and emotionally manipulating her into submission. But as Mian grows into an adult, she's thrown into confusion as what was supposed to be pure revenge turns into lust... and possibly real love. Meanwhile, Haegu grapples with her own feelings for Mian while continuing to carry out life-threatening missions. Can Haegu and Mian ever learn to truly love each other, or are they doomed to drown in their toxic cycle of violence and revenge?*
 
-- [On a Leash](https://mangadex.org/title/830daff3-61ce-4b74-af72-ae08345c02af/on-a-leash) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/on-a-leash)
+- [On a Leash](https://mangadex.org/title/830daff3-61ce-4b74-af72-ae08345c02af/on-a-leash) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/on-a-leash) <sup> - Same Creator as </sup> [<sup>Opium</sup>](https://tapas.io/series/opium-comic/info) 
 
     >*Tensions run high on the battlefield as soldiers fight through death. Bombs rain from the sky and bullets pepper the ground. In battle, beasts screech through the sky and tear through the earth. After the smoke clears, the soldiers return to their human forms weary from battle and numbed by death. But amid the explosions and chaos, a spark of passion ignites. Time will tell whether it can survive the horrors of war, or if it will succumb to it.*
 
-- [Show Me Your Bust](https://mangadex.org/title/53284055-d529-476a-a3e2-63d4c684f5d1/show-me-your-bust) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/show-me-your-bust-m)
+- [Show Me Your Bust](https://mangadex.org/title/53284055-d529-476a-a3e2-63d4c684f5d1/show-me-your-bust) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/show-me-your-bust-m) <sup> - Same Creator as </sup> [<sup>What Does the Fox Say?</sup>](https://mangadex.org/title/658662c8-bee6-442c-91c4-cb94681810b5/what-does-the-fox-say) 
 
     >*University student Kang Ji-ho, accidentally saw Seon Woo-hui's breasts at a drinking party, and avoids her because she couldn't resist the desire to see them again.*
 
@@ -357,7 +363,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
 **Lilyka Manga(Active?)**
 
-- [After School](https://mangadex.org/title/1b46b76c-bd79-4d42-8b21-e199993fee49/houkago) [<sup>Lilyka Manga</sup>](https://emanga.com/products/after-school-1?variant=42997274935458)
+- [After School](https://mangadex.org/title/1b46b76c-bd79-4d42-8b21-e199993fee49/houkago) [<sup>Lilyka Manga</sup>](https://emanga.com/products/after-school-1?variant=42997274935458) <sup> - Other works from creator at </sup> [<sup>Irodori Comics</sup>](https://irodoricomics.com/Tomo-Oshima-X-Towa-Oshima)
 
     >*An after school romance of two girls.*
 
@@ -367,7 +373,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*An asocial girl who's obsessed with her studies seems to be interested in a lowlife delinquent?! She's still so cute today. A cold, high school girl who loves studying and a stupid yet sweet delinquent.*
 
-- [Your False Embrace](https://mangadex.org/title/3040ec91-4d19-4d99-a8d3-dfbbab943836/your-false-embrace) [<sup>INKR</sup>](https://comics.inkr.com/title/2015-your-false-embrace/chapters)
+- [Your False Embrace](https://mangadex.org/title/3040ec91-4d19-4d99-a8d3-dfbbab943836/your-false-embrace) [<sup>INKR</sup>](https://comics.inkr.com/title/2015-your-false-embrace/chapters) <sup> - Same Creator as </sup> [<sup>Sexual Liberation: To Each Their Own Form of Love</sup>](https://comics.inkr.com/title/1503-sexual-liberation-to-each-their-own-form-of-love?utm_source=mgd) 
 
     >*“I’ll crush all things normal to you.” Yoshikawa Miyuki, a 34 years old woman, had been happily married for three years when her life took a wrong turn. She found herself in a sexless marriage with the added pressure of having a child. When her husband even resorted to going to the brothel, Miyuki questioned if this was normalcy, and if so, she no longer wanted to adhere to it. She now only yearns for true love. Her worries and suffering had pushed her to the brink of losing her mind. That's when someone, with a certain secret, appeared in front of her, changing everything. This person's sweet temptation shatter Miyuki's perception of "normal." What ensued was a straight, twisted, ugly, beautiful, and impure pure love story.*
 
@@ -438,7 +444,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
     >*Transmigrated as the doomed villainess Aida Mortemer, Yao faces a peculiar challenge in a magical world. Enrolled in a magic academy without magical abilities, her plans to charm the main characters are slightly derailed when she encounters the demon lord's reincarnation. Desperate to survive and avoid her painful demise, Aida also befriends the formidable Miss Demon Lord, only to find her behavior increasingly...odd? Can Aida navigate this magical minefield and get these characters on her side?*
 
 
-- [Pandora's Devils](https://tapas.io/series/pandoras-devils/info) <sup>Same Creator as</sup> [<sup>High Class Homos</sup>](https://www.webtoons.com/en/comedy/high-class-homos/list?title_no=2723) <sup> - On Hiatus</sup>
+- [Pandora's Devils](https://tapas.io/series/pandoras-devils/info) <sup>Same Creator as</sup> [<sup>High Class Homos</sup>](https://www.webtoons.com/en/comedy/high-class-homos/list?title_no=2723) <sup> - Hiatus</sup>
 
     >*For sheltered Evie, the small world of her church community is all she’s ever known. When her family and community mysteriously disappear, she must venture into Pandora City—a place where supernatural beings walk the streets—to find answers. Instead, she finds the DEVILS, an elite paranormal investigation squad. Paired with Jack, a fierce outcast with a grim past, the two become unlikely partners... and more? As their bond deepens, Evie must navigate a new world of romance, magic… and monsters.*
 
@@ -486,7 +492,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
 **Webcomics**
 
-- Rose's Accomplice<sup>Not on Mangadex</sup> [<sup>Webcomics</sup>](https://www.webcomicsapp.com/comic/Rose-s-Accomplice/6369fd498c252b181b1dc1e3)
+- [Rose's Accomplice](https://www.webcomicsapp.com/comic/Rose-s-Accomplice/6369fd498c252b181b1dc1e3)
 
     >*Dorothy Joule encounters Cecilia Browne – a rich and gorgeous "it girl" while celebrating her graduation from the police academy at a bar. The two girls, seemingly unrelated, are linked to each other by an old unsolved case. Meanwhile, Cecilia's playboy fiancé who initially avoided her has now developed an interest in conquering a cold and smart girl like her...*
 
@@ -595,7 +601,7 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*In an attempt to win her homeroom teacher's heart, Itsumi Toudou purchased a shady love potion, and tested it out on her stuck-up student committee president, Yomotsuka. Now, she has an uncharacteristically affectionate girl to deal with, and she's not even a lesbian! Right?*
 
-- [A Girl Whose Breasts Are a Little Big and Is Kinda Pretty](https://mangadex.org/title/1ed9422e-4053-40c5-9ff9-ed331c6088b1/a-girl-whose-breasts-are-a-little-big-and-is-kinda-pretty?tab=chapters) <sup>Same Creator as</sup> [<sup>Breasts Are My Favorite Things in the World!</sup>](https://mangadex.org/title/af906856-ef0c-4c7a-aa61-27edebe9e834/sekai-de-ichiban-oppai-ga-suki)
+- [A Girl Whose Breasts Are a Little Big and Is Kinda Pretty](https://mangadex.org/title/1ed9422e-4053-40c5-9ff9-ed331c6088b1/a-girl-whose-breasts-are-a-little-big-and-is-kinda-pretty?tab=chapters) <sup>Same Creator as</sup> [<sup>Breasts Are My Favorite Things in the World!</sup>](https://yenpress.com/titles/9781975310035-breasts-are-my-favorite-things-in-the-world-vol-1)
 
     >*Morishima decides to confront a couple of girls that are gossiping about her.*
 
@@ -671,7 +677,7 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*One day, while rummaging through Mizuki's personal belongings in her room, Yanagi discovers the truth about Mizuki...?*
 
-- [Liberta](https://mangadex.org/title/d6f4aea2-d798-412f-9368-5bb3143cd50c/liberta)
+- [Liberta](https://mangadex.org/title/d6f4aea2-d798-412f-9368-5bb3143cd50c/liberta) <sup>Same Creator as </sup> [<sup>Tadokoro-san</sup>](https://mangadex.org/title/8ffbfa2f-23fa-4490-848e-942581a4d873/tadokoro-san)
 
     >*An office worker named Komari is saved from a monster by a mysterious vampire named Liberta. Sex and violence ensues.*
 
@@ -699,7 +705,7 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*Manga artist Oshiga Sukoya is in love with the Vtuber Doujima Taiga and constantly gushes about her to her best friend Hariyama Teruko. Little does Sukoya know that Teruko is a)the person behind Doujima Taiga and b) secretly in love with Sukoya.*
 
-- [Housewife X JK](https://mangadex.org/title/093a607f-5e60-454c-ad23-16797e6bec4b/housewife-x-jk)
+- [Housewife X JK](https://mangadex.org/title/093a607f-5e60-454c-ad23-16797e6bec4b/housewife-x-jk) <sup>Same Creator as</sup> [<sup>Does it Count if You Lose Your Virginity to an Android?</sup>](https://sevenseasentertainment.com/series/does-it-count-if-you-lose-your-virginity-to-an-android/)
 
     >*A housewife and her daughter's friend have a little affair. Will they be caught or will it end as just "sex-friends"?*
 
@@ -749,13 +755,29 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*During troubled times, Weng Shaoying is one of the most famous singers in Dongping. Many people go to Song of Fairyland just to see her perform. However, under her glamorous facade, she has been controlled for more than 10 years. On the other side of Dongping is Bi Xing Tang, one of the most famous gangs there. After her father’s death, Yanchu became the young female leader of Bi Xing Tang, which caused a lot of rumors to spread. On one inevitably fortuitous night, the two happened to meet. At that time, neither of them knew that they would eventually become the most important person in the other’s life. Starting from that night onwards, the gears in Shaoying and Yanchu’s fate will forever be rotating together.*
 
-- [IDOL×IDOL STORY!](https://mangadex.org/title/30b89356-952c-4a72-9d8c-cf44147e881a/idol-idol-story) <sup>Same Creator as</sup> [<sup>New Game!</sup>](https://mangadex.org/title/d7a0991d-2913-4b3c-8fb6-2b752f9e5f3a/new-game) <sup> - Not Listed as GL on Mangaupdates</sup>
+- [IDOL×IDOL STORY!](https://mangadex.org/title/30b89356-952c-4a72-9d8c-cf44147e881a/idol-idol-story) <sup>Same Creator as</sup> [<sup>New Game!</sup>](https://sevenseasentertainment.com/series/new-game/) <sup> - Not Listed as GL on Mangaupdates</sup>
 
     >*Mimi Nagisa (22 years old) is a former idol. After giving up on her dream of being an idol because of her lacking talent she spends her days working part-time while attending college. However, the moment she meets the idol Ibuki Nanakusa, whom she recently found interest in, their lives begin to cross each other.*
 
 - [Inko-Sensei](https://mangadex.org/title/a4aa093a-0f92-43b2-9146-b8cd369cc865/inko-sensei) <sup>Sequel to</sup> [<sup>Tadokoro-san</sup>](https://mangadex.org/title/8ffbfa2f-23fa-4490-848e-942581a4d873/tadokoro-san)
 
     >*Sequel to Tadokoro-san following manga artist Inko-sensei as she brings on an assistant to help draw her hardboiled manga.*
+
+- [Happiness Rides a Broomstick](https://mangadex.org/title/71d51fb0-fc54-400a-8819-c12ae212ed73/happiness-rides-a-broomstick) <sup>Same Creator as</sup> [<sup>Ring My Bell!</sup>](https://tapas.io/series/ringmybell/info) <sup> - Hiatus</sup>
+
+    >*Although she is just a college freshman, Kim Danjo, much like her name, lives a monotonous life. One day Danjo goes to a storage room to run an errand for her sunbae when she witnesses a broom transform into a human girl. From that day on, the broom persistently asks for Danjo's help, claiming she has no where to go. In the end, Danjo accidentally gives the broom who claims to actually be a Dookkabei (Korean supernatural creature) the name Eundohae and they start living together in Danjo's small gosiwon.*
+
+- [A Grim Reaper to Go With Your Rice!](https://mangadex.org/title/351b627f-1f88-4fcd-afd6-938a6167bb23/gohan-no-otomo-ni-shinigami-to) <sup>Same Creator as</sup> [<sup>Beauty and the Beast Girl</sup>](https://sevenseasentertainment.com/series/beauty-and-the-beast-girl/) <sup> and </sup> [<sup>Dear Noman</sup>](https://yenpress.com/series/dear-noman)
+
+    >*Yoshida-san, the malnourished corporate slave, and Miku, the clumsy grim reaper who came from the underworld to extend her lifespan. The dining table where these two very different people gather is a messy, but somewhat gentle place. Will Yoshida-san be able to become "healthy"!? The mysterious communal life of a human and a reaper begins!*
+
+- [My Sisters Love Me](https://mangadex.org/title/c40e4be4-669e-4b1c-9702-ca9bd10b821f/my-sisters-love-me) <sup>Same Creator as</sup> [<sup>Kiss and White Lily for My Dearest Girl</sup>](https://yenpress.com/series/kiss-and-white-lily-for-my-dearest-girl)
+
+    >*Misaki suddenly has four younger sisters due to her parents' remarriage, and they all love their big sister! The passionate appeals for love and affection from the different types of sisters will make you smile!*
+
+- [Inari's Marriage](https://mangadex.org/title/ca715fe2-cdb3-4a98-a3e5-92116490f067/inari-no-kekkon) <sup>Same Artist as</sup> [<sup>Kindred Spirits on the Roof</sup>](https://sevenseasentertainment.com/series/kindred-spirits-on-the-roof/) <sup> and </sup> <sup>Same Creator as</sup> [<sup>Isn't The Moon Beautiful?</sup>](https://mangadex.org/title/b9797c5b-642e-44d9-ac40-8b31b9ae110a/tsuki-ga-kirei-desu-ne)
+
+    >*A romance about two foxes who went from childhood friends to newlyweds and their slow-paced rural life.*
 
 **Webtoons**
 
