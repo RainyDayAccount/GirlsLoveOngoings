@@ -30,7 +30,7 @@
 
     >*It's a secret that I'm dating the love of my life at school. There's no way I can tell anyone, especially when we're both girls. But I can't help my feelings from slipping out in the background. It's not the ideal way to be a couple, but I can put up with it because I really love her... But such loneliness has also nurtured dark thoughts in my head.*
 
-- [School Zone Girls](https://mangadex.org/title/215e3ced-247e-4f34-8e1a-27b60ffef8ac/my-girlfriend-s-not-here-today) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/school-zone-girls/)<sup> - Hiatus</sup>
+- [School Zone Girls]([https://mangadex.org/title/215e3ced-247e-4f34-8e1a-27b60ffef8ac/my-girlfriend-s-not-here-today](https://mangadex.org/title/5227abca-3d3d-4456-92ff-e67f6e8eb0ee/school-zone)) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/school-zone-girls/)<sup> - Hiatus</sup>
 
     >*Yokoe Rei and Sugiura Kei have always been together ever since middle school. As these two go through their days, drama kicks off around every corner of their daily life. Watch these miserable high school girls frolic about in their miserable school life. A devilishly priceless yuri comedy!*
 
