@@ -165,7 +165,7 @@
 
     >*Hime is a picture-perfect high school princess—she’s admired by all and never trips up! So when she accidentally injures a café manager named Mai, she’s willing to cover some shifts to keep her facade intact. To Hime’s surprise, the café is themed after a private school where the all-female staff always puts on their best act for their loyal customers. However, under the guidance of the most graceful girl there, Hime can’t help but blush and blunder! Beneath all the frills and laughter, Hime feels tension brewing as she finds out more about her new job and her budding feelings…*
 
-- [The Moon on a Rainy Night](https://mangadex.org/title/c8a0426d-539b-4f6a-9537-fbccf4962529/the-moon-on-a-rainy-night) [<sup>Kodansha</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/)
+- [The Moon on a Rainy Night](https://mangadex.org/title/c8a0426d-539b-4f6a-9537-fbccf4962529/the-moon-on-a-rainy-night) [<sup>Kodansha</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/) <sup> - Same Creator as </sup> [<sup>Living With My Brother's Wife</sup>](https://global.manga-up.com/manga/33)
 
     >*One rainy night, Saki is rushing to a piano lesson when she crashes into a beautiful, long-haired girl, dropping her sheet music in the process. Saki stutters an apology, but the girl simply hands back her sheet music and leaves without a word. Saki begins her first day of high school the following morning, only to find the stranger from the night before sitting at the desk next to hers. She learns that the girl’s name is Kanon and that she is not quite completely deaf, but very hard of hearing. Though Kanon needs to be close to people to read their lips, she tends to push people away with her icy demeanor. Through one kind gesture, Saki slowly begins breaking down the walls around Kanon, even as she feels something new blossoming within her.*
 
@@ -210,7 +210,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*Meet Chise, a young girl who is reborn in a new world with her old memories lost. A goddess grants her the gift of 'Creation Magic' under one condition - that she enjoys her new life! Together with Teto, a golem she creates, Chise embarks on an enchanting journey across the world.*
 
-- [Living With My Brother's Wife](https://mangadex.org/title/6204ff54-c3d5-4645-b21f-f83f6fa303d0/ani-no-yome-to-kurashite-imasu) [<sup>Square Enix - Not Listed as GL</sup>](https://global.manga-up.com/manga/33)
+- [Living With My Brother's Wife](https://mangadex.org/title/6204ff54-c3d5-4645-b21f-f83f6fa303d0/ani-no-yome-to-kurashite-imasu) [<sup>Square Enix - Not Listed as GL</sup>](https://global.manga-up.com/manga/33) <sup> - Same Creator as </sup> [<sup>The Moon on a Rainy Night</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/)
 
     >*Since the death of her brother, seventeen year-old Shino Kishibe has been living with her sister-in-law Nozomi. Nozomi wants to be a person Shino can lean on, while Shino is determined not to be a burden. Together the orphaned high-schooler and young widow try to support one another while carrying on with their everyday lives.*
 
@@ -225,6 +225,10 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 - [The Flying Ship](https://www.flyingshipcomic.com/) [<sup>Dark Horse - Tapas</sup>](https://www.darkhorse.com/Books/3011-346/The-Flying-Ship-Volume-1-TPB) 
 
     >*After being stranded in a forgotten military outpost, grumpy Dobrinia sets out on a quest to marry a princess. But in the vast Tzardom of Glas, where magic has been outlawed, troubled histories can catch up with even a flying ship.*
+
+- [The Legend of Korra](https://digital.darkhorse.com/series/450/the-legend-of-korra) [<sup>Next Release - Sep 4, 2024</sup>](https://leagueofcomicgeeks.com/comics/series/171781/the-legend-of-korra-mystery-of-penquan-island)
+
+    >*Mystery of Penquan Island is an upcoming, standalone graphic novel that will focus on Mako.*
 
 **Bilibili**
 
@@ -295,7 +299,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*Pah Doyeon, a college student living in an old apartment building, gets used to the thugs coming to her neighbor's door every day. One day, when she sees the thugs trying to break into her neighbor's house, she unwittingly hides her next-door neighbor, Jinju, in her apartment... Looking at Jinju, who is much older than her, Doyeon gradually becomes engulfed in an unknown desire. How will their awkward cohabitation end?*
 
-- Talk Dirty to Me<sup>Not on Mangadex</sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/talkdirty)
+- Talk Dirty to Me<sup>Not on Mangadex</sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/talkdirty) <sup> - Same Creator as </sup> [<sup>The Chain of Youth</sup>](https://www.lezhinus.com/en/comic/chainofyouth)
 
     >*Yeon-hwa has always dreamed of being a top k-pop idol, and she’s worked hard to make it to her debut. But she’s certainly never dreamed of having her idol group partner to be a hell of a masochistic pervert. Insoo is uncooperative, but she’s infinitely easier to control when you become her master. Now, Yeon-hwa is determined to make Insoo an ideal idol partner—and to do that, she’s going to be Insoo’s ideal partner in bed. But this solution might not be as simple as she thinks…*
 
@@ -317,7 +321,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
 **Manta**
 
-- [Bittersweet Con Panna](https://mangadex.org/title/3902c3bb-192a-4aae-ab87-b23548f4d8d9/bittersweet-con-panna) [<sup>Manta</sup>](https://manta.net/en/series/bittersweet-con-panna?seriesId=2006)
+- [Bittersweet Con Panna](https://mangadex.org/title/3902c3bb-192a-4aae-ab87-b23548f4d8d9/bittersweet-con-panna) [<sup>Manta</sup>](https://manta.net/en/series/bittersweet-con-panna?seriesId=2006) <sup> - Same Artist as </sup> [<sup>Reign of Desire</sup>](https://www.tappytoon.com/en/series/reignofdesire/1)
 
     >*Graduate student Songah thinks her girlfriend Yoosung is the cutest girl in the world. It doesn't matter if she's actually more sophisticated than adorable; Yoosung is number one in her heart! So how is she supposed to react when some hot childhood friend suddenly enters the mix?!*
 
@@ -337,11 +341,11 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*Haegu, a proficient and merciless hitwoman, executes a man in front of his own daughter and takes the child under her wing. She decides to name her Mian, the word for "sorry" in Korean, and gives her one mission: "Kill me when you can." From that moment on, Mian decides that she will do this by choking Haegu with feigned love and emotionally manipulating her into submission. But as Mian grows into an adult, she's thrown into confusion as what was supposed to be pure revenge turns into lust... and possibly real love. Meanwhile, Haegu grapples with her own feelings for Mian while continuing to carry out life-threatening missions. Can Haegu and Mian ever learn to truly love each other, or are they doomed to drown in their toxic cycle of violence and revenge?*
 
-- [On a Leash](https://mangadex.org/title/830daff3-61ce-4b74-af72-ae08345c02af/on-a-leash) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/on-a-leash)
+- [On a Leash](https://mangadex.org/title/830daff3-61ce-4b74-af72-ae08345c02af/on-a-leash) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/on-a-leash) <sup> - Same Creator as </sup> [<sup>Opium</sup>](https://tapas.io/series/opium-comic/info) 
 
     >*Tensions run high on the battlefield as soldiers fight through death. Bombs rain from the sky and bullets pepper the ground. In battle, beasts screech through the sky and tear through the earth. After the smoke clears, the soldiers return to their human forms weary from battle and numbed by death. But amid the explosions and chaos, a spark of passion ignites. Time will tell whether it can survive the horrors of war, or if it will succumb to it.*
 
-- [Show Me Your Bust](https://mangadex.org/title/53284055-d529-476a-a3e2-63d4c684f5d1/show-me-your-bust) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/show-me-your-bust-m)
+- [Show Me Your Bust](https://mangadex.org/title/53284055-d529-476a-a3e2-63d4c684f5d1/show-me-your-bust) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/show-me-your-bust-m) <sup> - Same Creator as </sup> [<sup>What Does the Fox Say?</sup>](https://mangadex.org/title/658662c8-bee6-442c-91c4-cb94681810b5/what-does-the-fox-say) 
 
     >*University student Kang Ji-ho, accidentally saw Seon Woo-hui's breasts at a drinking party, and avoids her because she couldn't resist the desire to see them again.*
 
@@ -367,7 +371,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*An asocial girl who's obsessed with her studies seems to be interested in a lowlife delinquent?! She's still so cute today. A cold, high school girl who loves studying and a stupid yet sweet delinquent.*
 
-- [Your False Embrace](https://mangadex.org/title/3040ec91-4d19-4d99-a8d3-dfbbab943836/your-false-embrace) [<sup>INKR</sup>](https://comics.inkr.com/title/2015-your-false-embrace/chapters)
+- [Your False Embrace](https://mangadex.org/title/3040ec91-4d19-4d99-a8d3-dfbbab943836/your-false-embrace) [<sup>INKR</sup>](https://comics.inkr.com/title/2015-your-false-embrace/chapters) <sup> - Same Creator as </sup> [<sup>Sexual Liberation: To Each Their Own Form of Love</sup>](https://comics.inkr.com/title/1503-sexual-liberation-to-each-their-own-form-of-love?utm_source=mgd) 
 
     >*“I’ll crush all things normal to you.” Yoshikawa Miyuki, a 34 years old woman, had been happily married for three years when her life took a wrong turn. She found herself in a sexless marriage with the added pressure of having a child. When her husband even resorted to going to the brothel, Miyuki questioned if this was normalcy, and if so, she no longer wanted to adhere to it. She now only yearns for true love. Her worries and suffering had pushed her to the brink of losing her mind. That's when someone, with a certain secret, appeared in front of her, changing everything. This person's sweet temptation shatter Miyuki's perception of "normal." What ensued was a straight, twisted, ugly, beautiful, and impure pure love story.*
 
@@ -486,7 +490,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
 **Webcomics**
 
-- Rose's Accomplice<sup>Not on Mangadex</sup> [<sup>Webcomics</sup>](https://www.webcomicsapp.com/comic/Rose-s-Accomplice/6369fd498c252b181b1dc1e3)
+- [Rose's Accomplice](https://www.webcomicsapp.com/comic/Rose-s-Accomplice/6369fd498c252b181b1dc1e3)
 
     >*Dorothy Joule encounters Cecilia Browne – a rich and gorgeous "it girl" while celebrating her graduation from the police academy at a bar. The two girls, seemingly unrelated, are linked to each other by an old unsolved case. Meanwhile, Cecilia's playboy fiancé who initially avoided her has now developed an interest in conquering a cold and smart girl like her...*
 
