@@ -22,11 +22,11 @@
 
     >*Beautiful, brainy Tsuda Akane is indispensable at the robotics manufacturer where she works, but her colleagues never saw her private side. At home, Akane’s a hot mess with an apartment that looks more like a landfill than a living space. When she drunkenly orders a maid to help her tidy up, the lady android who arrives is a horny hottie who’s about to give Akane more service than she bargained for!*
 
-- [My Cute Little Kitten](https://mangadex.org/title/2e71d530-79b7-444d-89c9-29f9534d08d2/my-cute-little-kitten) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/my-cute-little-kitten/)
+- [My Cute Little Kitten](https://mangadex.org/title/2e71d530-79b7-444d-89c9-29f9534d08d2/my-cute-little-kitten) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/my-cute-little-kitten/) <sup> - Same Creator as </sup> [<sup>Girl Friends and More</sup>](https://sevenseasentertainment.com/creator/milk-morinaga/)
 
     >*Rena has had a crush on her roommate Yuna since college, but Yuna has never noticed. One night, Yuna brings home a tiny kitten, even though their apartment doesn’t allow pets! Rena decides it would be better to let Yuna find her own place. But when Yuna says she wants to stay with Rena forever, Rena’s feelings are forced to the surface. Can Rena make Yuna understand what being together forever really means?*
 
-- [My Girlfriend's Not Here Today](https://mangadex.org/title/215e3ced-247e-4f34-8e1a-27b60ffef8ac/my-girlfriend-s-not-here-today) [<sup>Seven Seas. Releasing May 2024.</sup>](https://sevenseasentertainment.com/2023/09/20/seven-seas-licenses-my-girlfriends-not-here-today-yuri-girls-love-manga-series/)
+- [My Girlfriend's Not Here Today](https://mangadex.org/title/215e3ced-247e-4f34-8e1a-27b60ffef8ac/my-girlfriend-s-not-here-today) [<sup>Seven Seas. Releasing May 2024.</sup>](https://sevenseasentertainment.com/2023/09/20/seven-seas-licenses-my-girlfriends-not-here-today-yuri-girls-love-manga-series/) <sup> - Same Creator as </sup> [<sup>Transparent Light Blue</sup>](https://sevenseasentertainment.com/series/transparent-light-blue/)
 
     >*It's a secret that I'm dating the love of my life at school. There's no way I can tell anyone, especially when we're both girls. But I can't help my feelings from slipping out in the background. It's not the ideal way to be a couple, but I can put up with it because I really love her... But such loneliness has also nurtured dark thoughts in my head.*
 
@@ -42,7 +42,7 @@
 
     >*Ruby is a student at an elite European boarding school. Things are going pretty well for her until she finds out that she won’t be able to go home at Christmas. Instead, she’ll be stuck at school with only one other student—the aloof and beautiful Steph—for company. As Ruby tries to understand Steph, she becomes more and more attracted to the other girl. But can she break through Steph’s icy exterior?*
 
-- [Even Though We're Adults](https://mangadex.org/title/4cd749d5-0576-4978-96e8-1dca5f46a592/even-though-we-re-adults) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/even-though-were-adults/)
+- [Even Though We're Adults](https://mangadex.org/title/4cd749d5-0576-4978-96e8-1dca5f46a592/even-though-we-re-adults) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/even-though-were-adults/) <sup> - Same Creator as </sup> [<sup>Sweet Blue Flowers</sup>](https://www.viz.com/sweet-blue-flowers)
 
     >*Ayano, an elementary school teacher in her thirties, stops by a bar one day and meets another woman named Akari. Sparks fly as the two chat, and before the night is over, Ayano even goes in for a kiss. Akari is intrigued but confused…especially when she discovers that Ayano has a husband! Both Ayano and Akari are about to find out that love doesn’t get any easier, even as you grow older.*
 
@@ -58,7 +58,7 @@
 
     >*Talk about your extreme career changes! Naruse Soushi, a single, middle-aged man and private secretary to a politician, lies on the verge of death. Meanwhile, in another world, the princess knight Reina is about to lose her life. The princess’s soul is removed—and Naruse is summoned into the empty husk of her body! Reincarnated as a beautiful young woman, this man is doomed to the fate of…working at a yuri brothel! Does he have what it takes to succeed?*
 
-- [How Do I Turn My Best Friend Into My Girlfriend?](https://mangadex.org/title/4de70c96-566b-4cdb-88f4-6c7fd5184991/doushitara-osananajimi-no-kanojo-ni-naremasu-ka) [<sup>Seven Seas - Releasing Mar 19, 2024</sup>](https://sevenseasentertainment.com/series/how-do-i-turn-my-best-friend-into-my-girlfriend/)
+- [How Do I Turn My Best Friend Into My Girlfriend?](https://mangadex.org/title/4de70c96-566b-4cdb-88f4-6c7fd5184991/doushitara-osananajimi-no-kanojo-ni-naremasu-ka) [<sup>Seven Seas - Releasing Mar 19, 2024</sup>](https://sevenseasentertainment.com/series/how-do-i-turn-my-best-friend-into-my-girlfriend/) <sup> - Same Creator as </sup> [<sup>Monologue Woven For You</sup>](https://sevenseasentertainment.com/series/monologue-woven-for-you/)
 
     >*Minami and Yuzu have been besties since…well, forever! Or at least that’s what Minami thought. But when some rando confesses to Yuzu, Minami realizes that her feelings might not be what you’d typically call “friendship” anymore. It doesn’t take long for Minami to realize she wants to change their relationship status, but will she be able to muster the courage to confess? Or will she simply be happy being by Yuzu’s side?*
 
@@ -107,15 +107,15 @@
 
     >*The second floor of the gym. That’s our spot. Class is in session right now, but they don’t hold class in a place like this. This is where Shimamura and I became friends. What is this feeling? Yesterday, I dreamed of kissing her. I’m not like that, and I’m sure Shimamura isn’t either. But…when Shimamura thinks of the word “friend”, I want to be the first thing that comes to her mind. That’s all.*
 
-- [Assorted Entanglements](https://mangadex.org/title/5412816d-a3c9-4bab-956b-b08d1f8f41f6/fuzoroi-no-renri) [<sup>Yen Press</sup>](https://yenpress.com/series/assorted-entanglements)
+- [Assorted Entanglements](https://mangadex.org/title/5412816d-a3c9-4bab-956b-b08d1f8f41f6/fuzoroi-no-renri) [<sup>Yen Press</sup>](https://yenpress.com/series/assorted-entanglements) <sup> - Same Creator as </sup> [<sup>Now Loading…!</sup>](https://sevenseasentertainment.com/series/now-loading/)
 
     >*Discover a variety of stories about women's love, starting with Iori: twenty-eight-year-old office worker who sets out to drown her love and job sorrows in booze. When she wakes up next to someone, she can’t believe her partner was Minami, a worker at the bar who doesn’t want to forget what they have!*
 
-- [Coccon Entwined](https://mangadex.org/title/bf7fbf85-00ed-4cda-9f8c-149f3113b096/cocoon-entwined) [<sup>Yen Press</sup>](https://yenpress.com/series/cocoon-entwined)
+- [Cocoon Entwined](https://mangadex.org/title/bf7fbf85-00ed-4cda-9f8c-149f3113b096/cocoon-entwined) [<sup>Yen Press</sup>](https://yenpress.com/series/cocoon-entwined)
 
     >*Clad in school uniforms practically breathing with life are the girls of Hoshimiya Girls’ Academy, their hair long and luxurious. When a puzzling incident involving the ever-mysterious and elusive student Hoshimiya-san disturbs their peaceful paradise, the hidden feelings these innocent schoolgirls possess begin to entwine and overflow in unimaginable ways…*
 
-- [I Don't Know Which is Love](https://mangadex.org/title/79ca6344-5468-4fa8-8eb7-859728b27156/i-don-t-know-which-is-love) [<sup>Yen Press</sup>](https://yenpress.com/series/i-don-t-know-which-is-love)
+- [I Don't Know Which is Love](https://mangadex.org/title/79ca6344-5468-4fa8-8eb7-859728b27156/i-don-t-know-which-is-love) [<sup>Yen Press</sup>](https://yenpress.com/series/i-don-t-know-which-is-love) <sup> - Same Creator as </sup> [<sup>Cheerful Amnesia</sup>](https://yenpress.com/series/cheerful-amnesia)
 
     >*In her final days of high school, Mei Soraike tried to confess her love to her best friend only to have her hopes crushed. A little heartbreak is fine, though—because she’ll absolutely, definitely, undoubtedly get a girlfriend in college! And as soon as Mei sets her resolve, potential paramours start aggressively sidling up to her one after another...! How on earth is she supposed to settle on someone when she’s falling head over heels for every cutie she meets?*
 
