@@ -232,6 +232,8 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
 **Bilibili**
 
+*Listing What Was Ongoing at Site*
+
 - [Please Bully Me, Miss Villainess!](https://mangadex.org/title/8b34f37a-0181-4f0b-8ce3-01217e9a602c/please-bully-me-miss-villainess) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc2295)
 
 
@@ -361,7 +363,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
 **Lilyka Manga(Active?)**
 
-- [After School](https://mangadex.org/title/1b46b76c-bd79-4d42-8b21-e199993fee49/houkago) [<sup>Lilyka Manga</sup>](https://emanga.com/products/after-school-1?variant=42997274935458)
+- [After School](https://mangadex.org/title/1b46b76c-bd79-4d42-8b21-e199993fee49/houkago) [<sup>Lilyka Manga</sup>](https://emanga.com/products/after-school-1?variant=42997274935458) <sup> - Other works from creator at </sup> [<sup>Irodori Comics</sup>](https://irodoricomics.com/Tomo-Oshima-X-Towa-Oshima)
 
     >*An after school romance of two girls.*
 
@@ -442,7 +444,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
     >*Transmigrated as the doomed villainess Aida Mortemer, Yao faces a peculiar challenge in a magical world. Enrolled in a magic academy without magical abilities, her plans to charm the main characters are slightly derailed when she encounters the demon lord's reincarnation. Desperate to survive and avoid her painful demise, Aida also befriends the formidable Miss Demon Lord, only to find her behavior increasingly...odd? Can Aida navigate this magical minefield and get these characters on her side?*
 
 
-- [Pandora's Devils](https://tapas.io/series/pandoras-devils/info) <sup>Same Creator as</sup> [<sup>High Class Homos</sup>](https://www.webtoons.com/en/comedy/high-class-homos/list?title_no=2723) <sup> - On Hiatus</sup>
+- [Pandora's Devils](https://tapas.io/series/pandoras-devils/info) <sup>Same Creator as</sup> [<sup>High Class Homos</sup>](https://www.webtoons.com/en/comedy/high-class-homos/list?title_no=2723) <sup> - Hiatus</sup>
 
     >*For sheltered Evie, the small world of her church community is all she’s ever known. When her family and community mysteriously disappear, she must venture into Pandora City—a place where supernatural beings walk the streets—to find answers. Instead, she finds the DEVILS, an elite paranormal investigation squad. Paired with Jack, a fierce outcast with a grim past, the two become unlikely partners... and more? As their bond deepens, Evie must navigate a new world of romance, magic… and monsters.*
 
@@ -599,7 +601,7 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*In an attempt to win her homeroom teacher's heart, Itsumi Toudou purchased a shady love potion, and tested it out on her stuck-up student committee president, Yomotsuka. Now, she has an uncharacteristically affectionate girl to deal with, and she's not even a lesbian! Right?*
 
-- [A Girl Whose Breasts Are a Little Big and Is Kinda Pretty](https://mangadex.org/title/1ed9422e-4053-40c5-9ff9-ed331c6088b1/a-girl-whose-breasts-are-a-little-big-and-is-kinda-pretty?tab=chapters) <sup>Same Creator as</sup> [<sup>Breasts Are My Favorite Things in the World!</sup>](https://mangadex.org/title/af906856-ef0c-4c7a-aa61-27edebe9e834/sekai-de-ichiban-oppai-ga-suki)
+- [A Girl Whose Breasts Are a Little Big and Is Kinda Pretty](https://mangadex.org/title/1ed9422e-4053-40c5-9ff9-ed331c6088b1/a-girl-whose-breasts-are-a-little-big-and-is-kinda-pretty?tab=chapters) <sup>Same Creator as</sup> [<sup>Breasts Are My Favorite Things in the World!</sup>](https://yenpress.com/titles/9781975310035-breasts-are-my-favorite-things-in-the-world-vol-1)
 
     >*Morishima decides to confront a couple of girls that are gossiping about her.*
 
@@ -703,7 +705,7 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*Manga artist Oshiga Sukoya is in love with the Vtuber Doujima Taiga and constantly gushes about her to her best friend Hariyama Teruko. Little does Sukoya know that Teruko is a)the person behind Doujima Taiga and b) secretly in love with Sukoya.*
 
-- [Housewife X JK](https://mangadex.org/title/093a607f-5e60-454c-ad23-16797e6bec4b/housewife-x-jk)
+- [Housewife X JK](https://mangadex.org/title/093a607f-5e60-454c-ad23-16797e6bec4b/housewife-x-jk) <sup>Same Creator as</sup> [<sup>Does it Count if You Lose Your Virginity to an Android?</sup>](https://sevenseasentertainment.com/series/does-it-count-if-you-lose-your-virginity-to-an-android/)
 
     >*A housewife and her daughter's friend have a little affair. Will they be caught or will it end as just "sex-friends"?*
 
@@ -753,13 +755,29 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*During troubled times, Weng Shaoying is one of the most famous singers in Dongping. Many people go to Song of Fairyland just to see her perform. However, under her glamorous facade, she has been controlled for more than 10 years. On the other side of Dongping is Bi Xing Tang, one of the most famous gangs there. After her father’s death, Yanchu became the young female leader of Bi Xing Tang, which caused a lot of rumors to spread. On one inevitably fortuitous night, the two happened to meet. At that time, neither of them knew that they would eventually become the most important person in the other’s life. Starting from that night onwards, the gears in Shaoying and Yanchu’s fate will forever be rotating together.*
 
-- [IDOL×IDOL STORY!](https://mangadex.org/title/30b89356-952c-4a72-9d8c-cf44147e881a/idol-idol-story) <sup>Same Creator as</sup> [<sup>New Game!</sup>](https://mangadex.org/title/d7a0991d-2913-4b3c-8fb6-2b752f9e5f3a/new-game) <sup> - Not Listed as GL on Mangaupdates</sup>
+- [IDOL×IDOL STORY!](https://mangadex.org/title/30b89356-952c-4a72-9d8c-cf44147e881a/idol-idol-story) <sup>Same Creator as</sup> [<sup>New Game!</sup>](https://sevenseasentertainment.com/series/new-game/) <sup> - Not Listed as GL on Mangaupdates</sup>
 
     >*Mimi Nagisa (22 years old) is a former idol. After giving up on her dream of being an idol because of her lacking talent she spends her days working part-time while attending college. However, the moment she meets the idol Ibuki Nanakusa, whom she recently found interest in, their lives begin to cross each other.*
 
 - [Inko-Sensei](https://mangadex.org/title/a4aa093a-0f92-43b2-9146-b8cd369cc865/inko-sensei) <sup>Sequel to</sup> [<sup>Tadokoro-san</sup>](https://mangadex.org/title/8ffbfa2f-23fa-4490-848e-942581a4d873/tadokoro-san)
 
     >*Sequel to Tadokoro-san following manga artist Inko-sensei as she brings on an assistant to help draw her hardboiled manga.*
+
+- [Happiness Rides a Broomstick](https://mangadex.org/title/71d51fb0-fc54-400a-8819-c12ae212ed73/happiness-rides-a-broomstick) <sup>Same Creator as</sup> [<sup>Ring My Bell!</sup>](https://tapas.io/series/ringmybell/info) <sup> - Hiatus</sup>
+
+    >*Although she is just a college freshman, Kim Danjo, much like her name, lives a monotonous life. One day Danjo goes to a storage room to run an errand for her sunbae when she witnesses a broom transform into a human girl. From that day on, the broom persistently asks for Danjo's help, claiming she has no where to go. In the end, Danjo accidentally gives the broom who claims to actually be a Dookkabei (Korean supernatural creature) the name Eundohae and they start living together in Danjo's small gosiwon.*
+
+- [A Grim Reaper to Go With Your Rice!](https://mangadex.org/title/351b627f-1f88-4fcd-afd6-938a6167bb23/gohan-no-otomo-ni-shinigami-to) <sup>Same Creator as</sup> [<sup>Beauty and the Beast Girl</sup>](https://sevenseasentertainment.com/series/beauty-and-the-beast-girl/) <sup> and </sup> [<sup>Dear Noman</sup>](https://yenpress.com/series/dear-noman)
+
+    >*Yoshida-san, the malnourished corporate slave, and Miku, the clumsy grim reaper who came from the underworld to extend her lifespan. The dining table where these two very different people gather is a messy, but somewhat gentle place. Will Yoshida-san be able to become "healthy"!? The mysterious communal life of a human and a reaper begins!*
+
+- [My Sisters Love Me](https://mangadex.org/title/c40e4be4-669e-4b1c-9702-ca9bd10b821f/my-sisters-love-me) <sup>Same Creator as</sup> [<sup>Kiss and White Lily for My Dearest Girl</sup>](https://yenpress.com/series/kiss-and-white-lily-for-my-dearest-girl)
+
+    >*Misaki suddenly has four younger sisters due to her parents' remarriage, and they all love their big sister! The passionate appeals for love and affection from the different types of sisters will make you smile!*
+
+- [Inari's Marriage](https://mangadex.org/title/ca715fe2-cdb3-4a98-a3e5-92116490f067/inari-no-kekkon) <sup>Same Artist as</sup> [<sup>Kindred Spirits on the Roof</sup>](https://sevenseasentertainment.com/series/kindred-spirits-on-the-roof/) <sup> and </sup> <sup>Same Creator as</sup> [<sup>Isn't The Moon Beautiful?</sup>](https://mangadex.org/title/b9797c5b-642e-44d9-ac40-8b31b9ae110a/tsuki-ga-kirei-desu-ne)
+
+    >*A romance about two foxes who went from childhood friends to newlyweds and their slow-paced rural life.*
 
 **Webtoons**
 
