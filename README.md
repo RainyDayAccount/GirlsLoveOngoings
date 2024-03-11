@@ -677,7 +677,7 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*One day, while rummaging through Mizuki's personal belongings in her room, Yanagi discovers the truth about Mizuki...?*
 
-- [Liberta](https://mangadex.org/title/d6f4aea2-d798-412f-9368-5bb3143cd50c/liberta) <sup>Sequel to </sup> [<sup>Tadokoro-san</sup>](https://mangadex.org/title/8ffbfa2f-23fa-4490-848e-942581a4d873/tadokoro-san)
+- [Liberta](https://mangadex.org/title/d6f4aea2-d798-412f-9368-5bb3143cd50c/liberta) <sup>Same Creator as </sup> [<sup>Tadokoro-san</sup>](https://mangadex.org/title/8ffbfa2f-23fa-4490-848e-942581a4d873/tadokoro-san)
 
     >*An office worker named Komari is saved from a monster by a mysterious vampire named Liberta. Sex and violence ensues.*
 
