@@ -438,7 +438,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
     >*Transmigrated as the doomed villainess Aida Mortemer, Yao faces a peculiar challenge in a magical world. Enrolled in a magic academy without magical abilities, her plans to charm the main characters are slightly derailed when she encounters the demon lord's reincarnation. Desperate to survive and avoid her painful demise, Aida also befriends the formidable Miss Demon Lord, only to find her behavior increasingly...odd? Can Aida navigate this magical minefield and get these characters on her side?*
 
 
-- [Pandora's Devils](https://tapas.io/series/pandoras-devils/info) <sup>Same Author as</sup> [<sup>High Class Homos</sup>](https://www.webtoons.com/en/comedy/high-class-homos/list?title_no=2723) <sup> - On Hiatus</sup>
+- [Pandora's Devils](https://tapas.io/series/pandoras-devils/info) <sup>Same Creator as</sup> [<sup>High Class Homos</sup>](https://www.webtoons.com/en/comedy/high-class-homos/list?title_no=2723) <sup> - On Hiatus</sup>
 
     >*For sheltered Evie, the small world of her church community is all she’s ever known. When her family and community mysteriously disappear, she must venture into Pandora City—a place where supernatural beings walk the streets—to find answers. Instead, she finds the DEVILS, an elite paranormal investigation squad. Paired with Jack, a fierce outcast with a grim past, the two become unlikely partners... and more? As their bond deepens, Evie must navigate a new world of romance, magic… and monsters.*
 
@@ -595,7 +595,7 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*In an attempt to win her homeroom teacher's heart, Itsumi Toudou purchased a shady love potion, and tested it out on her stuck-up student committee president, Yomotsuka. Now, she has an uncharacteristically affectionate girl to deal with, and she's not even a lesbian! Right?*
 
-- [A Girl Whose Breasts Are a Little Big and Is Kinda Pretty](https://mangadex.org/title/1ed9422e-4053-40c5-9ff9-ed331c6088b1/a-girl-whose-breasts-are-a-little-big-and-is-kinda-pretty?tab=chapters) <sup>Same Author as</sup> [<sup>Breasts Are My Favorite Things in the World!</sup>](https://mangadex.org/title/af906856-ef0c-4c7a-aa61-27edebe9e834/sekai-de-ichiban-oppai-ga-suki)
+- [A Girl Whose Breasts Are a Little Big and Is Kinda Pretty](https://mangadex.org/title/1ed9422e-4053-40c5-9ff9-ed331c6088b1/a-girl-whose-breasts-are-a-little-big-and-is-kinda-pretty?tab=chapters) <sup>Same Creator as</sup> [<sup>Breasts Are My Favorite Things in the World!</sup>](https://mangadex.org/title/af906856-ef0c-4c7a-aa61-27edebe9e834/sekai-de-ichiban-oppai-ga-suki)
 
     >*Morishima decides to confront a couple of girls that are gossiping about her.*
 
@@ -741,15 +741,15 @@ They've nicknamed her Usotsuki (Liar).*
 
 *Also By*
 
-- [My Dearest Nemesis](https://mangadex.org/title/32f887f1-824f-4dbc-8e15-70a5b0b8112a/my-dearest-nemesis) <sup>Same Author as</sup> [<sup>That Time I Was Blackmailed By the Class's Green Tea Bitch</sup>](https://mangadex.org/title/73965527-b393-4f65-9bc3-2439ec44935a/that-time-i-was-blackmailed-by-the-class-s-green-tea-bitch)
+- [My Dearest Nemesis](https://mangadex.org/title/32f887f1-824f-4dbc-8e15-70a5b0b8112a/my-dearest-nemesis) <sup>Same Creator as</sup> [<sup>That Time I Was Blackmailed By the Class's Green Tea Bitch</sup>](https://mangadex.org/title/73965527-b393-4f65-9bc3-2439ec44935a/that-time-i-was-blackmailed-by-the-class-s-green-tea-bitch)
 
     >*The whole company knew that they they were polar opposites who fought like cats and dogs. Yet during the year-end party, the wall between them shattered after they got drunk! And so the two of them went from always being close to going off on each other to feeling very strange things following the accidental mishap...*
 
-- [Fugue Across Worlds](https://mangadex.org/title/d9339050-0957-46e9-a30a-4466eaa0a1e8/fugue-across-worlds) <sup>Same Author as</sup> [<sup>Soulmate</sup>](https://mangadex.org/title/04f2b88a-e167-410e-ac38-4fd4777f4e0f/soulmate)
+- [Fugue Across Worlds](https://mangadex.org/title/d9339050-0957-46e9-a30a-4466eaa0a1e8/fugue-across-worlds) <sup>Same Creators as</sup> [<sup>Soulmate</sup>](https://mangadex.org/title/04f2b88a-e167-410e-ac38-4fd4777f4e0f/soulmate)
 
     >*During troubled times, Weng Shaoying is one of the most famous singers in Dongping. Many people go to Song of Fairyland just to see her perform. However, under her glamorous facade, she has been controlled for more than 10 years. On the other side of Dongping is Bi Xing Tang, one of the most famous gangs there. After her father’s death, Yanchu became the young female leader of Bi Xing Tang, which caused a lot of rumors to spread. On one inevitably fortuitous night, the two happened to meet. At that time, neither of them knew that they would eventually become the most important person in the other’s life. Starting from that night onwards, the gears in Shaoying and Yanchu’s fate will forever be rotating together.*
 
-- [IDOL×IDOL STORY!](https://mangadex.org/title/30b89356-952c-4a72-9d8c-cf44147e881a/idol-idol-story) <sup>Same Author as</sup> [<sup>New Game!</sup>](https://mangadex.org/title/d7a0991d-2913-4b3c-8fb6-2b752f9e5f3a/new-game) <sup> - Not Listed as GL on Mangaupdates</sup>
+- [IDOL×IDOL STORY!](https://mangadex.org/title/30b89356-952c-4a72-9d8c-cf44147e881a/idol-idol-story) <sup>Same Creator as</sup> [<sup>New Game!</sup>](https://mangadex.org/title/d7a0991d-2913-4b3c-8fb6-2b752f9e5f3a/new-game) <sup> - Not Listed as GL on Mangaupdates</sup>
 
     >*Mimi Nagisa (22 years old) is a former idol. After giving up on her dream of being an idol because of her lacking talent she spends her days working part-time while attending college. However, the moment she meets the idol Ibuki Nanakusa, whom she recently found interest in, their lives begin to cross each other.*
 
