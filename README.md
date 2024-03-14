@@ -228,6 +228,12 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*Yuzu and Satsuki are now working as maids at the Akitsushima Hotel, an inn for Western Great Spirits that they arrived at on their travels. Will they be able to pull off their duties despite being astonished by the inn's quirky owner and the other maids? Fox workers will wait on you hand and foot.*
 
+- [Alter Ego](https://mangadex.org/title/3f7fb508-be22-453a-ba33-2631345b529f/alter-ego) [<sup>Tokyopop - New Release on June 25, 2024</sup>](https://www.amazon.com/Alter-Ego-2-Noel-June/dp/1427876630)
+
+    >*Noel has always been in love with her best friend Elena, but she's never been able to find the courage to confess her feelings. Then, when her friend starts dating a boy, Noel’s world collapses as she sees her chance at love slipping away.*
+
+    >*One night, in a moment of desperation, Noel ends up confessing her feelings for Elena to a complete stranger — but as fate would have it, this stranger turns out to be a girl named June, Elena's other best friend... and Noel's rival in love! Worst of all, now June knows Noel's secret. With everything suddenly going wrong, how can Noel ever win the girl of her dreams?*
+
 **Dark Horse Comics**
 
 - [The Flying Ship](https://www.flyingshipcomic.com/) [<sup>Dark Horse - Tapas</sup>](https://www.darkhorse.com/Books/3011-346/The-Flying-Ship-Volume-1-TPB) 
@@ -237,6 +243,14 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 - [The Legend of Korra](https://digital.darkhorse.com/series/450/the-legend-of-korra) [<sup>Next Release - Sep 4, 2024</sup>](https://leagueofcomicgeeks.com/comics/series/171781/the-legend-of-korra-mystery-of-penquan-island)
 
     >*Mystery of Penquan Island is an upcoming, standalone graphic novel that will focus on Mako.*
+
+**DC**
+
+- [Harley Quinn](https://www.dc.com/comics/harley-quinn-2021/harley-quinn-37) <sup>They Broke Up</sup>
+
+- [Poison Ivy](https://www.dc.com/comics/poison-ivy-2022/poison-ivy-20) <sup>They Broke Up</sup>
+
+- [OUTSIDERS](https://www.dc.com/comics/outsiders-2023/outsiders-5) <sup>Batwoman Broke Up With Her Girlfriend</sup>
 
 **Bilibili**
 
