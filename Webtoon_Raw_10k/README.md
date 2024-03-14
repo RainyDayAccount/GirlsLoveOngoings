@@ -1,5 +1,5 @@
 --->10K, updated since Feb 2, 2023---
-*Source for this is my own follow. I am almost certainly missing some*
+*Source for this is my own follows. I am almost certainly missing some*
 
 Mistranslations
 
