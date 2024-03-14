@@ -216,9 +216,17 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
 **Tokyopop**
 
-- [Yuri Espoir](https://mangadex.org/title/d5ffe970-d842-418b-b00b-264b57de3f3a/yuri-espoir) [<sup>Tokyopop</sup>](https://tokyopop.com/products/9781427868251_yuri-espoir-volume-1)
+- [Yuri Espoir](https://mangadex.org/title/d5ffe970-d842-418b-b00b-264b57de3f3a/yuri-espoir) [<sup>Tokyopop</sup>](https://tokyopop.com/products/9781427874702_yuri-espoir-volume-4)
 
     >*After finding out she is to be forced into an marriage of convenience as soon as she graduates high school, Kokoro sees her life ending before her eyes at her father's wishes. And so in her final year of high school, she decides to indulge in her love of other women, and create an incredible sketchbook of lesbian romance to leave behind as her legacy. As she observes the young women of her town, she learns more about their desires, their struggles, and the unpredictable whims of love.*
+
+- [If My Favorite Pop Idol Made It to the Budokan, I Would Die](https://mangadex.org/title/491bdbe0-0c83-42d5-8b20-3a651e65f70b/oshi-ga-budoukan-ittekuretara-shinu) [<sup>Tokyopop</sup>](https://tokyopop.com/products/9781427875341_if-my-favorite-pop-idol-made-it-to-the-budokan-i-would-die-volume-5)
+
+    >*Forthright and impetuous Eripiyo is the number one stan for Maina, a sidelined member of the underground idol group Cham Jam, spending a fortune on CDs, merch, and fan meetings to support her fave. As fan events come and go, Eripiyo remains steadfast in catching a glimpse of Maina at every opportunity — and despite her shy personality, Maina's adoration and gratitude for Eripiyo's support is beginning to bridge the awkward gap between them as idol and fan.*
+
+- [Konohana Kitan](https://mangadex.org/title/95f7b86c-008c-4c6a-8c96-017577daef9d/konohana-kitan) [<sup>Tokyopop - New Release on May 28, 2024</sup>](https://tokyopop.com/products/9781427874085_konohana-kitan-volume-13?_pos=5&_sid=0e67720ba&_ss=r)
+
+    >*Yuzu and Satsuki are now working as maids at the Akitsushima Hotel, an inn for Western Great Spirits that they arrived at on their travels. Will they be able to pull off their duties despite being astonished by the inn's quirky owner and the other maids? Fox workers will wait on you hand and foot.*
 
 **Dark Horse Comics**
 
@@ -778,6 +786,18 @@ They've nicknamed her Usotsuki (Liar).*
 - [Inari's Marriage](https://mangadex.org/title/ca715fe2-cdb3-4a98-a3e5-92116490f067/inari-no-kekkon) <sup>Same Artist as</sup> [<sup>Kindred Spirits on the Roof</sup>](https://sevenseasentertainment.com/series/kindred-spirits-on-the-roof/) <sup> and </sup> <sup>Same Creator as</sup> [<sup>Isn't The Moon Beautiful?</sup>](https://mangadex.org/title/b9797c5b-642e-44d9-ac40-8b31b9ae110a/tsuki-ga-kirei-desu-ne)
 
     >*A romance about two foxes who went from childhood friends to newlyweds and their slow-paced rural life.*
+
+- [The White Maidens' Werewolf](https://mangadex.org/title/bd0f8a88-6846-4a6f-814b-4aa97c80f78f/the-white-maidens-werewolf) <sup>Same Artist as</sup> [<sup>Failed Princesses</sup>](https://sevenseasentertainment.com/series/failed-princesses/)
+
+    >*Hakurai Private Academy, a boarding school where young ladies receive a higher education in bridehood.
+    
+    >*Should the maidens lose their “purity” during the three year course, they are immediately expelled, losing any chance at their dreams of becoming brides. For the girls living at this school, it is a future they consider worse than death.*
+    
+    >*One day, something happens in the dormitory of the student council! In their midst is a two-faced wolf aiming for their purity - and it is up to them to pull back the mask!*
+
+- [I want to make Black-Knight fall in love with me!](https://mangadex.org/title/48de4f49-d7f9-4b0c-99f4-0929c2a9910b/gakeppuchi-reijou-wa-kurokishi-sama-o-horesasetai) <sup>Same Artist as</sup> [<sup>Superwomen in Love! Honey Trap and Rapid Rabbit</sup>](https://sevenseasentertainment.com/series/superwomen-in-love-honey-trap-and-rapid-rabbit/)
+
+    >*My family is in debt, and we don't have enough money for my sick sister's treatment... The troubled noble, Clarice, finds herself engaged in a political marriage with the most feared Black-Knight in the kingdom, Frost, known for "slaughtering beasts with his bare hands". In an attempt to secure the fortune, Clarice tries to seduce the "Black-Knight", but just as she does, she discovers "her" secret...*
 
 **Webtoons**
 
