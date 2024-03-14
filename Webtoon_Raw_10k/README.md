@@ -1,3 +1,6 @@
+--->10K, updated since Feb 2, 2023---
+*Source for this is my own follow. I am almost certainly missing some*
+
 Mistranslations
 
 Moon Bloom
@@ -220,7 +223,7 @@ Isadora
 
 Somebody to you
 
----
+---10.00 rating last I checked---
 
 Lanternlight
 
@@ -243,6 +246,8 @@ Lavender Lane
 Your favorite tattoo artist
 
 Daisy roots
+
+---10K, last updated before Feb 2, 2023---
 
 I'll make you fall for me
 
@@ -300,7 +305,7 @@ The cafe where we meet
 
 The devil knows your name
 
----
+---High Rating, >1K Follows---
 
 Iris and Eve
 
