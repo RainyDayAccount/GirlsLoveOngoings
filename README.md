@@ -2,160 +2,273 @@
 
 **Seven Seas**
 
-- [Kase-san and Yamada](https://mangadex.org/title/8d612ce8-2d6f-464b-8d0d-98c0352cc146/yamada-to-kase-san) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/kase-san-and/)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/0e9400b9-4b73-46bc-9a80-a92bd62bd1ed" alt="cover-image" width="200"/>
+
+- [Kase-san and Yamada](https://mangadex.org/title/8d612ce8-2d6f-464b-8d0d-98c0352cc146/yamada-to-kase-san) [<sup>Seven Seas - New Release on Apr 16, 2024</sup>](https://sevenseasentertainment.com/series/kase-san-and/)
 
     >*Yamada and Kase are now college freshmen living separately in Tokyo, and trying to sustain their loving relationship in an environment that is more open than what they're used to.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d128f7a7-20cb-4163-9f38-5fad43d782a2" alt="cover-image" width="200"/>
 
 - [Asumi-chan is Interested in Lesbian Brothels!](https://mangadex.org/title/af66b380-623e-4dfc-9fbb-8ca093b9d5a9/asumi-chan-is-interested-in-lesbian-brothels) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/asumi-chan-is-interested-in-lesbian-brothels/)
 
     >*Sweet but awkward college student Asumi never got over her childhood crush on her old friend Mai. Their first and only kiss couldn’t have gone worse. So when she learns that Mai may be working at a nearby brothel, she sets her sights on redemption! But there’s one catch: none of the women on the brothel’s website use full photos or real names. Thus begins a journey of self-discovery and sexual exploration as nervous Asumi sets out to find her one that got away.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/80967c24-897d-4388-82dc-75e0242ef92e" alt="cover-image" width="200"/>
+
 - [Citrus +](https://mangadex.org/title/4a30061a-bc66-4efd-9c4b-87daf8313381/citrus) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/citrusplus/)
 
     >*High schoolers (and stepsisters) Yuzu and Mei have gone public with their relationship! The two are happy to be dating out in the open, but friends and family keep trying to butt in with advice. Can Yuzu and Mei figure things out on their own? The return of the modern yuri classic!*
 
-- [I Favor the Villainess](https://mangadex.org/title/22d6d048-9f9f-4c3a-95c2-3b145f110e20/i-m-in-love-with-the-villainess) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/im-in-love-with-the-villainess-manga/)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/610b6c9f-d05c-4c0e-82ab-f9c27ca95535" alt="cover-image" width="200"/>
+
+- [I’m in Love with the Villainess](https://mangadex.org/title/22d6d048-9f9f-4c3a-95c2-3b145f110e20/i-m-in-love-with-the-villainess) [<sup>Seven Seas - New Release on May 7, 2024</sup>](https://sevenseasentertainment.com/series/im-in-love-with-the-villainess-manga/)
 
     >*Ordinary office worker Oohashi Rei wakes up in the body of the protagonist of her favourite otome game, Revolution. To her delight, the first person to greet her is also her favourite character, Claire François – the main antagonist of the story! Now, Rei is determined to romance Claire instead of the game’s male leads. But how will her villainous lady love react to this new courtship?!*
 
-- [Does It Count if Your First Time Is With an Android?](https://mangadex.org/title/143a116f-8e1d-4f9b-9794-9fb8fc8f56dc/android-wa-keiken-ninzuu-ni-hairimasu-ka) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/does-it-count-if-you-lose-your-virginity-to-an-android/)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3ea777db-64f6-4d6a-acd4-4acb347185e2" alt="cover-image" width="200"/>
+
+- [Does it Count if You Lose Your Virginity to an Android?](https://mangadex.org/title/143a116f-8e1d-4f9b-9794-9fb8fc8f56dc/android-wa-keiken-ninzuu-ni-hairimasu-ka) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/does-it-count-if-you-lose-your-virginity-to-an-android/)
 
     >*Beautiful, brainy Tsuda Akane is indispensable at the robotics manufacturer where she works, but her colleagues never saw her private side. At home, Akane’s a hot mess with an apartment that looks more like a landfill than a living space. When she drunkenly orders a maid to help her tidy up, the lady android who arrives is a horny hottie who’s about to give Akane more service than she bargained for!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d5289c86-90c8-4300-926e-4f332c5f085f" alt="cover-image" width="200"/>
 
 - [My Cute Little Kitten](https://mangadex.org/title/2e71d530-79b7-444d-89c9-29f9534d08d2/my-cute-little-kitten) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/my-cute-little-kitten/) <sup> - Same Creator as </sup> [<sup>Girl Friends and More</sup>](https://sevenseasentertainment.com/creator/milk-morinaga/)
 
     >*Rena has had a crush on her roommate Yuna since college, but Yuna has never noticed. One night, Yuna brings home a tiny kitten, even though their apartment doesn’t allow pets! Rena decides it would be better to let Yuna find her own place. But when Yuna says she wants to stay with Rena forever, Rena’s feelings are forced to the surface. Can Rena make Yuna understand what being together forever really means?*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/49ef7387-cabe-458b-9f2f-8e5b3df4d0fe" alt="cover-image" width="200"/>
+
 - [My Girlfriend's Not Here Today](https://mangadex.org/title/215e3ced-247e-4f34-8e1a-27b60ffef8ac/my-girlfriend-s-not-here-today) [<sup>Seven Seas. Releasing May 2024.</sup>](https://sevenseasentertainment.com/2023/09/20/seven-seas-licenses-my-girlfriends-not-here-today-yuri-girls-love-manga-series/) <sup> - Same Creator as </sup> [<sup>Transparent Light Blue</sup>](https://sevenseasentertainment.com/series/transparent-light-blue/)
 
     >*It's a secret that I'm dating the love of my life at school. There's no way I can tell anyone, especially when we're both girls. But I can't help my feelings from slipping out in the background. It's not the ideal way to be a couple, but I can put up with it because I really love her... But such loneliness has also nurtured dark thoughts in my head.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/807aec75-6a42-4f02-8347-e8ee2f77020a" alt="cover-image" width="200"/>
 
 - [School Zone Girls](https://mangadex.org/title/5227abca-3d3d-4456-92ff-e67f6e8eb0ee/school-zone) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/school-zone-girls/)<sup> - Hiatus</sup>
 
     >*Yokoe Rei and Sugiura Kei have always been together ever since middle school. As these two go through their days, drama kicks off around every corner of their daily life. Watch these miserable high school girls frolic about in their miserable school life. A devilishly priceless yuri comedy!*
 
-- [There’s No Freaking Way I’ll be Your Lover! Unless…](https://mangadex.org/title/e160a8e3-304f-4dca-838b-ee1821c490d8/watashi-ga-koibito-ni-nareru-wake-naijan-muri-muri) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/theres-no-freaking-way-ill-be-your-lover-unless-manga/)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/36b1071a-7f94-4c62-8094-c800127aaa14" alt="cover-image" width="200"/>
+
+- [There’s No Freaking Way I’ll be Your Lover! Unless…](https://mangadex.org/title/e160a8e3-304f-4dca-838b-ee1821c490d8/watashi-ga-koibito-ni-nareru-wake-naijan-muri-muri) [<sup>Seven Seas - New Release on Jun 18, 2024</sup>](https://sevenseasentertainment.com/series/theres-no-freaking-way-ill-be-your-lover-unless-manga/)
 
     >*After a lonely three years as a junior high outcast, nerdy Amaori Renako vows to reinvent herself as a cool kid and attain her ideal high school life. She soon finds herself suffocating under the pressure to keep up appearances, but an encounter with school superstar Oduka Mai grants her an unexpected confidante and best friend. That is, until Mai suddenly confesses her newfound love for Renako and “friendship” flies out the window! Friends or lovers—the battle for the future of their relationship begins!*
 
-- [A White Rose in Bloom](https://mangadex.org/title/48e41a5a-ad7d-4f1f-bd93-776b0db79996/a-white-rose-in-bloom?tab=chapters) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/a-white-rose-in-bloom/)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/fbe922e3-af56-4186-990d-b2539cbed4e3" alt="cover-image" width="200"/>
+
+- [A White Rose in Bloom](https://mangadex.org/title/48e41a5a-ad7d-4f1f-bd93-776b0db79996/a-white-rose-in-bloom?tab=chapters) [<sup>Seven Seas - New Release on Aug 20, 2024</sup>](https://sevenseasentertainment.com/series/a-white-rose-in-bloom/)
 
     >*Ruby is a student at an elite European boarding school. Things are going pretty well for her until she finds out that she won’t be able to go home at Christmas. Instead, she’ll be stuck at school with only one other student—the aloof and beautiful Steph—for company. As Ruby tries to understand Steph, she becomes more and more attracted to the other girl. But can she break through Steph’s icy exterior?*
 
-- [Even Though We're Adults](https://mangadex.org/title/4cd749d5-0576-4978-96e8-1dca5f46a592/even-though-we-re-adults) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/even-though-were-adults/) <sup> - Same Creator as </sup> [<sup>Sweet Blue Flowers</sup>](https://www.viz.com/sweet-blue-flowers)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/12ac38f6-e8eb-4a66-a3a2-eedb1e5fd210" alt="cover-image" width="200"/>
+
+- [Even Though We're Adults](https://mangadex.org/title/4cd749d5-0576-4978-96e8-1dca5f46a592/even-though-we-re-adults) [<sup>Seven Seas - New Release on Jun 6, 2024</sup>](https://sevenseasentertainment.com/series/even-though-were-adults/) <sup> - Same Creator as </sup> [<sup>Sweet Blue Flowers</sup>](https://www.viz.com/sweet-blue-flowers)
 
     >*Ayano, an elementary school teacher in her thirties, stops by a bar one day and meets another woman named Akari. Sparks fly as the two chat, and before the night is over, Ayano even goes in for a kiss. Akari is intrigued but confused…especially when she discovers that Ayano has a husband! Both Ayano and Akari are about to find out that love doesn’t get any easier, even as you grow older.*
 
-- [I’m Not a Succubus!](https://mangadex.org/title/7a0f7bd3-670f-4fa7-947b-304c537f1aa5/succubus-ja-nai-mon) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/im-not-a-succubus/)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/202dce2a-bd15-434b-9e51-ce8b7dee9d85" alt="cover-image" width="200"/>
+
+- [I’m Not a Succubus!](https://mangadex.org/title/7a0f7bd3-670f-4fa7-947b-304c537f1aa5/succubus-ja-nai-mon) [<sup>Seven Seas - New Release on Jul 9, 2024</sup>](https://sevenseasentertainment.com/series/im-not-a-succubus/)
 
     >*Adjusting to a new school is always rough, and that goes double for Sakura, a shy girl attending a monster girl academy! Her new classmates include a kiss-curious harpy, a sarcastic lamia, a cyclops with an eye for Sakura, and a plain-spoken centaur. Eager to blend in, Sakura declares herself a succubus! But can she keep up the ruse while fending off the touchy hands, claws and scaled coils of her new friends? It’s going to be a long, hot school year!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/9fbff957-95b0-4d18-9b4b-a13def6327bc" alt="cover-image" width="200"/>
 
 - [Chasing Spica](https://mangadex.org/title/ca174012-a49a-4f20-a6ba-cb9543f8cc1b/spica-wo-tsukamaete) [<sup>Seven Seas - Releasing Jun 18, 2024</sup>](https://sevenseasentertainment.com/series/chasing-spica/)
 
     >*Nekozuka Serina isn’t satisfied. Even though she’s fashionable, popular, and smart to boot, she’s always found herself gnawing at the heels of the cold and condescending public morals officer Tachibana Reiko. With them now in their third year and a scholarship on the line, Serina must finally defeat Reiko and get the highest exam results in their grade. It’s easier said than done! That is until Serina snaps a photo of Reiko visiting a love hotel late at night with an unknown woman and hatches a plan…*
 
-- [Becoming a Princess Knight and Working at a Yuri Brothel](https://mangadex.org/title/0531e50a-78b2-4e79-8e8d-c0796493dcd2/kukkorose-no-himekishi-to-nari-yuri-shoukan-de-hataraku-koto-ni-narimashita) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/becoming-a-princess-knight-and-working-at-a-yuri-brothel/)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/02e347a5-95fd-4f98-bc01-7ac942c9676d" alt="cover-image" width="200"/>
+
+- [Becoming a Princess Knight and Working at a Yuri Brothel](https://mangadex.org/title/0531e50a-78b2-4e79-8e8d-c0796493dcd2/kukkorose-no-himekishi-to-nari-yuri-shoukan-de-hataraku-koto-ni-narimashita) [<sup>Seven Seas - New Release on Jun 25, 2024</sup>](https://sevenseasentertainment.com/series/becoming-a-princess-knight-and-working-at-a-yuri-brothel/)
 
     >*Talk about your extreme career changes! Naruse Soushi, a single, middle-aged man and private secretary to a politician, lies on the verge of death. Meanwhile, in another world, the princess knight Reina is about to lose her life. The princess’s soul is removed—and Naruse is summoned into the empty husk of her body! Reincarnated as a beautiful young woman, this man is doomed to the fate of…working at a yuri brothel! Does he have what it takes to succeed?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/14f07603-da35-49b6-983d-6a3224bc4ff4" alt="cover-image" width="200"/>
 
 - [How Do I Turn My Best Friend Into My Girlfriend?](https://mangadex.org/title/4de70c96-566b-4cdb-88f4-6c7fd5184991/doushitara-osananajimi-no-kanojo-ni-naremasu-ka) [<sup>Seven Seas - Releasing Mar 19, 2024</sup>](https://sevenseasentertainment.com/series/how-do-i-turn-my-best-friend-into-my-girlfriend/) <sup> - Same Creator as </sup> [<sup>Monologue Woven For You</sup>](https://sevenseasentertainment.com/series/monologue-woven-for-you/)
 
     >*Minami and Yuzu have been besties since…well, forever! Or at least that’s what Minami thought. But when some rando confesses to Yuzu, Minami realizes that her feelings might not be what you’d typically call “friendship” anymore. It doesn’t take long for Minami to realize she wants to change their relationship status, but will she be able to muster the courage to confess? Or will she simply be happy being by Yuzu’s side?*
 
-- [Miss Kobayashi’s Dragon Maid](https://mangadex.org/title/67b35ba4-9c53-4957-91e7-4f7884e4b412/kobayashi-san-chi-no-maid-dragon) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/miss-kobayashis-dragon-maid/)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/31a6fe6a-301d-4ab8-a264-4131c769e5ae" alt="cover-image" width="200"/>
+
+- [Miss Kobayashi’s Dragon Maid](https://mangadex.org/title/67b35ba4-9c53-4957-91e7-4f7884e4b412/kobayashi-san-chi-no-maid-dragon) [<sup>Seven Seas - New Release on Mar 26, 2024</sup>](https://sevenseasentertainment.com/series/miss-kobayashis-dragon-maid/)
 
     >*Miss Kobayashi is your average office worker who lives a boring life, alone in her small apartment–until she saves the life of a female dragon in distress. The dragon, named Tohru, has the ability to magically transform into an adorable human girl (albeit with horns and a long tail!), who will do anything to pay off her debt of gratitude, whether Miss Kobayashi likes it or not. With a very persistent and amorous dragon as a roommate, nothing comes easy, and Miss Kobayashi’s normal life is about to go off the deep end!*
 
-- [semelparous](https://mangadex.org/title/0bf0c5f6-349f-4d5e-b691-bf2ada5c3be7/semelparous) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/semelparous/)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c794fb98-c75b-4786-92f0-26151e1d9da9" alt="cover-image" width="200"/>
+
+- [semelparous](https://mangadex.org/title/0bf0c5f6-349f-4d5e-b691-bf2ada5c3be7/semelparous) [<sup>Seven Seas - New Release on Feb 11, 2025</sup>](https://sevenseasentertainment.com/series/semelparous/)
 
     >*Ever since they were young girls, best friends Yorino and Haruka have been training to join the ranks of the Bulwarks—soldiers who defend humanity from the kaiju trying to break through. But when Haruka is killed during a routine drill, Yorino’s world is shattered. Will she ever be able to open her heart to another? Strap in for intense, apocalyptic romance!*
 
-- [SHWD](https://mangadex.org/title/90c15eec-393e-4099-a38c-0851f626cb85/shwd) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/shwd/)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4893af1d-3ef2-491b-af78-05feb4a250e4" alt="cover-image" width="200"/>
+
+- [SHWD](https://mangadex.org/title/90c15eec-393e-4099-a38c-0851f626cb85/shwd) [<sup>Seven Seas - New Release on Oct 1, 2024</sup>](https://sevenseasentertainment.com/series/shwd/)
 
     >*Special Hazardous Waste Disposal (or SHWD) has a mission to destroy mysterious biological weapons left behind after the last war. Though SHWD mostly hires men, their newest recruit, Koga, a buff female operative, is assigned to Sawada, the only other woman in the Tokyo branch. Before long, Koga finds herself falling for Sawada, whose powerful psyche compliments Koga’s big muscles. Together, the unlikely duo must confront monsters beyond their wildest nightmares. Office romance meets buddy cops meets yuri horror!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ed176334-1620-4ffc-91b5-bc27fa40f38a" alt="cover-image" width="200"/>
 
-- [The Demon Girl Next Door](https://mangadex.org/title/d4ff7502-b5d4-4fd2-845f-c8754b14dd8d/machikado-mazoku) [<sup>Seven Seas - Not Listed as GL</sup>](https://sevenseasentertainment.com/series/the-demon-girl-next-door/)
+- [The Demon Girl Next Door](https://mangadex.org/title/d4ff7502-b5d4-4fd2-845f-c8754b14dd8d/machikado-mazoku) [<sup>Seven Seas - New Release on Jan 28, 2024 - Not Listed as GL</sup>](https://sevenseasentertainment.com/series/the-demon-girl-next-door/)
 
     >*Awakening her dormant abilities as a demon one day, Yoshida Yuko aka Shadow Mistress Yuko, is entrusted with the mission to defeat the Light clan's priestess, a magical girl, by her ancestor Lilith. Yuko meets magical girl Chiyoda Momo through her classmate Sata Anri, and challenges her to a duel, but loses quickly due to her lack of strength.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/309b84f1-7980-466e-9353-37b7b7319f6f" alt="cover-image" width="200"/>
 
-- [ROLL OVER AND DIE: I Will Fight for an Ordinary Life with My Love and Cursed Sword!](https://mangadex.org/title/25e145f0-a74f-48b6-9d89-b715e28f6417/roll-over-and-die-i-will-fight-for-an-ordinary-life-with-my-love-and-cursed-sword) [<sup>Seven Seas - Not Listed as GL</sup>](https://sevenseasentertainment.com/series/roll-over-and-die-i-will-fight-for-an-ordinary-life-with-my-love-and-cursed-sword-manga/)
+- [ROLL OVER AND DIE: I Will Fight for an Ordinary Life with My Love and Cursed Sword!](https://mangadex.org/title/25e145f0-a74f-48b6-9d89-b715e28f6417/roll-over-and-die-i-will-fight-for-an-ordinary-life-with-my-love-and-cursed-sword) [<sup>Seven Seas - New Release on Apr 30, 2024 - Not Listed as GL</sup>](https://sevenseasentertainment.com/series/roll-over-and-die-i-will-fight-for-an-ordinary-life-with-my-love-and-cursed-sword-manga/)
 
     >*To vanquish the increasingly powerful Demon Lord, divine revelation ordained a party of heroes, each blessed with a unique power. That spelled trouble for Flum Apricot, a total weakling of a girl who has no idea what her power of “Reversal” even does. Betrayed and left behind with a wretched slave trader who enjoys nothing more than seeing his merchandise fight for their lives, Flum thinks all hope is lost—until she gets her hand on a massive, cursed sword. Finally, after so many years, she understands the nature of her power, and both she and her new companion Milkit are about to experience a huge “Reversal” of their fate!*
 
-- [Booty Royale: Never Go Down Without a Fight!](https://mangadex.org/title/b6116025-1a94-4f32-9c9b-aa341f3950f0/booty-royale-never-go-down-without-a-fight) [<sup>Seven Seas - Not Listed as GL</sup>](https://sevenseasentertainment.com/series/booty-royale-never-go-down-without-a-fight/)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/874cb12b-1676-4da3-b6f5-14e6835f8a3d" alt="cover-image" width="200"/>
+
+- [Booty Royale: Never Go Down Without a Fight!](https://mangadex.org/title/b6116025-1a94-4f32-9c9b-aa341f3950f0/booty-royale-never-go-down-without-a-fight) [<sup>Seven Seas - New Release on Jul 02, 2024 - Not Listed as GL</sup>](https://sevenseasentertainment.com/series/booty-royale-never-go-down-without-a-fight/)
 
     >*Eighteen-year-old karate expert Misora Haebaru moves to Tokyo to pursue her dream of becoming a famous singer. Unfortunately, her sleazy handlers trick her into the adult entertainment industry instead. Her only way out is to survive a martial arts tournament where she must fight her way through one hundred lustful male opponents. If she loses, she will pay the ultimate erotic price!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/edc35fc5-a938-432f-9a2d-a5d1c04cad06" alt="cover-image" width="200"/>
 
 - [Young Ladies Don’t Play Fighting Games](https://mangadex.org/title/90ea8757-c0d8-42f1-b4a8-4594b5065eb4/ggwp-young-ladies-don-t-play-fighting-games) [<sup>Seven Seas - Not Listed as GL</sup>](https://sevenseasentertainment.com/series/young-ladies-dont-play-fighting-games/)
 
     >*Kuromi Girls’ Academy is a refined, elegant school that expects the very best in deportment from its young ladies. Aya got into this peerless rich-girls’ institution on a scholarship, and hopes to grow as lovely as her fellow student and idol Shirayui. But Shirayui hides a terrible secret: she’s a trash-talking, combo-chaining, newbie-stomping, ruthless hardcore gamer! Could a mutual indulgence in no-holds-barred video game combat grow into a deeper rapport between these two girls?*
 
+---
+<img src="https://www.sleeplessdomain.com/comics/1678313623-0.jpg" alt="cover-image" width="200"/>
+
 - [Sleepless Domain](https://www.sleeplessdomain.com/comic/chapter-1-cover) [<sup>Seven Seas - Hiveworks</sup>](https://sevenseasentertainment.com/series/sleepless-domain/)
 
     >*Team Alchemical: A group of Magical Girls who defend their city from fiendish monsters that prowl by night. The adoring idol culture surrounding these girls, along with the genuine life-or-death struggles they face each night, forces them to grow up quickly and under severe pressure. When tragedy strikes, the team’s least confident supporting member, Undine, must step up and learn to fight her own battles.*
 
-- [Amongst Us](https://amongstuscomic.com/#volume=1&chapter=1&page=1&lang=en) [<sup>Seven Seas - Hiveworks</sup>](https://sevenseasentertainment.com/series/amongst-us/)
+---
+<img src="https://ksr-ugc.imgix.net/assets/043/847/689/7eda75e54caa883245c5a13516e5b25d_original.jpg?ixlib=rb-4.1.0&w=680&fit=max&v=1706713333&gif-q=50&q=92&s=db98d09240934bfdbdfcf8c8ef76416d" alt="cover-image" width="200"/>
+
+- [Amongst Us](https://amongstuscomic.com/#volume=1&chapter=1&page=1&lang=en) [<sup>Seven Seas - Hiveworks - New Release around "End of Summer 2024"</sup>](https://sevenseasentertainment.com/series/amongst-us/)
 
     >*Veloce loves Blackbird. Blackbird loves Veloce. These two young women may have strange chemistry and seemingly nothing in common, but somehow, their offbeat relationship works. Join them for a dance through the modern city they call home as they satisfy Blackbird’s sweet tooth and indulge Veloce in her attempts to understand fashion. In an alternate universe, this sorceress and assassin share a very different reality…but in this one, they’re a modern couple who have built a life together–and they intend to enjoy it.*
 
+---
 
 **Yen Press**
 
-- [Adachi and Shimamura](https://mangadex.org/title/a1620de1-6eb6-4948-b228-b232f910155a/adachi-to-shimamura) [<sup>Yen Press</sup>](https://yenpress.com/series/adachi-and-shimamura-manga)
+---
+<img src="https://images.yenpress.com/imgs/9781975351762.jpg?w=408&h=612&type=books&s=64635f9163c1f5a8cecb333f995c5030" alt="cover-image" width="200"/>
+
+- [Adachi and Shimamura](https://mangadex.org/title/a1620de1-6eb6-4948-b228-b232f910155a/adachi-to-shimamura) [<sup>Yen Press - New Release on Jun 18, 2024</sup>](https://yenpress.com/series/adachi-and-shimamura-manga)
 
     >*The second floor of the gym. That’s our spot. Class is in session right now, but they don’t hold class in a place like this. This is where Shimamura and I became friends. What is this feeling? Yesterday, I dreamed of kissing her. I’m not like that, and I’m sure Shimamura isn’t either. But…when Shimamura thinks of the word “friend”, I want to be the first thing that comes to her mind. That’s all.*
 
-- [Assorted Entanglements](https://mangadex.org/title/5412816d-a3c9-4bab-956b-b08d1f8f41f6/fuzoroi-no-renri) [<sup>Yen Press</sup>](https://yenpress.com/series/assorted-entanglements) <sup> - Same Creator as </sup> [<sup>Now Loading…!</sup>](https://sevenseasentertainment.com/series/now-loading/)
+---
+<img src="https://images.yenpress.com/imgs/9781975348922.jpg?w=408&h=612&type=books&s=6a721f7d89c71c819e29fb205705e445" alt="cover-image" width="200"/>
+
+- [Assorted Entanglements](https://mangadex.org/title/5412816d-a3c9-4bab-956b-b08d1f8f41f6/fuzoroi-no-renri) [<sup>Yen Press - New Release on Jun 18, 2024</sup>](https://yenpress.com/series/assorted-entanglements) <sup> - Same Creator as </sup> [<sup>Now Loading…!</sup>](https://sevenseasentertainment.com/series/now-loading/)
 
     >*Discover a variety of stories about women's love, starting with Iori: twenty-eight-year-old office worker who sets out to drown her love and job sorrows in booze. When she wakes up next to someone, she can’t believe her partner was Minami, a worker at the bar who doesn’t want to forget what they have!*
 
-- [Cocoon Entwined](https://mangadex.org/title/bf7fbf85-00ed-4cda-9f8c-149f3113b096/cocoon-entwined) [<sup>Yen Press</sup>](https://yenpress.com/series/cocoon-entwined)
+---
+<img src="https://images.yenpress.com/imgs/9781975388072.jpg?w=408&h=612&type=books&s=586eb01f0ecb29add49489ca93d4490f" alt="cover-image" width="200"/>
+
+- [Cocoon Entwined](https://mangadex.org/title/bf7fbf85-00ed-4cda-9f8c-149f3113b096/cocoon-entwined) [<sup>Yen Press - New Release on May 21, 2024</sup>](https://yenpress.com/series/cocoon-entwined)
 
     >*Clad in school uniforms practically breathing with life are the girls of Hoshimiya Girls’ Academy, their hair long and luxurious. When a puzzling incident involving the ever-mysterious and elusive student Hoshimiya-san disturbs their peaceful paradise, the hidden feelings these innocent schoolgirls possess begin to entwine and overflow in unimaginable ways…*
+---
+<img src="https://images.yenpress.com/imgs/9781975387891.jpg?w=408&h=612&type=books&s=0871adfb1f98e9ac6cd25af7ec8307e8" alt="cover-image" width="200"/>
 
 - [I Don't Know Which is Love](https://mangadex.org/title/79ca6344-5468-4fa8-8eb7-859728b27156/i-don-t-know-which-is-love) [<sup>Yen Press</sup>](https://yenpress.com/series/i-don-t-know-which-is-love) <sup> - Same Creator as </sup> [<sup>Cheerful Amnesia</sup>](https://yenpress.com/series/cheerful-amnesia)
 
     >*In her final days of high school, Mei Soraike tried to confess her love to her best friend only to have her hopes crushed. A little heartbreak is fine, though—because she’ll absolutely, definitely, undoubtedly get a girlfriend in college! And as soon as Mei sets her resolve, potential paramours start aggressively sidling up to her one after another...! How on earth is she supposed to settle on someone when she’s falling head over heels for every cutie she meets?*
 
-- [Monthly in the Garden with My Landlord](https://mangadex.org/title/bc998000-171b-4fbe-9dd8-570e56c0845d/maitsuki-niwatsuki-ooyatsuki) [<sup>Yen Press</sup>](https://yenpress.com/series/monthly-in-the-garden-with-my-landlord)
+---
+<img src="https://images.yenpress.com/imgs/9781975372231.jpg?w=408&h=612&type=books&s=1665a6a05324ee31008b6b5161ba4cd1" alt="cover-image" width="200"/>
+
+- [Monthly in the Garden with My Landlord](https://mangadex.org/title/bc998000-171b-4fbe-9dd8-570e56c0845d/maitsuki-niwatsuki-ooyatsuki) [<sup>Yen Press - New Release on Aug 20, 2024</sup>](https://yenpress.com/series/monthly-in-the-garden-with-my-landlord)
 
     >*Asako Suga, who is heartbroken after breaking up with her partner, decides to move to change her mind. The property she is interested in is a one-story house a little far from the city center. Asako fell in love with the house, which was recently built and has a garden, but what is worrisome is the landlord there. She's young and cute, and has a certain secret!*
+
+---
+<img src="https://images.yenpress.com/imgs/9781975379148.jpg?w=408&h=612&type=books&s=03a20715d10b3f6b761ab1d829efb006" alt="cover-image" width="200"/>
 
 - [Murcielago](https://mangadex.org/title/cd355881-6f89-4917-9a57-fc9f75377293/murcielago) [<sup>Yen Press</sup>](https://yenpress.com/series/murcielago)
 
     >*Mass murderers may not have much by way of careeer skills, but Kuroko Koumori seems to have landed her dream job as a hitwoman for the Tokyo police! A license to kill other killers? That's some serious job satisfaction, right there!*
 
-- [She Loves to Cook, She Loves to Eat](https://mangadex.org/title/a9a3d2c8-fb68-4067-948b-7602f1bb060d/tsukuritai-onna-to-tabetai-onna) [<sup>Yen Press</sup>](https://yenpress.com/series/she-loves-to-cook-and-she-loves-to-eat)
+---
+<img src="https://images.yenpress.com/imgs/9781975388911.jpg?w=408&h=612&type=books&s=a2500b9d1cd35610c921e06b32a0a3fc" alt="cover-image" width="200"/>
+
+- [She Loves to Cook, She Loves to Eat](https://mangadex.org/title/a9a3d2c8-fb68-4067-948b-7602f1bb060d/tsukuritai-onna-to-tabetai-onna) [<sup>Yen Press - New Release on May 21, 2024</sup>](https://yenpress.com/series/she-loves-to-cook-and-she-loves-to-eat)
 
     >*Cooking is how Nomoto de-stresses, but one day, she finds herself making way more than she can eat by herself. And so, she invites her neighbor Kasuga, who also lives alone. What will come out of this impromptu dinner invitation...?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3863a200-b3ff-47e2-87d8-82e2f5f3ec7a" alt="cover-image" width="200"/>
 
 - [Sister and Giant: A Young Lady Is Reborn in Another World](https://mangadex.org/title/21b848be-1bfe-4f97-b92c-62d319d8a093/onee-sama-to-watashi-ojou-sama-ga-isekai-tensei) [<sup>Yen Press - Releasing Jun 18, 2024</sup>](https://yenpress.com/series/sister-and-giant-a-young-lady-is-reborn-in-another-world?format=Digital)
 
     >*Reincarnated in another world, Hinako declines the abilities offered to her by the Goddess, and instead takes a vow of sisterhood with the giant Eiris, becoming known herself as “the smallest giant.” The two may be different species, born on different worlds, but they share one goal—searching for the precious siblings they lost. But they must be cautious, for just as their bonds and strength win them fame, they also bring attention from the knights of the church…*
 
+---
+<img src="https://images.yenpress.com/imgs/9781975375492.jpg?w=408&h=612&type=books&s=b1f98ddfa30525aeb6726da8b07ad780" alt="cover-image" width="200"/>
+
 - [The Executioner and Her Way of Life](https://mangadex.org/title/bed89b51-15d3-44a5-b27a-a13a2f9a6dd8/shokei-shoujo-no-ikiru-michi) [<sup>Yen Press</sup>](https://yenpress.com/series/the-executioner-and-her-way-of-life-manga)
 
     >*The Lost Ones are strangers from another world, hailing from a place no one has ever heard of called “Japan.” These wanderers have been associated with catastrophes since many years ago and the solemn duty of exterminating them without remorse falls to Menou, a young Executioner. But when her mission is complicated by a Japanese girl named Akari who refuses to die, Menou embarks on a peculiar journey to find something that can slay even an immortal who insists on traveling with her would-be-killer!*
 
-- [The Magical Revolution of the Reincarnated Princess and the Genius Young Lady](https://mangadex.org/title/46596dea-95de-40e8-b2b8-4e63aa6acd1a/the-magical-revolution-of-the-reincarnated-princess-and-the-genius-young-lady) [<sup>Yen Press</sup>](https://yenpress.com/series/the-magical-revolution-of-the-reincarnated-princess-and-the-genius-young-lady-manga)
+---
+<img src="https://images.yenpress.com/imgs/9781975380359.jpg?w=408&h=612&type=books&s=ee0b2078471ae6fd47563ad8466ded9c" alt="cover-image" width="200"/>
+
+- [The Magical Revolution of the Reincarnated Princess and the Genius Young Lady](https://mangadex.org/title/46596dea-95de-40e8-b2b8-4e63aa6acd1a/the-magical-revolution-of-the-reincarnated-princess-and-the-genius-young-lady) [<sup>Yen Press - New Release on Mar 19, 2024</sup>](https://yenpress.com/series/the-magical-revolution-of-the-reincarnated-princess-and-the-genius-young-lady-manga)
 
     >*Princess Anisphia may not be able to use magic, but she didn’t let that stop her from developing “magicology,” a unique theory based on memories from her past life. While testing out her new flying broom, she happens across Euphyllia, a magical genius, having her engagement unjustly and publicly broken off. Seeing the tears in Euphyllia’s eyes, Anisphia takes the obvious course of action—kidnapping the girl for herself!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/0e17d5c2-d543-4f73-a5a1-64f4e7eedc0f" alt="cover-image" width="200"/>
 
 - [This Monster Wants to Eat Me](https://mangadex.org/title/48863213-086b-4dfb-8103-8e279b8e5f5d/watashi-o-tabetai-hitodenashi) [<sup>Yen Press - Releasing Jun 18, 2024</sup>](https://yenpress.com/series/this-monster-wants-to-eat-me?format=Digital)
 
     >*“I’ve come to eat you.” So softly utters the mermaid Shiori, as she emerges from the sea and takes high school girl Hinako by the hand. Hinako lives alone in a town by the sea, and possesses an unusually delicious body that is irresistible to nearby monsters. To ensure that she matures to the best condition, Shiori seeks to protect Hinako—all so that someday, she can devour every piece of her. What will become of Hinako’s feelings as this looming unjust death closes in on her...?*
 
-- [I've Been Killing Slimes for 300 Years and Maxed Out My Level](https://mangadex.org/title/14610263-264a-4c22-8928-e4183e7d4719/slime-taoshite-300-nen-shiranai-uchi-ni-level-max-ni-nattemashita) [<sup>Yen Press - Not Listed as GL</sup>](https://yenpress.com/series/i-ve-been-killing-slimes-for-300-years-and-maxed-out-my-level-manga)
+---
+<img src="https://images.yenpress.com/imgs/9781975375416.jpg?w=408&h=612&type=books&s=df35bc6c95e49366c6a71eb219e40c9e" alt="cover-image" width="200"/>
+
+- [I've Been Killing Slimes for 300 Years and Maxed Out My Level](https://mangadex.org/title/14610263-264a-4c22-8928-e4183e7d4719/slime-taoshite-300-nen-shiranai-uchi-ni-level-max-ni-nattemashita) [<sup>Yen Press - Jul 20, 2024 - Not Listed as GL</sup>](https://yenpress.com/series/i-ve-been-killing-slimes-for-300-years-and-maxed-out-my-level-manga)
 
     >*From corporate slave to a laid-back witch—reincarnation’s a pretty sweet deal! Or so Azusa believes until her maxed-out status comes to light...In this new manga adaptation of the original novel, enjoy the hilarity that ensues as Azusa attempts to evade all forms of adventure and regain her lazy life!*
 
+---
+
 **Kodansha**
+
+---
+
+<img src="https://mangadex.org/covers/020d602f-c43a-4b9f-a4f8-3ac8ddfd99c3/c97e0a32-4de1-49b5-8f2a-3dd68531eada.jpg" alt="cover-image" width="200"/>
 
 - [Please Spoil Me, Hinamori-san!](https://mangadex.org/title/020d602f-c43a-4b9f-a4f8-3ac8ddfd99c3/amaesasete-hinamori-san) [<sup>Kodansha - Releasing Sep 17, 2024</sup>](https://www.yurianimenews.com/yurimanga/kodansha-licenses-spoil-me-plzzz-hinamori-san-yuri-manga-series)
 
     >*Ichigo Hinamori has always looked up to her senpai Yaya Suou for her poise, impeccable grades, and kind heart. But that all changes the day Ichigo stumbles upon Yaya wailing like a little kid in the nurse’s office. It turns out everyone’s favorite honor student is desperate to get off her pedestal and be spoiled rotten instead—and now she’s hoping Ichigo will be the one to indulge her!*
+
 
 - [Whispering You a Love Song](https://mangadex.org/title/0e8fac17-979e-4e37-8f45-2c334b25d6dd/whisper-me-a-love-song) [<sup>Kodansha</sup>](https://kodansha.us/series/whisper-me-a-love-song)
 
