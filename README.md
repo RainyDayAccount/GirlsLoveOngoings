@@ -269,49 +269,77 @@
 
     >*Ichigo Hinamori has always looked up to her senpai Yaya Suou for her poise, impeccable grades, and kind heart. But that all changes the day Ichigo stumbles upon Yaya wailing like a little kid in the nurse’s office. It turns out everyone’s favorite honor student is desperate to get off her pedestal and be spoiled rotten instead—and now she’s hoping Ichigo will be the one to indulge her!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c5ce3de2-af05-4dbd-ba69-86c82cb2a08e" alt="cover-image" width="200"/>
 
-- [Whispering You a Love Song](https://mangadex.org/title/0e8fac17-979e-4e37-8f45-2c334b25d6dd/whisper-me-a-love-song) [<sup>Kodansha</sup>](https://kodansha.us/series/whisper-me-a-love-song)
+- [Whispering You a Love Song](https://mangadex.org/title/0e8fac17-979e-4e37-8f45-2c334b25d6dd/whisper-me-a-love-song) [<sup>Kodansha - New Release on Mar 26, 2024</sup>](https://kodansha.us/series/whisper-me-a-love-song)
 
     >*An adorable new yuri manga for fans of Kase-san and Yamada and Bloom Into You. One day, high school girl Himari sees a girl, Yori, sing in a band, and it awakens feelings she doesn’t understand… but Yori does!*
 
-- [Yuri is My Job!](https://mangadex.org/title/12f92897-ad75-4c54-baed-b2834a9d8082/watashi-no-yuri-wa-oshigoto-desu) [<sup>Kodansha</sup>](https://kodansha.us/series/yuri-is-my-job/)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a9227e06-1ea2-4688-9cd5-13849fa8368e" alt="cover-image" width="200"/>
+
+- [Yuri is My Job!](https://mangadex.org/title/12f92897-ad75-4c54-baed-b2834a9d8082/watashi-no-yuri-wa-oshigoto-desu) [<sup>Kodansha - New Release on Apr 23, 2024</sup>](https://kodansha.us/series/yuri-is-my-job/)
 
     >*Hime is a picture-perfect high school princess—she’s admired by all and never trips up! So when she accidentally injures a café manager named Mai, she’s willing to cover some shifts to keep her facade intact. To Hime’s surprise, the café is themed after a private school where the all-female staff always puts on their best act for their loyal customers. However, under the guidance of the most graceful girl there, Hime can’t help but blush and blunder! Beneath all the frills and laughter, Hime feels tension brewing as she finds out more about her new job and her budding feelings…*
 
-- [The Moon on a Rainy Night](https://mangadex.org/title/c8a0426d-539b-4f6a-9537-fbccf4962529/the-moon-on-a-rainy-night) [<sup>Kodansha</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/) <sup> - Same Creator as </sup> [<sup>Living With My Brother's Wife</sup>](https://global.manga-up.com/manga/33)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/2b95308f-a5bd-45e5-9feb-b1edc6eabb0d" alt="cover-image" width="200"/>
+
+- [The Moon on a Rainy Night](https://mangadex.org/title/c8a0426d-539b-4f6a-9537-fbccf4962529/the-moon-on-a-rainy-night) [<sup>Kodansha - New Release on Mar 26, 2024</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/) <sup> - Same Creator as </sup> [<sup>Living With My Brother's Wife</sup>](https://global.manga-up.com/manga/33)
 
     >*One rainy night, Saki is rushing to a piano lesson when she crashes into a beautiful, long-haired girl, dropping her sheet music in the process. Saki stutters an apology, but the girl simply hands back her sheet music and leaves without a word. Saki begins her first day of high school the following morning, only to find the stranger from the night before sitting at the desk next to hers. She learns that the girl’s name is Kanon and that she is not quite completely deaf, but very hard of hearing. Though Kanon needs to be close to people to read their lips, she tends to push people away with her icy demeanor. Through one kind gesture, Saki slowly begins breaking down the walls around Kanon, even as she feels something new blossoming within her.*
 
+---
+
 **J-Novel**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/81fb014a-ca2a-4a83-88e0-6161c3e310e5" alt="cover-image" width="200"/>
 
 - [Did I Seriously Just Get Reincarnated as My Gag Character?!](https://mangadex.org/title/fd41659a-e4ce-458f-b087-8032b7a5fab9/netachara-tensei-toka-anmarida) [<sup>J-Novel</sup>](https://j-novel.club/series/did-i-seriously-just-get-reincarnated-as-my-gag-character-manga)
 
     >*Toru Aikawa is a university student who spends his days going through the motions of attending school and working at a local convenience store. The only time he really feels alive is when he’s playing the massive multiplayer VR game Real World Online. One day, he has a stroke of luck: he’s hit by a runaway bus and reincarnated as his game character. But something’s gone wrong... Instead of the invincible warrior he mains, he’s in the body of Nacht Schatten, the alluring dragon princess he made as a joke! Nacht’s build is anything but optimized—she would never survive in the cutthroat world of an isekai story! And more to the point, she’s a girl! But perhaps things aren’t as bad as they seem. Perhaps Nacht Schatten is more capable than she appears.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/41e5c080-bc73-4fc6-968e-c670d5aaf971" alt="cover-image" width="200"/>
 
 - [Gushing Over Magical Girls](https://mangadex.org/title/feff4eaf-01df-4a05-83f4-68bb5cdf4fad/gushing-over-magical-girls) [<sup>J-Novel</sup>](https://j-novel.club/series/gushing-over-magical-girls)
 
     >*Hiiragi Utena, a girl who loves Magical Girls, lives her ordinary everyday life wishing to be like them. One day a curious character appears in front of her and offers her the power to make her wishes come true, but…
 Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
+---
+
 **Viz Media**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a4041c1f-8d48-49ee-99b2-7646fc711ab0" alt="cover-image" width="200"/>
 
 - [How Do We Relationship?](https://mangadex.org/title/9a0f1e7e-d84b-46e6-8596-ae5a60529e81/how-do-we-relationship) [<sup>Viz Media</sup>](https://www.viz.com/vizmanga/chapters/how-do-we-relationship)
 
     >*A romance of convenience between two college women soon becomes the real thing.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/575684dd-6263-44e5-ab91-381fe28b286d" alt="cover-image" width="200"/>
+
 - [Rainbows After Storms](https://mangadex.org/title/bc86a871-ddc5-4e42-812a-ccd38101d82e/hana-ni-arashi) [<sup>Viz Media - Releasing Dec 10, 2024</sup>](https://www.simonandschuster.com/series/Rainbows-After-Storms)
 
     >*Nanoha and Chidori are best friends who attend the same all-girls high school—and also share a heart-pounding secret: they’re lovers. Through sunny days and tumultuous...*
 
+---
+
 **Square Enix**
+
+---
+<img src="https://fyre.cdn.sewest.net/manga-books/64deed0daed7bb35a2ace635/cover_img_247x350_othersidepicnic_09_coverfinal--ARkB0M1F.jpg" alt="cover-image" width="200"/>
 
 - [Otherside Picnic](https://mangadex.org/title/26e40241-4a4e-4d12-a04d-cb3f7f707100/urasekai-picnic) [<sup>Square Enix</sup>](https://squareenixmangaandbooks.square-enix-games.com/en-us/series/otherside-picnic)
 
     >*In this sci-fi/fantasy survival thriller, the dangerous and deadly realm of the Otherside--where urban legends, cryptids, and folkloric legends roam--calls to two women, both in search of something. As they set out to sate their curiosity and explore this other world, will the most earth-shattering thing they discover on the Otherside be their feelings for each other?*
 
-- [I've Been Killing Slimes for 300 Years and Maxed Out My Level](https://mangadex.org/title/14610263-264a-4c22-8928-e4183e7d4719/slime-taoshite-300-nen-shiranai-uchi-ni-level-max-ni-nattemashita)[<sup>Square Enix - Not Listed as GL</sup>](https://global.manga-up.com/manga/418)
-
-    >*From corporate slave to a laid-back witch—reincarnation’s a pretty sweet deal! Or so Azusa believes until her maxed-out status comes to light...In this new manga adaptation of the original novel, enjoy the hilarity that ensues as Azusa attempts to evade all forms of adventure and regain her lazy life!*
+---
+<img src="https://global-img.manga-up.com/r1M/en/manga_main/336.webp?h=Px20O3_5msDwXhzUXFcWyQ&e=1710979200" alt="cover-image" width="200"/>
 
 - [The Vexations of a Shut-in Vampire Princess](https://mangadex.org/title/c288b108-5162-4065-aa3a-5857ec38c8d9/hikikomari-kyuuketsuki-no-monmon) [<sup>Square Enix - Not Listed as GL</sup>](https://global.manga-up.com/manga/336)
 
@@ -319,27 +347,47 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*Follow the slapstick struggles of a heroine who takes full advantage of her dumb luck to get out dire situations! Based on the light novel series of the same name.*
 
+---
+<img src="https://global-img.manga-up.com/WV7/en/manga_main/291.webp?h=fkpcdgnKEKTOgWVHZOiWLw&e=1710979200" alt="cover-image" width="200"/>
+
 - [Making Magic: The Sweet Life of a Witch Who Knows an Infinite MP Loophole](https://mangadex.org/title/2f90e7e5-16b4-41f5-b717-137cf9783b5b/i-became-a-magical-cheat-witch-creative-magical-life-in-another-world?tab=comments) [<sup>Square Enix - Novel Only Listed as GL</sup>](https://global.manga-up.com/manga/291)
 
     >*Meet Chise, a young girl who is reborn in a new world with her old memories lost. A goddess grants her the gift of 'Creation Magic' under one condition - that she enjoys her new life! Together with Teto, a golem she creates, Chise embarks on an enchanting journey across the world.*
+
+---
+<img src="https://global-img.manga-up.com/842/en/manga_main/33.webp?h=ZFrbi-QTgjFOuDF4Rip92Q&e=1710979200" alt="cover-image" width="200"/>
 
 - [Living With My Brother's Wife](https://mangadex.org/title/6204ff54-c3d5-4645-b21f-f83f6fa303d0/ani-no-yome-to-kurashite-imasu) [<sup>Square Enix - Not Listed as GL</sup>](https://global.manga-up.com/manga/33) <sup> - Same Creator as </sup> [<sup>The Moon on a Rainy Night</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/)
 
     >*Since the death of her brother, seventeen year-old Shino Kishibe has been living with her sister-in-law Nozomi. Nozomi wants to be a person Shino can lean on, while Shino is determined not to be a burden. Together the orphaned high-schooler and young widow try to support one another while carrying on with their everyday lives.*
 
+---
+
 **Tokyopop**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/00120ab7-a716-4947-8b38-1c4a6b0a15ef" alt="cover-image" width="200"/>
 
 - [Yuri Espoir](https://mangadex.org/title/d5ffe970-d842-418b-b00b-264b57de3f3a/yuri-espoir) [<sup>Tokyopop</sup>](https://tokyopop.com/products/9781427874702_yuri-espoir-volume-4)
 
     >*After finding out she is to be forced into an marriage of convenience as soon as she graduates high school, Kokoro sees her life ending before her eyes at her father's wishes. And so in her final year of high school, she decides to indulge in her love of other women, and create an incredible sketchbook of lesbian romance to leave behind as her legacy. As she observes the young women of her town, she learns more about their desires, their struggles, and the unpredictable whims of love.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4f1d299b-84cd-4251-bd7b-73b49f802699" alt="cover-image" width="200"/>
+
 - [If My Favorite Pop Idol Made It to the Budokan, I Would Die](https://mangadex.org/title/491bdbe0-0c83-42d5-8b20-3a651e65f70b/oshi-ga-budoukan-ittekuretara-shinu) [<sup>Tokyopop</sup>](https://tokyopop.com/products/9781427875341_if-my-favorite-pop-idol-made-it-to-the-budokan-i-would-die-volume-5)
 
     >*Forthright and impetuous Eripiyo is the number one stan for Maina, a sidelined member of the underground idol group Cham Jam, spending a fortune on CDs, merch, and fan meetings to support her fave. As fan events come and go, Eripiyo remains steadfast in catching a glimpse of Maina at every opportunity — and despite her shy personality, Maina's adoration and gratitude for Eripiyo's support is beginning to bridge the awkward gap between them as idol and fan.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a7abb935-a40d-446e-838c-1dfeddb70ebf" alt="cover-image" width="200"/>
+
 - [Konohana Kitan](https://mangadex.org/title/95f7b86c-008c-4c6a-8c96-017577daef9d/konohana-kitan) [<sup>Tokyopop - New Release on May 28, 2024</sup>](https://tokyopop.com/products/9781427874085_konohana-kitan-volume-13?_pos=5&_sid=0e67720ba&_ss=r)
 
     >*Yuzu and Satsuki are now working as maids at the Akitsushima Hotel, an inn for Western Great Spirits that they arrived at on their travels. Will they be able to pull off their duties despite being astonished by the inn's quirky owner and the other maids? Fox workers will wait on you hand and foot.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d06198d5-73c9-4ae6-882e-d1ee4b78da40" alt="cover-image" width="200"/>
 
 - [Alter Ego](https://mangadex.org/title/3f7fb508-be22-453a-ba33-2631345b529f/alter-ego) [<sup>Tokyopop - New Release on June 25, 2024</sup>](https://www.amazon.com/Alter-Ego-2-Noel-June/dp/1427876630)
 
@@ -347,23 +395,44 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*One night, in a moment of desperation, Noel ends up confessing her feelings for Elena to a complete stranger — but as fate would have it, this stranger turns out to be a girl named June, Elena's other best friend... and Noel's rival in love! Worst of all, now June knows Noel's secret. With everything suddenly going wrong, how can Noel ever win the girl of her dreams?*
 
+---
+
 **Dark Horse Comics**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8c822315-0e9b-4d7c-a4c2-969d18e4466a" alt="cover-image" width="200"/>
 
 - [The Flying Ship](https://www.flyingshipcomic.com/) [<sup>Dark Horse - Tapas</sup>](https://www.darkhorse.com/Books/3011-346/The-Flying-Ship-Volume-1-TPB) 
 
     >*After being stranded in a forgotten military outpost, grumpy Dobrinia sets out on a quest to marry a princess. But in the vast Tzardom of Glas, where magic has been outlawed, troubled histories can catch up with even a flying ship.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/016b2842-94ea-4d12-819c-009724d7edc7" alt="cover-image" width="200"/>
+
 - [The Legend of Korra](https://digital.darkhorse.com/series/450/the-legend-of-korra) [<sup>Next Release - Sep 4, 2024</sup>](https://leagueofcomicgeeks.com/comics/series/171781/the-legend-of-korra-mystery-of-penquan-island)
 
     >*Mystery of Penquan Island is an upcoming, standalone graphic novel that will focus on Mako.*
 
+---
+
 **DC**
+
+---
+<img src="https://static.dc.com/2023-09/HQv4_TFXX%20%28Cover%29.jpg?w=640" alt="cover-image" width="200"/>
 
 - [Harley Quinn](https://www.dc.com/comics/harley-quinn-2021/harley-quinn-37) <sup>They Broke Up</sup>
 
+---
+<img src="https://static.dc.com/2023-11/PIV2UC%20%28%20Cover%29.jpg?w=640" alt="cover-image" width="200"/>
+
 - [Poison Ivy](https://www.dc.com/comics/poison-ivy-2022/poison-ivy-20) <sup>They Broke Up</sup>
 
+---
+<img src="https://static.dc.com/2023-11/OTSDRS_Cv1_00111_DIGITAL.jpg?w=640" alt="cover-image" width="200"/>
+
 - [OUTSIDERS](https://www.dc.com/comics/outsiders-2023/outsiders-5) <sup>Batwoman Broke Up With Her Girlfriend</sup>
+
+---
 
 **Bilibili**
 
