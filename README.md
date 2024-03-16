@@ -438,54 +438,93 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
 *Listing What Was Ongoing at Site*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/18661c3c-c360-47e4-ac6d-1513056db5e5" alt="cover-image" width="200"/>
+
 - [Please Bully Me, Miss Villainess!](https://mangadex.org/title/8b34f37a-0181-4f0b-8ce3-01217e9a602c/please-bully-me-miss-villainess) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc2295)
 
 
     >*I, Yvonne, reincarnated into an otome game as the rich villainess. According to the game's plot, a character loathed by everyone such as myself has the main role of bullying the heroine, pushing her towards the various love interests' romantic routes. But it seems like there's something wrong with Elsa, the heroine! She's getting too close to me!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/17597603-278c-4366-818a-667836c4746c" alt="cover-image" width="200"/>
+
 - [Childhood Sweetheart Liaoliao](https://mangadex.org/title/b132a54e-81fb-4314-8845-b37cb5e790e6/childhood-sweetheart-liaoliao) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc9307?from=manga_index)
 
     >*Exhausted mentally and physically, Song Liaoliao is ready to leave it all behind. She couldn't have anticipated that the new director is her old sweet- no, her old classmate. It should simply be a reunion of old friends, but Song Liaoliao unexpectedly finds herself gradually falling into Pei Yu's love trap...*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/e3c462a1-2848-474c-b930-f7abf52a6088" alt="cover-image" width="200"/>
 
 - [Goddess of Jealousy](https://mangadex.org/title/f7e181df-21ee-4fa0-993c-6cf22f24fac3/goddess-of-jealousy) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc302?from=manga_index)
 
     >*The bubbly and innocent little idol, Xiao Fengyu, encountered the calm and collected award-winning actress, He Yunhan. Soon after, they met once again as trainee and mentor in a reality show. This seemed like a great opportunity to get close to the goddess, but why could she constantly feel potential rivalry no matter where she went?*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/036792d0-7aca-40ea-b233-ce6b1dc11156" alt="cover-image" width="200"/>
+
 - [My Food Looks Very Cute](https://mangadex.org/title/b98c4daf-be1a-46c8-ad83-21d532995240/my-food-looks-very-cute) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc88?from=manga_index)
 
     >*A vampire that has been asleep for almost two hundred years, Maria, has been awakened by a wolf girl passing by, Xing Lan. When the casket was opened, a curse fell upon Xing Lan. Instead of being scared, the naïve Xing Lan instead believes she has found an amazing companion, and the two embark on a journey to the city. The story begins like this.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/6fc9defb-7496-470e-9ba4-9092e35e8867" alt="cover-image" width="200"/>
 
 - [Working Overtime to Destroy the World!](https://mangadex.org/title/c55ae98b-bf28-4f50-b3b8-f11051556a1c/working-overtime-to-destroy-the-world) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc5?from=manga_index)
 
     >*Limbo is a shut-in girl who doesn't care for anything except her tentacle comics. Aside from that, everything else is meaningless. On her birthday she wished for the "destruction of the world" and was instead met with a demonic female programmer! The two instantly hit it off, bonding over their common goal of world destruction, the two "project partners" hustle hard everyday to bring the world to an end with hilarious effect.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/fa67355a-986e-4ba8-9a30-7ff3d231b7f1" alt="cover-image" width="200"/>
+
 - [Baili Jin Among Mortals](https://mangadex.org/title/5746bbb3-445d-4c31-948b-065098052b77/baili-jin-among-mortals) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc32?from=manga_index)
 
     >*Baili jin, a fairy who was living in heaven, eating and drinking without a care, broke her Majesty’s colourful, stained-glass plate at her birthday and got banished to the mortal realm. Now she has to begin her adventures in the mortal realm with all of her spiritual powers gone! In order to survive, the former fairy has to deliver take-out.... An endearingly silly fairy, a gentle restaurant manager, a reserved top student and a hard to resist two-faced girl, let the story of their beautiful friendship and youthful days begin!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8e260591-164e-41bc-a9a1-b086c9c63b45" alt="cover-image" width="200"/>
 
 - [Lily](https://mangadex.org/title/19daf6ef-6d95-46e5-9e1a-f4e5b655902f/lily)[<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc82?from=manga_index)
 
     >*Prim and proper honors student Fan Yilin and the mysterious and charismatic Lan Ruoxi met through a stroke of fate and a misunderstanding, and only got further involved with each other from that point on. The more they came to know each other, the more something different started blooming between the two. "I like you, only because it's you."*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c3a30cb8-5c3b-4ee5-b659-dc85f994e6b2" alt="cover-image" width="200"/>
+
 - [Romance of the Stars](https://mangadex.org/title/7aaaf997-7f37-4313-8229-a64c91bc925e/romance-of-the-stars) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc1584?from=manga_index)
 
     >*When Lu Yinbing won the Golden Jade award for her performance in “Breaking Snow,” the popular little flower Xia Yitong was defeated. She collapsed on the spot, sobbing uncontrollably in front of the cameras. The two fanbases instantly started a war on Weibo. The movie queen’s fans accused the other of paying the media, while the little flower's fans defended her from every accusation. No one knew that Queen Lu and the little flower had already…*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/752da18b-5b43-48f9-a99f-4bbc6e9a86d1" alt="cover-image" width="200"/>
 
 - [I'm More Dangerous Than You](https://mangadex.org/title/b788e331-aa77-475d-819a-2f7b58561dc2/i-m-more-dangerous-than-you) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc35?from=manga_index)
 
     >*When Jiang Wanshu met Ren Pingsheng, what she thought was her light, became the beginning of her nightmare. As a teacher, Ren Pingsheng seems gentle and considerate on the outside but is secretly an extremely passionate reader of Jiang Wanshu's book. What seemed to be a "coincidental" first encounter was in truth calculated and planned. Behind the peaceful days, the crazy reader has begun her hunt...*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/da92f270-76df-4e19-bcee-359a04d1f097" alt="cover-image" width="200"/>
+
 - [Perfect Girlfriend Online](https://mangadex.org/title/579fa550-e880-455c-b97c-4bea64efc40b/perfect-girlfriend-online) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc9280?from=manga_index)
 
     >*It's the year 2035. Caught in a mid-life crisis, Xu Youyuan decides to put down her pride and experience love so she can make a dating game. Except... she gets a bit more than she's bargained for: the troublemaker Shiyue! Shiyue means business in both the real world and the game world, and her one-minded pursuit is quickly overwhelming Xu Youyuan! This comic is adapted from the novel "Love Patch for the Middle-Aged."*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/cee18707-bb28-4107-837b-2a6e4987a68a" alt="cover-image" width="200"/>
 
 - [My Intern Bullied Me Again!](https://mangadex.org/title/c408ec80-586a-4d87-8bbc-e5e8d17a3898/my-intern-bullied-me-again) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc9301?from=manga_index)
 
     >*On the outside, Lu Meihe appears to be a strict superior dubbed 'The Cobra' by her subordinates, but she nurses a sot spot for her intern Lin Wenjing. As she has a reputation to maintain, she has to express her feelings within the pages of her sketchbook... only for Lin Wenjing to discover it! Since then, Lu Meihe realized that despite her mild manners and soft-spoken attitude, she was really anything but! Hence, she was getting bullied every day, but it was also pure bliss! What will she do?!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/1a8375fd-0ba1-4268-92f4-00a32c37ce8c" alt="cover-image" width="200"/>
+
 - [My Feelings Can Wait](https://mangadex.org/title/dc10dbb6-2bb2-4d52-8440-85ca9ed2d9a6/long-awaited-feelings) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc9276?from=manga_index)
 
     >*When acclaimed actress Jing Xiu's wedding was going on, Weibo was flooded with news about rising actress Ji Youyan's death from alcohol poisoning. Then, another piece of news hit the headlines: Jing Xiu's wedding had been called off due to unforeseen circumstances. When Ji Youyan woke up, she found herself transported back in time. Three years ago, to be exact — the second year following her breakup with Jing Xiu. This time, she swears she'll never lose Jing Xiu again...*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/459c644c-fe7e-4d25-99a9-928fbb536417" alt="cover-image" width="200"/>
 
 - [Your Scent is a Little Sweet](https://mangadex.org/title/060b3261-bee4-4ce4-a92c-76266ef45e79/your-scent-is-a-little-sweet) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc3756?from=manga_index)
 
