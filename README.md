@@ -530,69 +530,120 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*Due to psychological trauma, Tang Chao never experienced the onset of secondary sexual characteristics and has been working as a model under the identity of a beta. After an unexpected and sweet encounter with an omega, she realizes that she can only get close to this omega. The next day, she discovers that her new colleague, Li Zhisu, seems to be that person? But... this Li Zhisu is clearly a beta?*
 
+---
+
 **Lezhin**
 
----All Ages---
+---
+
+*All Ages*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8255e48b-2d57-43cd-b2c4-f4bd6c78bbbb" alt="cover-image" width="200"/>
 
 - [Chasing Lillies](https://mangadex.org/title/a8361291-a3d7-41fb-803c-0c119b52dfb6/chasing-lilies) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/chasing_lilies)
 
     >*Hwa-won knows better than to pick things off the street, even if it is just an innocent-looking USB. In an effort to find the owner, Hwa-won discovers that the USB belongs to her favorite GL writer, Kim Yuri, and has unreleased chapters of the latter’s new sequel! As a zealous fan, Hwa-won can hardly resist herself from devouring the chapters in one setting. However, she seems to have forgotten that curiosity is not just hazardous to cats! Because the USB doesn’t just contain the chapters to the sequel. It also contains things that leave Hwa-won upset. Now Hwa-won needs answers and Kim Yuri’s the only one who has them. But Kim Yuri is a staunch recluse who refuses to leave her house! How is Hwa-won to meet her?! Soon, online meets offline, fiction meets reality and as the pages turn, it is no longer Hwa-won doing the chasing!*
 
----Mature(Can't view Mature Content in App)---
+---
+
+*Mature - Mature Content Cannot be Viewed in the App*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/6d152129-24fb-40e3-a62e-b86a1bf2414f" alt="cover-image" width="200"/>
 
 - [Love Thy Neighbor](https://mangadex.org/title/31d20f08-2168-42f6-b23c-8efc9c65b9d0/love-thy-neighbor) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/loveneighbor)
 
     >*Pah Doyeon, a college student living in an old apartment building, gets used to the thugs coming to her neighbor's door every day. One day, when she sees the thugs trying to break into her neighbor's house, she unwittingly hides her next-door neighbor, Jinju, in her apartment... Looking at Jinju, who is much older than her, Doyeon gradually becomes engulfed in an unknown desire. How will their awkward cohabitation end?*
 
-- Talk Dirty to Me<sup>Not on Mangadex</sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/talkdirty) <sup> - Same Creator as </sup> [<sup>The Chain of Youth</sup>](https://www.lezhinus.com/en/comic/chainofyouth)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c07e9fa2-7d1b-4108-af2a-d65469b0173e" alt="cover-image" width="200"/>
+
+- [Talk Dirty to Me](https://www.lezhinus.com/en/comic/talkdirty)<sup>Not on Mangadex - </sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/talkdirty) <sup> - Same Creator as </sup> [<sup>The Chain of Youth</sup>](https://www.lezhinus.com/en/comic/chainofyouth)
 
     >*Yeon-hwa has always dreamed of being a top k-pop idol, and she’s worked hard to make it to her debut. But she’s certainly never dreamed of having her idol group partner to be a hell of a masochistic pervert. Insoo is uncooperative, but she’s infinitely easier to control when you become her master. Now, Yeon-hwa is determined to make Insoo an ideal idol partner—and to do that, she’s going to be Insoo’s ideal partner in bed. But this solution might not be as simple as she thinks…*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/44d3a661-9bfe-456a-97a0-65dde5f81104" alt="cover-image" width="200"/>
 
 - [Kill Switch](https://mangadex.org/title/6c0669f3-c500-4759-afe7-c8e9e4e2d685/kill-switch) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/killswitch_en)
 
     >*“Jeongwon, who is traumatized by four-wheeled vehicles because of a car accident, got a ride from Kim Jisoo's bike by chance during the new semester. She falls in love with Jisoo at the first sight together and gains an unknown sense of freedom. Hwayeon, one of Jeongwon’s close friends, is aware of Jeongwon's feelings and panics. The more she tries to separate them from each other, the more Jeongwon wants to get closer to Jisoo… However, Jisoo avoids Jeongwon, and Hwayeon interferes with Jeongwon's growing feelings because of her unpredictable attitude…*
 
-- Exit's That Way<sup>Not on Mangadex</sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/exitsthatway)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/dcd7fad6-b14f-45fb-aff4-7f1605083690" alt="cover-image" width="200"/>
+
+- [Exit's That Way](https://www.lezhinus.com/en/comic/exitsthatway)<sup>Not on Mangadex - </sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/exitsthatway)
 
     >*Cha Hong just got her dream job, assistant director on the set of a real TV series! This show stars the nation’s top actress, Noh Seung-ah, so cool! But when the director’s relationship with Seung-ah reaches a boiling point, he recruits Hong to keep watch over her 24/7 so she doesn’t ruin his precious show! But this young diva is not interested in being told what to do. Plus, keeping an eye on her actually means…they have to live together?! Is trying to tame this wildcard going to drive her insane and make her run for the exits or will the experienced Hong have some of her own tricks up her sleeve...?*
 
-- No Love Lost Lady<sup>Not on Mangadex</sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/nolovelost)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/df3901ef-24d0-46bf-8b97-496768c38f25" alt="cover-image" width="200"/>
+
+- [No Love Lost Lady](https://www.lezhinus.com/en/comic/nolovelost)<sup>Not on Mangadex - </sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/nolovelost)
 
     >*The daughter of a famous actress, Sungha is glamorous, confident, and beautiful. However, her relationships never last longer than one month, and most of the attention she gets is from…women? In order to get in a serious relationship with Mr. Right, she decides that she needs to prevent all women from falling in love with her. So when Sungha first sees the new transfer student, Rahee, she wants to make some things clear. “You’re not already in love with me, are you? “Don’t worry. You’re the kind of person I can’t stand."*
 
-- On the Contrary<sup>Not on Mangadex</sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/contrary)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/2b82c222-de1e-4ecf-88f4-99842e1c707d" alt="cover-image" width="200"/>
+
+- [On the Contrary](https://www.lezhinus.com/en/comic/contrary)<sup>Not on Mangadex - </sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/contrary)
 
     >*Ban Jiwoon is loved by all. No matter how chilly someone's exterior may seem, she always finds a way to break through. That is, until her classmate Lee Yoosun comes along. For some reason, Yoosun ignores Jiwoon’s every attempt to win her over. Jiwoon is dumbfounded that, despite her best efforts, she just can’t find a way to weasel her way into the standoffish student’s heart. But when the two have an unexpected encounter, they just might discover that it’s never when a girl is looking for love that she finds it. On the contrary…sometimes it comes from the place she least expects.*
 
 **Manta**
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/f3ea4af8-8889-4d68-bc71-b6fe2f9ef7f0" alt="cover-image" width="200"/>
+
 - [Bittersweet Con Panna](https://mangadex.org/title/3902c3bb-192a-4aae-ab87-b23548f4d8d9/bittersweet-con-panna) [<sup>Manta</sup>](https://manta.net/en/series/bittersweet-con-panna?seriesId=2006) <sup> - Same Artist as </sup> [<sup>Reign of Desire</sup>](https://www.tappytoon.com/en/series/reignofdesire/1)
 
     >*Graduate student Songah thinks her girlfriend Yoosung is the cutest girl in the world. It doesn't matter if she's actually more sophisticated than adorable; Yoosung is number one in her heart! So how is she supposed to react when some hot childhood friend suddenly enters the mix?!*
 
+---
+
 **PocketComics**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/88a3af6d-0d42-4699-badf-60bdc7ff9042" alt="cover-image" width="200"/>
 
 - [A Collar Only For You](https://mangadex.org/title/485a53a2-9114-4f17-bf1b-2b546da5c8ad/kimi-no-tame-dake-no-kubiwa) [<sup>PocketComics</sup>](https://www.pocketcomics.com/comic/7491)
 
     >*A high school girl collapsed in front of her apartment...! She is a girl who feels love for pain. A slightly painful and tender love story.*
 
+---
+
 **TappyToon**
+
+---
+<img src="https://image-repository-cdn.tappytoon.com/series/898/ee98998c-9ff6-4225-a5d0-b5d93f6e3334.jpg" alt="cover-image" width="200"/>
 
 - [Twin Flames of Destiny](https://mangadex.org/title/4eaa7291-aec4-4605-b92f-08694c93967b/miss-gu-and-miss-qu) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/twin-flames-of-destiny)
 
     >*There are two women in the entertainment industry who share a name. One of them is Qu Xizhi, and the other is Gu Xizhi. Gu Xizhi already harbored hatred for Qu Xizhi because she "stole" her role as well as her ex-boyfriend, but somehow, the well connected Qu Xizhi won't stop pestering her to be friends! When a tsundere straight girl falls into the trap by the perfect woman, she gradually gets her heart captured by her lifelong rival...*
 
+---
+<img src="https://cdn.anime-planet.com/manga/primary/kill-me-now-1.webp" alt="cover-image" width="200"/>
+
 - [Kill Me Now](https://mangadex.org/title/a75df666-4d68-4468-b68c-25bffefe47b1/kill-me-now) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/kill-me-now)
 
     >*Haegu, a proficient and merciless hitwoman, executes a man in front of his own daughter and takes the child under her wing. She decides to name her Mian, the word for "sorry" in Korean, and gives her one mission: "Kill me when you can." From that moment on, Mian decides that she will do this by choking Haegu with feigned love and emotionally manipulating her into submission. But as Mian grows into an adult, she's thrown into confusion as what was supposed to be pure revenge turns into lust... and possibly real love. Meanwhile, Haegu grapples with her own feelings for Mian while continuing to carry out life-threatening missions. Can Haegu and Mian ever learn to truly love each other, or are they doomed to drown in their toxic cycle of violence and revenge?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/eb08a07b-7972-460e-a403-73479a07402e" alt="cover-image" width="200"/>
 
 - [On a Leash](https://mangadex.org/title/830daff3-61ce-4b74-af72-ae08345c02af/on-a-leash) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/on-a-leash) <sup> - Same Creator as </sup> [<sup>Opium</sup>](https://tapas.io/series/opium-comic/info) 
 
     >*Tensions run high on the battlefield as soldiers fight through death. Bombs rain from the sky and bullets pepper the ground. In battle, beasts screech through the sky and tear through the earth. After the smoke clears, the soldiers return to their human forms weary from battle and numbed by death. But amid the explosions and chaos, a spark of passion ignites. Time will tell whether it can survive the horrors of war, or if it will succumb to it.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/1bd0a04d-1e37-433d-adbb-e3d6be87552d" alt="cover-image" width="200"/>
+
 - [Show Me Your Bust](https://mangadex.org/title/53284055-d529-476a-a3e2-63d4c684f5d1/show-me-your-bust) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/show-me-your-bust-m) <sup> - Same Creator as </sup> [<sup>What Does the Fox Say?</sup>](https://mangadex.org/title/658662c8-bee6-442c-91c4-cb94681810b5/what-does-the-fox-say) 
 
     >*University student Kang Ji-ho, accidentally saw Seon Woo-hui's breasts at a drinking party, and avoids her because she couldn't resist the desire to see them again.*
+
+---
 
 **Comikey**
 
