@@ -812,6 +812,10 @@ They've nicknamed her Usotsuki (Liar).*
 - [I want to make Black-Knight fall in love with me!](https://mangadex.org/title/48de4f49-d7f9-4b0c-99f4-0929c2a9910b/gakeppuchi-reijou-wa-kurokishi-sama-o-horesasetai) <sup>Same Artist as</sup> [<sup>Superwomen in Love! Honey Trap and Rapid Rabbit</sup>](https://sevenseasentertainment.com/series/superwomen-in-love-honey-trap-and-rapid-rabbit/)
 
     >*My family is in debt, and we don't have enough money for my sick sister's treatment... The troubled noble, Clarice, finds herself engaged in a political marriage with the most feared Black-Knight in the kingdom, Frost, known for "slaughtering beasts with his bare hands". In an attempt to secure the fortune, Clarice tries to seduce the "Black-Knight", but just as she does, she discovers "her" secret...*
+ 
+- [Becoming Her Lover For the Sake of Love](https://mangadex.org/title/f7262e67-e7d7-44b5-b39a-96fafef39edf/koi-ni-koi-suru-koibito-kankei) <sup>Same Creator as</sup> [<sup>Doughnuts Under a Crescent Moon</sup>](https://sevenseasentertainment.com/series/doughnuts-under-a-crescent-moon/) <sup> and </sup> [<sup>I Married My Female Friend</sup>](https://sevenseasentertainment.com/series/i-married-my-female-friend/)
+
+    >*The womanising most popular girl in school catches the no-nonsense student council president breaking the school rules, and agrees to keep quiet if the president becomes her girlfriend.*
 
 **Webtoons**
 
