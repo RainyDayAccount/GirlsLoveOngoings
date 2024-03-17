@@ -1277,6 +1277,21 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*One day, the prince makes the stunning announcement that he is breaking off his engagement! Seeing a chance to strike while the iron is hot, Akuya decides to steal Sei away with sizzling hot and erotic words of love...*
 
+
+- [Mutually Unrequited Twin Sisters](https://mangadex.org/title/0afc1883-d6ff-4c76-8f35-fb6010dc9d95/mutually-unrequited-twin-sisters)
+
+    >*Saori and Shiori are twin sisters. They both love each other, but think their loves are unrequited!*
+
+- [How To Love: A Secret That Cannot Be Told](https://mangadex.org/title/df805b8c-0c05-40f2-8f92-0f096ca346e4/ienai-himitsu-no-aishikata)
+
+    >*Highschool teacher Saeki Nao is secretly a hardcore otaku who loves yuri manga. One day, at a doujinshi convention they participate in, Nao is eager to convey her feelings to "Nyapoleon", an artist she worships. However, it turned out to be a girl from her school, Kurumizawa Haruka, and moreover, she had to help her. After the event, they decided to go out for a meal, at Haruka's suggestion…. When she wakes up in the morning, there is Haruka in the bed…?!*
+
+- [Contract Sisters](https://mangadex.org/title/e3fa25bc-23eb-46c3-af17-36ec9200456e/keiyaku-shimai)
+
+    >*Kasane Hayafuji's secret joy in life is seeing Aoyama-san, a waitress at a family restaurant. One night, she saw Aoyama standing alone in the rain. When she tried to help, Aoyama suddenly made her an offer.*
+
+    >*"Will you be my big sister?"*
+
 *Highest Rated Ongoing on MangaDex besides Above*
 
 - [The Princess of Sylph](https://mangadex.org/title/927617bf-a212-44d6-9ff0-3d941fbaae2a/the-princess-of-sylph)
