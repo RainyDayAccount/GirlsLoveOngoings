@@ -645,9 +645,12 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
 ---
 
-**Comikey**
+**Azuki**
 
-- Lost Youth [<sup>Comikey</sup>](https://comikey.com/comics/lost-youth-manga/593/)
+---
+<img src="https://production.image.azuki.co/ff61b08d-d10a-41b3-be3d-8e662e1e56b8/800_2-3.webp" alt="cover-image" width="200"/>
+
+- [Lost Youth](https://mangadex.org/title/a4f39f0a-9218-4c88-865f-168078e5d1d0/lost-youth) [<sup>Azuki</sup>](https://www.azuki.co/series/lost-youth) <sup> - Dropped By  [<sup>Comikey</sup>](https://comikey.com/comics/lost-youth-manga/593/)
 
     >*Aine Misabashi, a cheerful second high school grader, has a massive crush towards her popular childhood friend, Riku Shirota. She also has a beautiful best friend, whom she calls as "Princess" that always listen to her insecurity.*
 
@@ -655,112 +658,192 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*Is there any purity in this tangled friendship and romantic relationship? What will Aine do when another important person to her also has a feeling towards her...*
 
+---
+
 **Lilyka Manga(Active?)**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/7715edee-6ebd-43aa-aa8b-e3224b4f49e3" alt="cover-image" width="200"/>
 
 - [After School](https://mangadex.org/title/1b46b76c-bd79-4d42-8b21-e199993fee49/houkago) [<sup>Lilyka Manga</sup>](https://emanga.com/products/after-school-1?variant=42997274935458) <sup> - Other works from creator at </sup> [<sup>Irodori Comics</sup>](https://irodoricomics.com/Tomo-Oshima-X-Towa-Oshima)
 
     >*An after school romance of two girls.*
 
+---
+
 **INKR**
+
+---
+<img src="https://i1.inkr.com/p/image/a9b226df2bf4174e950ddbf09553f4e4.png/347.webp/thumbnail-she-is-also-cute-today.webp" alt="cover-image" width="200"/>
 
 - [She is Also Cute Today](https://mangadex.org/title/08955a3e-63f9-4605-a14c-2d528d7608d7/she-is-also-cute-today?tab=chapters) [<sup>INKR</sup>](https://comics.inkr.com/title/493-she-is-also-cute-today) <sup> - Hiatus - </sup> [<sup>ALSO WHAT</sup>](https://mydramalist.com/732583-she-is-still-cute-today) 
 
     >*An asocial girl who's obsessed with her studies seems to be interested in a lowlife delinquent?! She's still so cute today. A cold, high school girl who loves studying and a stupid yet sweet delinquent.*
 
+---
+<img src="https://i1.inkr.com/p/image/9c637f2b66abdb9cbfd68e33d104280e.png/347.webp/thumbnail-your-false-embrace.webp" alt="cover-image" width="200"/>
+
 - [Your False Embrace](https://mangadex.org/title/3040ec91-4d19-4d99-a8d3-dfbbab943836/your-false-embrace) [<sup>INKR</sup>](https://comics.inkr.com/title/2015-your-false-embrace/chapters) <sup> - Same Creator as </sup> [<sup>Sexual Liberation: To Each Their Own Form of Love</sup>](https://comics.inkr.com/title/1503-sexual-liberation-to-each-their-own-form-of-love?utm_source=mgd) 
 
     >*“I’ll crush all things normal to you.” Yoshikawa Miyuki, a 34 years old woman, had been happily married for three years when her life took a wrong turn. She found herself in a sexless marriage with the added pressure of having a child. When her husband even resorted to going to the brothel, Miyuki questioned if this was normalcy, and if so, she no longer wanted to adhere to it. She now only yearns for true love. Her worries and suffering had pushed her to the brink of losing her mind. That's when someone, with a certain secret, appeared in front of her, changing everything. This person's sweet temptation shatter Miyuki's perception of "normal." What ensued was a straight, twisted, ugly, beautiful, and impure pure love story.*
+
+---
+<img src="https://i1.inkr.com/p/image/af84cf942344e183e6f716a7fc334c17.png/347.webp/thumbnail-mercy-killing.webp" alt="cover-image" width="200"/>
 
 - [Mercy Killing](https://mangadex.org/title/51d8e9a5-de8e-4180-bd03-df5727da91f2/vinegirl-mercy-killing) [<sup>INKR - Not Listed as GL</sup>](https://comics.inkr.com/title/1300-mercy-killing/chapters)
 
     >*Qiao Anle was helplessly killed as twisted entertainment for rich and powerful elites of the city. But a scientist injected a mysterious serum that gave her the vitality of plants and resurrected her. With the power of plants, she seeks revenge to the one who orchestrated her death*
 
+---
 **Webtoons**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/12b69b54-4f93-4551-b925-dc1e4ef4edcb" alt="cover-image" width="200"/>
 
 - [Nevermore](https://www.webtoons.com/en/supernatural/nevermore/list?title_no=2740)
 
     >*There is nothing definitive about life after death, except the involuntary enrollment at the mysterious Nevermore Academy. Now Lenore and Annabel Lee must begin their curriculum to recover the memories of their tragic demise. Between the Dean's macabre demeanor and the tell-tale dangers of Final Exams, both girls must learn to rely on one another and their newly acquired ghost forms, or Spectres, to not only graduate from the academy… but to earn a second chance at life.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/83406454-fb3f-4682-8b64-33e4582c29f3" alt="cover-image" width="200"/>
+
 - [Not So Shoujo Love Story](https://www.webtoons.com/en/comedy/not-so-shoujo-love-story/list?title_no=2189)
 
     >*Romance-super-fan Rei Chan is ready for her first boyfriend and she knows just who it'll be: the most handsome boy in school, Hansum Ochinchin. But her plans for the perfect love story are derailed when the most popular girl in class declares herself a rival....for Rei's heart?! This is the year her not so shoujo love story begins!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8f952afd-be5d-4c2e-82e7-ece2709184c2" alt="cover-image" width="200"/>
 
 - [Sunset Phoenix](https://www.webtoons.com/en/mystery/sunset-phoenix/list?title_no=4078)
 
     >*An immortal criminal kingpin is dead, and you’re holding the murder weapon. Things can't look much worse for Emilia, a spy in the wrong place, wrong time. Framed for the murder, she and her reckless immortal boss Valentine must find the real culprit before the city succumbs to war between the criminal factions… and Emilia loses her own head.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/0a50f343-589e-4aee-a1a6-c46ac2c4028e" alt="cover-image" width="200"/>
+
 - [Paperteeth](https://www.webtoons.com/en/comedy/paperteeth/list?title_no=5969)
 
     >*Avery is a vampire hunter! Who unfortunately gets bitten by and subsequently turned into, a vampire.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/600c5395-865c-44ac-83ed-e47ffb0a115d" alt="cover-image" width="200"/>
 
 - [6th Degree](https://www.webtoons.com/en/action/6thdegree/list?title_no=3067) <sup>Hiatus - Hopium</sup>
 
     >*What is the price of revenge? Kris knows she’s different but lives in the dark about her power, controlled by her father’s supervision and her job as “The Cleaner,” doing the dirty work of the Hyuu Police Department. When she finally has a chance to learn more about herself, her father is murdered by a vicious crime syndicate. Eden, the chairwoman of a rival crime family, gives Kris another chance at life. With vengeance on her mind, will Kris adapt to her new life in the underworld, or will she fall deeper into the pit?*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a3bcf0f7-aff1-4428-8f03-88a4a81d26a9" alt="cover-image" width="200"/>
+
 - [High Class Homos](https://www.webtoons.com/en/comedy/high-class-homos/list?title_no=2723)
 
     >*Princess Sapphia of Mytilene is not into princes. So, when her parents start putting the heat on her to get hitched, she enlists the help of her equally gay best friend, Prince August of Phthia. But will these two royals be able to pull off a convincing sham marriage? More importantly, will Sapphia ever land a date with the castle maids? Follow these high class homos as they navigate life, love, and (occasionally) their actual jobs.*
+
+---
+<img src="https://cdn.anime-planet.com/manga/primary/letters-on-the-wall-1-285x399.webp?t=1706492193" alt="cover-image" width="200"/>
 
 - [Letters on the Wall](https://www.webtoons.com/en/romance/letters-on-the-wall/list?title_no=5840)
 
     >*After living 5 years in Spain, Tara returns to the hometown to obtain her bachelor's degree in the arts. Upon reuniting with her old friends and Emma, ​​her best friend when they were kids, she will discover that everyone has moved on with their lives and that she seems to have been left behind. With a new romance hidden in the past between Emma and Tara, she will have to discover the real reason she returned to Manchester.*
 
-- [REVEAL OUT!](https://www.webtoons.com/en/romance/reveal-out/list?title_no=4090)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/e8e5ca7b-cfbf-4ea3-aa7f-4aa4e1b2118e" alt="cover-image" width="200"/>
+
+- [REVEAL OUT!](https://www.webtoons.com/en/romance/reveal-out/list?title_no=4090) <sup>Hiatus</sup>
 
     >*Eeden thought she'd missed out on life: her art career is a disaster, her landlord kicked her out, and worst of all, she's never even had a girlfriend! But life takes a turn when a chance encounter with an old crush sends her back in time. Now she's 18 again and starting college, with a chance to get everything right. Armed with a plan and a crush, Eeden knows exactly how to create the life full of joy she deserves: make it bold, make it beautiful, and most of all, make it gay!!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/fdf3f35c-01b4-4ad5-96a1-3ba884ca17eb" alt="cover-image" width="200"/>
 
 - [Bugtopia](https://www.webtoons.com/en/slice-of-life/bugtopia/list?title_no=4842)
 
     >*A spider Mom and her ladybug son? A beetle power couple? A butterfly pop star? A wasp knight and a bee princess? In a world so large for these tiny bugs, anything is possible! Find out who you’ll meet, learn what secrets they all hold and enjoy your stay in this little kingdom called Bugtopia.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/7742fe31-b962-42b3-a812-33451043c3da" alt="cover-image" width="200"/>
+
 - [Winter Before Spring](https://www.webtoons.com/en/canvas/winter-before-spring-gl/list?title_no=575257) [<sup>Coming Soon</sup>](https://www.webtoons.com/en/canvas/winter-before-spring-gl/special-announcement/viewer?title_no=575257&episode_no=98)
 
     >*Hana has recently just fallen in love with her best friend, who just happens to be a girl. After a confrontation with her best friend, Hana accidentally blurts out and confesses her true feelings. Fearing that she would be rejected, her friend accepts her feelings graciously and they start dating. Is this a dream? Hana, overwhelmed with happiness as her wish came true- is suddenly struck down, her world crashing down as she finds out the nasty truth about her best friend.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c6c53365-c171-4c30-8538-b454cd7d8820" alt="cover-image" width="200"/>
 
 - [Shining Star](https://www.webtoons.com/en/canvas/shining-star-moving-to-originals/list?title_no=833310) [<sup>Coming Soon</sup>](https://www.webtoons.com/en/canvas/shining-star-moving-to-originals/exciting-news/viewer?title_no=833310&episode_no=23)
 
     >*When meeting famous model and aspiring actor Luz Lustre, Riley Summers' life turns upside down. When the paparazzi spot the duo leaving a movie premiere, several blog posts circulate over the possibility of them dating. Luz—trying to get away from a messy public break-up—suggests the two fake-date to help her career. When Luz offers to help Riley’s family restaurant from foreclosure, what will Riley do?*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/823d185a-5cb7-4a81-ac3b-a8990f5a6e7b" alt="cover-image" width="200"/>
+
 - [Girlfriend Manual](https://www.webtoons.com/en/canvas/girlfriend-manual-gl/list?title_no=888253) [<sup>Coming Soon</sup>](https://www.webtoons.com/en/canvas/girlfriend-manual-gl/announcement/viewer?title_no=888253&episode_no=20)
 
     >*Athena is desperate-- or almost at that stage. Why is dating so hard anyway?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/b29b3a73-0864-4a63-b3da-fcb889350f00" alt="cover-image" width="200"/>
 
 - [Unnie, I Like You](https://www.webtoons.com/en/canvas/unnie-i-like-you/list?title_no=652951) [<sup>Coming Soon</sup>](https://www.webtoons.com/en/creator/58998/posts/500-58998-lfm8)
 
     >*Park Chanmi is a cold-looking athletics freshman who remembers her past life. In past life, she loved the beautiful girl, but couldn't confess to her because the girl was already in love with a man and her life ended early and tragically. In this life, Chanmi thinks that everything will happen again, so she wants to protect her beloved one. But now her beloved one is a teacher at the university where Chanmi is studying.*
 
+---
+
 **Tapas**
 
----Published by Tapas---
+*\~Published by Tapas\~*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/78cee859-7117-4ffc-b49f-e31ed0652b08" alt="cover-image" width="200"/>
 
 - [The Villainess and Miss Demon Lord](https://tapas.io/series/the-villainess-and-miss-demon-lord/info)
 
     >*Transmigrated as the doomed villainess Aida Mortemer, Yao faces a peculiar challenge in a magical world. Enrolled in a magic academy without magical abilities, her plans to charm the main characters are slightly derailed when she encounters the demon lord's reincarnation. Desperate to survive and avoid her painful demise, Aida also befriends the formidable Miss Demon Lord, only to find her behavior increasingly...odd? Can Aida navigate this magical minefield and get these characters on her side?*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/5082f6de-9210-4c4b-9a72-4f3d76e3b737" alt="cover-image" width="200"/>
 
 - [Pandora's Devils](https://tapas.io/series/pandoras-devils/info) <sup>Same Creator as</sup> [<sup>High Class Homos</sup>](https://www.webtoons.com/en/comedy/high-class-homos/list?title_no=2723) <sup> - Hiatus</sup>
 
     >*For sheltered Evie, the small world of her church community is all she’s ever known. When her family and community mysteriously disappear, she must venture into Pandora City—a place where supernatural beings walk the streets—to find answers. Instead, she finds the DEVILS, an elite paranormal investigation squad. Paired with Jack, a fierce outcast with a grim past, the two become unlikely partners... and more? As their bond deepens, Evie must navigate a new world of romance, magic… and monsters.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/12c427e5-3740-470e-8688-513aec78c66e" alt="cover-image" width="200"/>
+
 - [Rainbow](https://tapas.io/series/RAINBOW/info) [<sup>Published By Tapas</sup>](https://www.amazon.com/Rainbow-Original-Graphic-Novel/dp/133901131X) <sup>, but </sup> [<sup>not Tapas Exclusive???</sup>](https://www.webtoons.com/en/canvas/rainbow/list?title_no=268239)
 
     >*Overly imaginative teenager Boo Meadows has always escaped her daily grind by living with her head in the clouds-- for better or worse. But when she meets the girl of her daydreams, it may finally be time to face reality.*
 
-- [Help Wanted](https://tapas.io/episode/838783)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ce557175-c2d8-4775-a466-f3d95415e9b7" alt="cover-image" width="200"/>
+
+- [Help Wanted](https://tapas.io/series/HelpWantedcomic/info)
 
     >*In an attempt to get out of the small town she grew up in, Anne Black moves to Minneapolis, Minnesota, where she takes the first job she can get her hands on – Live-In Caretaker at the Lynnhurst House. Her new home, however, is much more than she bargained for. Between the eccentric tenants, her cute, flirty boss, and the mysterious happenings on the property, Anne begins to suspect the Lynnhurst House is not your normal apartment building*
 
----Early Access---
+---
+
+*\~Early Access\~*
 
 *These are not exclusive.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/26ca2c56-8733-4a9a-b4b3-3aebb685218b" alt="cover-image" width="200"/>
 
 - [My Dragon Girlfriend](https://tapas.io/series/Dragon-GF/info)
 
     >*Christy is saved from a bad date by a dragon girl and introduced to world of magical creatures while falling in love with her savior.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/160c1243-f38a-4c82-a32a-c6ef207f568f" alt="cover-image" width="200"/>
+
 - [Mermaid Huntress](https://tapas.io/series/mermaidhuntress/info)
 
     >*A forbidden romance. A battle for control of the seas. Will Meela choose to save her people or the mermaid she loves?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/9ddb2074-a5c7-477c-b926-4d66e9f830e9" alt="cover-image" width="200"/>
 
 - [The Goddess](https://tapas.io/series/TheEnvoysGoddess/info)
 
@@ -768,21 +851,35 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*Story about lousy guards kidnapping a goddess.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/5a283529-bf59-4970-bead-378cbca87e40" alt="cover-image" width="200"/>
+
 - [The Sweetness of Salt](https://tapas.io/series/The-Sweetness-of-Salt/info)
 
     >*When Leah, a witch, is faced with indecipherable visions of tangled seaweed and deep water, she plans a stay at her aunt’s seaside cottage to get some answers. Instead, she finds Sha, a mermaid seeking to break her bond with the sea. It will take more than magic to find the answer they both need - and a lot more could happen along the way.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/5d1f5ab4-05c7-4bdb-9981-384a5e8bace9" alt="cover-image" width="200"/>
 
 - [Alien Heart](https://tapas.io/series/Alien-Heart/info) [<sup>Rebooted?</sup>](https://tapas.io/series/Alien-Heart-new/info)
 
     >*In the distant future, Earth as we know it has crumbled, destroyed and now dominated by mysterious monsters called 'angels'. Safe and sound inside a shielded bubble city, one scruffy queer girl with delusions of heroism stumbles her way through life as a loner. Now that she's found a brand new best friend, life can only get better... right?*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/26eb14e8-ae91-486b-b052-1550fafd71cb" alt="cover-image" width="200"/>
+
 - [Slice of Life](https://tapas.io/series/Slice-of-Life-GL/info)
 
     >*When gritty anime protagonist, Lady Vengeance, is brought to the real world, she learns there's more to life than darkness and revenge...and finds love with a kind-hearted high school cheerleader.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d714656f-23b8-438c-af33-272330dd4500" alt="cover-image" width="200"/>
+
 - [Rechargeable](https://tapas.io/series/Rechargeable/info) <sup>Hiatus</sup>
 
     >*A street gang known as The Immortals are just trying to get by and make a living for themselves. That living just happens to be manufacturing and selling some extremely illegal prosthetic tech, in the underbelly of a futuristic Australian city.*
+
+---
 
 **Webcomics**
 
