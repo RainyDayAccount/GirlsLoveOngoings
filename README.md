@@ -883,23 +883,39 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
 **Webcomics**
 
+---
+<img src="https://imgg.mangaina.com/3e1a7481600cea10bae2445d625866bc.webp" alt="cover-image" width="200"/>
+
 - [Rose's Accomplice](https://www.webcomicsapp.com/comic/Rose-s-Accomplice/6369fd498c252b181b1dc1e3)
 
     >*Dorothy Joule encounters Cecilia Browne – a rich and gorgeous "it girl" while celebrating her graduation from the police academy at a bar. The two girls, seemingly unrelated, are linked to each other by an old unsolved case. Meanwhile, Cecilia's playboy fiancé who initially avoided her has now developed an interest in conquering a cold and smart girl like her...*
 
+---
+
 **---UNLICENSED-ENG---**
+
+---
 
 **Mangadex**
 
 *Listing bookmarks > 10K*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/7301e9b0-2110-4390-9fb4-576b73b78c37" alt="cover-image" width="200"/>
+
 - [The Guy She Was Interested in Wasn't a Guy at All](https://mangadex.org/title/9d3d3403-1a87-4737-9803-bc3d99db1424/the-guy-she-was-interested-in-wasn-t-a-guy-at-all)
 
     >*A popular Twitter shorts series depicting the love story between a gyaru and her classmate she mistook as a guy outside of school, bonding over their mutual love for rock music.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/b714afa2-299e-4858-baa8-81d45bf8b27f" alt="cover-image" width="200"/>
+
 - [Their Story](https://mangadex.org/title/3f1453fb-9dac-4aca-a2ea-69613856c952/tamen-de-gushi)
 
     >*The funny romantic story of how Qiu Tong and Sun Jing met and fell in love.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/af269bf4-5d57-4142-b9da-01bd61ccb0c9" alt="cover-image" width="200"/>
 
 - [A Transmigration Vampire would like to take a Nap](https://mangadex.org/title/5eb1e122-f4bc-4b69-8ab1-906cdfb245a0/tensei-kyuuketsuki-san-wa-ohirune-ga-shitai)
 
@@ -909,13 +925,22 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*Are you really the protagonist!? And thus begins the fantasy comedy of a vampire looking for the ideal moocher lifestyle.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d223fea7-9cbf-41aa-bb51-b3d521f1493a" alt="cover-image" width="200"/>
+
 - [The Fed-Up Office Lady Wants to Serve the Villainess](https://mangadex.org/title/5ec0922a-4869-4e6b-a154-2307945cc406/the-fed-up-ol-wants-to-serve-the-great-villainess)
 
     >*Three years after graduating college, Natori Midori, who once idealized the "grown-up adults" she saw as a child, is working hard at her job as a temporary employee. However, one day, her contract is suddenly terminated for an absurd reason. As she sits there, wondering if there would ever be a workplace for her to devote herself to, her phone flashes and she finds herself in the world of the novel RPG she was playing. And before her eyes is the villainess, Lapis Tenebrae, who betrayed the heroine and committed countless atrocities before losing her life!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/40d83c9b-b217-4db6-9cdc-217cd24b533f" alt="cover-image" width="200"/>
+
 - [I Won't Sleep with You for Free](https://mangadex.org/title/73962987-7e02-4126-8405-4d75c2188d7f/tada-de-wa-dakaremasen)
 
     >*Miyako Kirishima, a university student and aspiring teacher, is a poor girl who enjoys being frugal. One day, she has a meal with Yui Nakano, her friend whom she occasionally tutors. On the way home, Yui invites her to a love hotel. Miyako is reluctant, unwilling to have sex with a friend. However, Yui cuts her off, offering her 30000 yen for sex! Subsequently, Miyako ends up in more "transactions" with her other friends at her women's university!? The curtain rises on a tale of yuri, friendship, money, and sex♡.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/07f1828e-2a93-46f3-b839-6ba846998eee" alt="cover-image" width="200"/>
 
 - [Liar Satsuki Can See Death](https://mangadex.org/title/fac1870c-2ca1-439c-bd97-020dbbd732f0/usotsuki-satsuki-wa-shi-ga-mieru) <sup>GL Subtext on Mangaupdates</sup>
 
@@ -932,13 +957,22 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*--For every death(question), there must be a reason(solution)--*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/f972a577-89e4-413c-b8b0-352745645910" alt="cover-image" width="200"/>
+
 - [Our Yuri Started with Me Getting Rejected in a Dream](https://mangadex.org/title/1d2967dd-d157-4cbb-84ed-ea7cf7140d14/yume-de-furarete-hajimaru-yuri)
 
     >*For your very average high school girl, Tsukushi, there's her cool and beautiful childhood friend (with some very particular weaknesses) Hinoka. Tsukushi always thought they would be normal childhood friends forever… That is until Tsukushi saw Hinoka rejected her confession in a dream. The hypnagogic romantic comedy between a cheery maiden, and a cool girl which begins with a dream, starts right now!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/07aade5d-0e07-4dfb-9215-ee623a353e5a" alt="cover-image" width="200"/>
+
 - [I Went to School to be a Swordswoman, But My Magical Aptitude is 9999!?](https://mangadex.org/title/6b0cc881-e67f-438a-a57e-b2c598509b12/kenshi-wo-mezashite-nyuugaku-shita-no-ni-mahou-tekisei-9999-nan-desu-kedo) <sup>Not Listed as GL on Mangaupdates</sup>
 
     >*Laura, who had learned special education to become a swordsman from her A-Rank adventurer father, enters the Royal Capital’s Adventurer’s School at 9-years old. Laura was filled with expectation in her heart, and at the day of the entrance ceremony, Laura’s sword aptitude value sprang out at 107. Between normal students with only 50-60 aptitude value, Laura was definitely a sword genius. But, the magic aptitude value that was measured after that was 9999! Laura was stunned, while she didn’t know what was happening she was transferred to the Magic Department. Contrary to Laura’s will, she exerts her super-genius, and instantly became stronger than the instructors.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a79fdd44-9063-43be-b2b7-e2f208d572e0" alt="cover-image" width="200"/>
 
 - [The Engagement of the Disgraced Witch and the Cross-Dressing Princess](https://mangadex.org/title/49496e76-08b8-4d47-aced-a13f2f8d90a4/kiraware-majo-reijou-to-dansou-ouji-no-kon-yaku)
 
@@ -948,29 +982,50 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*The curtain rises on a fantasy romantic comedy of a girl being teased by a princess!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a9ba9a45-970b-45d3-b465-ba3d9166377d" alt="cover-image" width="200"/>
+
 - [The Public Moral Committee Member and the Delinquent Who Will Be Together in the Future](https://mangadex.org/title/e19f3a7e-b5cc-44c6-adb2-6d73f41d6b0e/the-public-moral-committee-member-and-the-delinquent-who-will-be-together-in-the-future)
 
     >*No Description*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/6cb8500e-2624-4314-84e4-dfa0c28f8ae3" alt="cover-image" width="200"/>
 
 - [I was Confessed to by my Beautiful Oshi](https://mangadex.org/title/940a516f-9efc-492d-8459-3676ee71b2bd/oshi-no-bishoujo-ni-kokuhaku-sareru-hanashi)
 
     >*A yuri romcom manga where an otaku is confessed to by the pretty girl she declares as her oshi and they start dating.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/0d84a98b-b0d2-403e-8ec3-1848cbf6a8d3" alt="cover-image" width="200"/>
+
 - [My Wish Is To Fall In Love Until You Die](https://mangadex.org/title/0c44cf39-3d6c-4472-815b-9e163613cfe9/kimi-ga-shinu-made-koi-wo-shitai)
 
     >*There is an orphanage, a “school”, that raises girls with no relatives as weapons of war. Every day, students are taught to kill other people and take their lives without any mourning. One night, a fourteen-year-old Sheena, who had never been able to accept her circumstances, met a little girl named Mimi, covered in blood.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/09248863-10f8-4fe7-8deb-2f173e35acdd" alt="cover-image" width="200"/>
 
 - [Anemone is in Heat](https://mangadex.org/title/c5d731f9-c1cf-4a69-a797-cd9c2a58316b/anemone-is-in-heat)
 
     >*Nagisa Ootsuki shed her former self out of shame from failing her highschool entrance exams. On her first day in her new highschool, who does she meet but the girl who made her fail the exam! How does Nagisa deal with these complicated emotions?*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/380aaa1b-5063-4512-b96f-bdb48684c286" alt="cover-image" width="200"/>
+
 - [Akebi-chan's Sailor Uniform](https://mangadex.org/title/770c61b9-0ef2-460b-8c25-c10ab23349ce/akebi-chan-no-sailor-fuku) <sup>GL Subtext on Mangaupdates</sup>
 
     >*The setting is Roubai Private Academy, a prestigious girls’ middle school in the country. For Akebi Komichi, donning this school’s sailor uniform is a dream come true. Her middle school dream life is finally beginning! Verdant open countryside vistas. The slowly flowing time of youth. With a gentle touch, the genius artist Hiro brings you this simple school tale… now enrolling!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3777fc75-6449-4300-ac41-34ccec96d8d6" alt="cover-image" width="200"/>
+
 - [My Angel Childhood Friend Was a Gal When We Met Again](https://mangadex.org/title/a6a9c19f-ccc5-44af-8bec-7da090220bd3/childhood-friend-big-love)
 
     >*No Description*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/679a1198-a898-4632-9067-a4420d981715" alt="cover-image" width="200"/>
 
 - [There's No Way I Could Date My Fave!](https://mangadex.org/title/3d287418-9bd7-4bf4-b71b-1c4512812a50/oshi-to-no-yuri-wa-arienai)
 
@@ -978,27 +1033,45 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*A wholesome all-ages manga that isn't illegal at all! 😇😇😇*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/5e7de801-b1d1-4bc2-94ee-e0b40b4f8d0a" alt="cover-image" width="200"/>
+
 - [Sexiled: My Sexist Party Leader Kicked Me Out, So I Teamed Up with a Mythical Sorceress!](https://mangadex.org/title/4aee683e-ad5f-4fdb-a803-b873a806a28c/onna-dakara-to-party-wo-tsuihou-sareta-no-de-densetsu-no-majo-to-saikyou-tag-wo-kumimashita)
 
     >*Tanya Artemisiov is a talented Mage-class adventurer who just got kicked out of her party by a sexist scumbag. So what's a girl to do? Go to the wasteland and blow stuff up of course! One small problem though: she inadvertently frees a mythical Sorceress named Laplace who was sealed away for the past 300 years...*
 
     >*Surprise! Turns out this so-called "wicked" Sorceress is actually pretty cool. Laplace wants to start a party of her own, Tanya wants revenge, and the solution is obvious: team up. It's time to kick ass, kiss girls, and dismantle the patriarchy!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/de0ff198-ca44-42af-b425-312e261a9c73" alt="cover-image" width="200"/>
+
 - [Satanophany](https://mangadex.org/title/ba8767ca-a8c6-4e80-a371-b220a7813bd0/satanophany)
 
     >*A mysterious syndrome turns schoolgirls into homicidal monsters behind numerous atrocities in Japan. However, nothing is what it seems and when Chika Amagi is arrested for the brutal murder of five people, a journey into uncharted, troubled waters begins!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/224db072-c069-4b34-8f87-b81c2161e40d" alt="cover-image" width="200"/>
 
 - [Sorry, but I’m Not into Yuri](https://mangadex.org/title/8f3e1818-a015-491d-bd81-3addc4d7d56a/warui-ga-watashi-wa-yuri-ja-nai)
 
     >*In an attempt to win her homeroom teacher's heart, Itsumi Toudou purchased a shady love potion, and tested it out on her stuck-up student committee president, Yomotsuka. Now, she has an uncharacteristically affectionate girl to deal with, and she's not even a lesbian! Right?*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/12585f71-c9e9-41f3-9c97-f68c88c7f3e0" alt="cover-image" width="200"/>
+
 - [A Girl Whose Breasts Are a Little Big and Is Kinda Pretty](https://mangadex.org/title/1ed9422e-4053-40c5-9ff9-ed331c6088b1/a-girl-whose-breasts-are-a-little-big-and-is-kinda-pretty?tab=chapters) <sup>Same Creator as</sup> [<sup>Breasts Are My Favorite Things in the World!</sup>](https://yenpress.com/titles/9781975310035-breasts-are-my-favorite-things-in-the-world-vol-1)
 
     >*Morishima decides to confront a couple of girls that are gossiping about her.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4ab60519-3b1b-4d6d-911b-6b1c7a319d3d" alt="cover-image" width="200"/>
+
 - [Onii-chan Is Done For! - Highschool ONIMAI (Doujinshi</sup>](https://mangadex.org/title/04789891-74e5-49e8-896e-63a09f2e8f56/onii-chan-is-done-for-highschool-onimai?tab=chapters)
 
     >*Without being able to return to being a man, Mahiro Oyama stayed as a girl since middle school and now has become a beautiful high-schooler who gets completely dominated by his first friend since the transformation, Momiji Hozuki, who has gotten really tall and became popular with the girls in their school.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ebbb87e3-6d57-49a3-830e-4384fb9f3ab8" alt="cover-image" width="200"/>
 
 - [I See You, Aizawa-san!](https://mangadex.org/title/f110d48a-8461-428e-bbcb-5ae3c0d53d25/mietemasu-yo-aizawa-san)
 
@@ -1006,61 +1079,106 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*Still, no matter what ghost it is, Michi's not getting involved. Though while she steels her heart, her eyes keep coming back to Honami's bizarre antics and passionate fanservice...(?)*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/30711385-b829-407e-99e6-0dfaff1d34c0" alt="cover-image" width="200"/>
+
 - [Daily Life of a Couple in Which the Boyfriend Became a Girl One Day](https://mangadex.org/title/061dfe00-45bb-4cd8-86fc-73bc5d749791/daily-life-of-a-couple-in-which-the-boyfriend-became-a-girl-one-day)
 
     >*A couple's daily life as they adjust to the boyfriend turning into a girl.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8235d778-9a4d-4c50-a2b1-055a3076abdc" alt="cover-image" width="200"/>
 
 - [Virgins' Empire](https://mangadex.org/title/d4d43c50-ce1a-4751-b474-e239cf862f2a/otome-no-teikoku)
 
     >*A peek into the "everyday nudity" of high school girls. Virgins’ Empire is a look into the lives of seven high school girls attending an all girls school. We follow them as they grow relationships with one another. Some more intimate than others.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/b55c8998-ebc8-4a7b-9b0a-c1773d389734" alt="cover-image" width="200"/>
+
 - [Kaguhara's Fetish Notebook](https://mangadex.org/title/0e6c8a1b-df05-43b0-8f15-14ef8b41867f/kaguhara-s-fetish-notebook)
 
     >*Kaguhara Ririka is a plain, friendless and often overlooked first year girl at Fuetchi Senior High. However, she has one hobby in particular that she can never tell a soul about; that being her dedication to her fetish and recording her observations of how it manifests itself in all sorts of unique ways amongst her classmates.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/490a3be9-b86c-4dde-9865-8d7431d860de" alt="cover-image" width="200"/>
 
 - [I Bought a Beautiful Female Slave with Big Breasts for the Sake of Doing Lewd Things with Her, but She Adores Me As Her Teacher and Things Don’t Go the Way I Expected](https://mangadex.org/title/5cfad028-38b1-4f50-a282-70ac438fa91a/eroi-koto-suru-tame-ni-kyonyuu-bishoujo-dorei-o-katta-hazu-ga-oshishou-sama-to-shitawa-rete-omotta)
 
     >*Halo is a talented female elf magician who has memories of when she was a man in her previous life, which is why she wishes to make out with a cute girl. Halo decides to buy Filia, a beautiful female slave with big breasts, but things don’t go as she expects them to...*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a917693e-2f61-4570-8b14-9b33708a7884" alt="cover-image" width="200"/>
+
 - [My New Friend Wasn't What I Expected](https://mangadex.org/title/6d957e71-2468-4043-8b6a-acffd0a23591/my-new-friend-wasn-t-what-i-expected)
 
     >*First impressions are important, but they're not the whole story...*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c669b503-60e2-4593-987f-0e38f7b237f9" alt="cover-image" width="200"/>
 
 - [Love Situations of People Who Change Genders When Embarrassed](https://mangadex.org/title/e15edcc8-ebf2-4ad9-88a9-949e1eed0f50/love-situations-of-people-who-change-genders-when-embarrassed)
 
     >*No Description*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/50293699-1ffa-43ef-9b30-e864d229b316" alt="cover-image" width="200"/>
+
 - [Plainy and Gyaru](https://mangadex.org/title/45940992-c41c-4d5c-a921-a42e5041b374/plainy-and-gyaru)
 
     >*A sequel to This Plain Girl's Skirt Will Shrink By 0.1mm For Every Like, comprising a collection of stories revolving around Plainy and Gyaru's life during their high school years and in university.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/f72af600-b307-4bd1-807f-efd440e7225a" alt="cover-image" width="200"/>
 
 - [The Results of My Author/Classmate Discovering My Yuri Obsession](https://mangadex.org/title/8c3ec304-b5d3-41d9-864c-b53e98729c25/the-results-of-my-author-classmate-discovering-my-yuri-obsession)
 
     >*What happens when a classmate finds out about another girl's secret yuri obsession/feelings? A yuri comedy ensues!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/12db0b65-a1f9-4c75-aab4-687df8e07100" alt="cover-image" width="200"/>
+
 - [EX-ARM](https://mangadex.org/title/91b5911c-7112-4944-baa3-c53370da096d/ex-arm) <sup>Not Listed as GL on Mangaupdates</sup>
 
     >*Akira Natsume seems to almost have a phobia of electrical devices while also being very good at diagnosing them. He resolves to change himself for the better and get a girlfriend like his older brother did. …But then Akira suddenly dies in an accident. 16 years later a special policewoman and her android partner retrieve and activate a highly advanced AI and superweapon called EX-ARM and put it into full control of their ship as a last resort. Turns out the AI is actually just Akira's brain!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ff08bda0-bb52-46a0-88e0-997741cf56bb" alt="cover-image" width="200"/>
 
 - [Alcohol and Ogre-girls](https://mangadex.org/title/26074407-7b3b-4fc9-8c4b-03747e9380c0/alcohol-and-ogre-girls)
 
     >*Shida Naori is a college student who loves making alcoholic drinks but has no friends to share them with. At a mixer, she meets Ibuki Hinata, who she ends up taking home with her. After making her a drink, Naori discovers that Hinata is an ogre-girl descended from Shuten-doji who needs alcohol to live, can only drink alcohol offered to her by humans, and grows horns whenever she drinks. Thus, Hinata decides to make Naori her personal bartender.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/1c0aa0e3-3dfe-425c-ab70-42b89badc65e" alt="cover-image" width="200"/>
+
 - [A Manga About a Hero Who Pulled Out the Holy Sword and Became a Girl](https://mangadex.org/title/6b92ea1b-4f46-4950-a731-f8de48bd66e2/a-manga-about-a-hero-who-pulled-out-the-holy-sword-and-became-a-girl) <sup>Inactive</sup>
 
     >*A hero's wish comes true. He becomes a girl.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/17723864-1584-4f34-b844-c6fd3c8b3756" alt="cover-image" width="200"/>
 
 - [Gal Maid & Villainess: Only Milady's Happy End Will Win!](https://mangadex.org/title/8a889112-f43a-4960-8fb8-68bec0bd85cf/gal-maid-villainess-only-milady-s-happy-end-will-win)
 
     >*A gyaru named Serina is reincarnated into the world of an otome game as a background character who is sold off by her family and now works as the exclusive maid of the game's villainess Almelia. Yuri romcom hijinks ensue.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/712d4cf7-4ae0-43ed-9073-6c7d84bf2424" alt="cover-image" width="200"/>
+
 - [Just Let Your Future Burn!](https://mangadex.org/title/37e6a45f-3eda-4f27-93d0-84ec8e8c34a7/shouraiteki-ni-shinde-kure)
 
     >*A girl tries to "buy" her female classmate with money.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8e557f6a-3979-4610-9916-3ec0c0a5d708" alt="cover-image" width="200"/>
+
 - [An Angel Flew Down to Me!](https://mangadex.org/title/79dff01d-d7c7-415d-bb30-55af681cbce0/watashi-ni-tenshi-ga-maiorita) <sup>Not Listed as GL on Mangaupdates</sup>
 
     >*The four-panel comedy manga's story centers on Miyako Hoshino, a shy college student and otaku. Miyako's younger sister Hinata, who is a fifth grader, has a classmate and friend named Hana. When they meet, Miyako falls for Hana at first sight.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/15fc5bf3-e312-400f-b4ff-b6c1ee61c648" alt="cover-image" width="200"/>
 
 - [My Friend's Abnormally Cute Sister](https://mangadex.org/title/1a91719c-1009-482a-9915-389a366505e7/osananajimi-no-ijou-kawaii-imouto-chan)
 
@@ -1068,45 +1186,78 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*One day, while rummaging through Mizuki's personal belongings in her room, Yanagi discovers the truth about Mizuki...?*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/7d6684ca-83f9-4b80-9a6f-50e5f53df55b" alt="cover-image" width="200"/>
+
 - [Liberta](https://mangadex.org/title/d6f4aea2-d798-412f-9368-5bb3143cd50c/liberta) <sup>Same Creator as </sup> [<sup>Tadokoro-san</sup>](https://mangadex.org/title/8ffbfa2f-23fa-4490-848e-942581a4d873/tadokoro-san)
 
     >*An office worker named Komari is saved from a monster by a mysterious vampire named Liberta. Sex and violence ensues.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/225489e7-ccf8-4804-9f30-9f1e0b489d55" alt="cover-image" width="200"/>
 
 - [The Hero's Granddaughter and the Demon King's Daughter](https://mangadex.org/title/7244463a-ebd5-4fb4-b71a-96d93008c1d6/yuusha-no-mago-to-maou-no-musume) <sup>GL Subtext on Mangaupdates</sup>
 
     >*After the great battle between the Demon King and the Hero, justice prevailed and the devils scattered. The Demon King was killed. A few years later, the Demon King's daughter went on a journey to find her father's heritage, and met the granddaughter of the Hero. Could this journey signal a new start for the two?*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/33db5b12-66bb-4c6a-8355-8ce0562d8d11" alt="cover-image" width="200"/>
+
 - [Miss Okiku Wants to Possess](https://mangadex.org/title/f0f4bb91-563d-49cd-b6b4-22de131638dd/okiku-san-wa-ichatsukitai)
 
     >*The centuries-old evil spirit Okiku has decided to return with one objective: flirting as much as possible with Hijiri Ryouyou - the most powerful and beautiful exorcist of modern times.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/7c681f2d-fe7f-4b5c-9d31-920d3c13b235" alt="cover-image" width="200"/>
 
 - [A Story about a Gal and a Committee Chairwoman Who Meet Again by Coincidence](https://mangadex.org/title/7910cdf8-962c-452c-9a5d-0f91f9c766e5/gal-to-iinchou-ga-guuzen-saikai-suru-hanashi)
 
     >*After finishing her errands, Marina heads for the bus stop on her way home. However, there she runs into the drunken former committee chairwoman from her high school days. She thinks she doesn't remember her, but while she's taking care of her, she says to her, "You used to avoid me...," which is very meaningful to her...?*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/64fc809f-365b-4916-b586-e400a14cad9a" alt="cover-image" width="200"/>
+
 - [Touko-san Can't Take Care of the House](https://mangadex.org/title/7d8abcfa-697d-4d34-98e3-986671c8a936/touko-san-wa-kaji-ga-dekinai) <sup>Hiatus</sup>
 
     >*When Akari is sent to live with her mom's old friend, she's surprised to find that the hard-working Touko-san she's heard so much about is actually a reckless adult with no knowledge of housekeeping whatsoever! What's to become of Akari now that she's a highschooler with the world's most unreliable roommate?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/f6a38b38-1de5-4a81-a273-ac5986a211e0" alt="cover-image" width="200"/>
 
 - [You Are Totally In Love With Me, Aren't You?](https://mangadex.org/title/283c8548-55d3-4fed-90cc-75e8c05e2fab/zettai-watashi-no-koto-suki-daro) <sup>Hiatus</sup>
 
     >*Sayaka's friend, Mako, is a bit weird. And she's totally in love with Sayaka. Or maybe not?*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4daee0d8-f367-492e-83ba-e7e44087c9c1" alt="cover-image" width="200"/>
+
 - [My Best Friend Who I Love Fell Completely in Love With My Vtuber Self](https://mangadex.org/title/65361a37-9f9a-4f95-92fa-d6810f0fab17/my-best-friend-who-i-love-fell-completely-in-love-with-my-vtuber-self)
 
     >*Manga artist Oshiga Sukoya is in love with the Vtuber Doujima Taiga and constantly gushes about her to her best friend Hariyama Teruko. Little does Sukoya know that Teruko is a)the person behind Doujima Taiga and b) secretly in love with Sukoya.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/7c688e41-da45-46e5-8d47-d8f8e25180de" alt="cover-image" width="200"/>
 
 - [Housewife X JK](https://mangadex.org/title/093a607f-5e60-454c-ad23-16797e6bec4b/housewife-x-jk) <sup>Same Creator as</sup> [<sup>Does it Count if You Lose Your Virginity to an Android?</sup>](https://sevenseasentertainment.com/series/does-it-count-if-you-lose-your-virginity-to-an-android/)
 
     >*A housewife and her daughter's friend have a little affair. Will they be caught or will it end as just "sex-friends"?*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/cee21e10-9c73-41f3-bc36-9e6116f9d79b" alt="cover-image" width="200"/>
+
 - [Amasaya](https://mangadex.org/title/18f42811-ce55-4143-ae30-b97e30e6cf82/amasaya)
 
     >*The cool, black-haired Amamiya Aoi and the blonde-haired gyaru Shiina Saya.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/29fb73c7-c014-4e10-81c0-a2987013721d" alt="cover-image" width="200"/>
+
 - [Boyish Girl × Gyaru](https://mangadex.org/title/a296a0a2-7b49-404b-a967-24b4d5849b96/boyish-girl-gyaru)
 
     >*A boyish girl and a gyaru are dating.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/37af698b-2739-4df0-ad71-5571e2b6da19" alt="cover-image" width="200"/>
 
 - [How I Lose Bets With My Sadistic Gifted Childhood Friend and She Steals All of My Firsts](https://mangadex.org/title/cdf75cd8-4e87-4bde-a430-44ea174cc035/shouwaru-tensai-osananajimi-to-no-shoubu-ni-makete-hatsutaiken-o-zenbu-ubawareru-hanashi)
 
