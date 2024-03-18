@@ -253,7 +253,7 @@
 ---
 <img src="https://images.yenpress.com/imgs/9781975375416.jpg?w=408&h=612&type=books&s=df35bc6c95e49366c6a71eb219e40c9e" alt="cover-image" width="200"/>
 
-- [I've Been Killing Slimes for 300 Years and Maxed Out My Level](https://mangadex.org/title/14610263-264a-4c22-8928-e4183e7d4719/slime-taoshite-300-nen-shiranai-uchi-ni-level-max-ni-nattemashita) [<sup>Yen Press - Jul 20, 2024 - Not Listed as GL</sup>](https://yenpress.com/series/i-ve-been-killing-slimes-for-300-years-and-maxed-out-my-level-manga)
+- [I've Been Killing Slimes for 300 Years and Maxed Out My Level](https://mangadex.org/title/14610263-264a-4c22-8928-e4183e7d4719/slime-taoshite-300-nen-shiranai-uchi-ni-level-max-ni-nattemashita) [<sup>Yen Press - New Release on Jul 20, 2024 - Not Listed as GL</sup>](https://yenpress.com/series/i-ve-been-killing-slimes-for-300-years-and-maxed-out-my-level-manga)
 
     >*From corporate slave to a laid-back witch—reincarnation’s a pretty sweet deal! Or so Azusa believes until her maxed-out status comes to light...In this new manga adaptation of the original novel, enjoy the hilarity that ensues as Azusa attempts to evade all forms of adventure and regain her lazy life!*
 
@@ -334,7 +334,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 ---
 <img src="https://fyre.cdn.sewest.net/manga-books/64deed0daed7bb35a2ace635/cover_img_247x350_othersidepicnic_09_coverfinal--ARkB0M1F.jpg" alt="cover-image" width="200"/>
 
-- [Otherside Picnic](https://mangadex.org/title/26e40241-4a4e-4d12-a04d-cb3f7f707100/urasekai-picnic) [<sup>Square Enix</sup>](https://squareenixmangaandbooks.square-enix-games.com/en-us/series/otherside-picnic)
+- [Otherside Picnic](https://mangadex.org/title/26e40241-4a4e-4d12-a04d-cb3f7f707100/urasekai-picnic) [<sup>Square Enix - New Releases on Jul 9, 2024 and Nov 5, 2024</sup>](https://squareenixmangaandbooks.square-enix-games.com/en-us/series/otherside-picnic)
 
     >*In this sci-fi/fantasy survival thriller, the dangerous and deadly realm of the Otherside--where urban legends, cryptids, and folkloric legends roam--calls to two women, both in search of something. As they set out to sate their curiosity and explore this other world, will the most earth-shattering thing they discover on the Otherside be their feelings for each other?*
 
@@ -375,7 +375,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4f1d299b-84cd-4251-bd7b-73b49f802699" alt="cover-image" width="200"/>
 
-- [If My Favorite Pop Idol Made It to the Budokan, I Would Die](https://mangadex.org/title/491bdbe0-0c83-42d5-8b20-3a651e65f70b/oshi-ga-budoukan-ittekuretara-shinu) [<sup>Tokyopop</sup>](https://tokyopop.com/products/9781427875341_if-my-favorite-pop-idol-made-it-to-the-budokan-i-would-die-volume-5)
+- [If My Favorite Pop Idol Made It to the Budokan, I Would Die](https://mangadex.org/title/491bdbe0-0c83-42d5-8b20-3a651e65f70b/oshi-ga-budoukan-ittekuretara-shinu) [<sup>Tokyopop - New Release on Nov 5, 2024</sup>](https://tokyopop.com/products/9781427875341_if-my-favorite-pop-idol-made-it-to-the-budokan-i-would-die-volume-5)
 
     >*Forthright and impetuous Eripiyo is the number one stan for Maina, a sidelined member of the underground idol group Cham Jam, spending a fortune on CDs, merch, and fan meetings to support her fave. As fan events come and go, Eripiyo remains steadfast in catching a glimpse of Maina at every opportunity — and despite her shy personality, Maina's adoration and gratitude for Eripiyo's support is beginning to bridge the awkward gap between them as idol and fan.*
 
@@ -1414,115 +1414,199 @@ They've nicknamed her Usotsuki (Liar).*
 
 *GL is not a Tag so kinda winging it*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c6f87306-880a-409d-8610-a736c8120827" alt="cover-image" width="200"/>
+
 - [The Recloseted Lesbian](https://www.webtoons.com/en/canvas/the-recloseted-lesbian/list?title_no=474263)
 
     >*I tried coming out as a lesbian. My abusive, ultra-religious mother forced me back into the closet. Doing these little strips is one of my ways to cope.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8078801e-c080-448d-aea8-c479fd967985" alt="cover-image" width="200"/>
 
 - [Lesbiampires](https://www.webtoons.com/en/canvas/lesbiampires/list?title_no=307640)
 
     >*Daphne and Veronika are a couple of vampires living in a human society and taking advantage of it. New episodes every week*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/f80fd6a2-cc6d-4bbc-ad0d-a538ffb53bd0" alt="cover-image" width="200"/>
+
 - [Susuhara is a Demon](https://www.webtoons.com/en/canvas/susuhara-is-a-demon-gl/list?title_no=382294)
 
     >*After a perfect girl encounters an infamous delinquent, her life is thrusted into a whirlwind of chaos! Strap in for a ride jam-packed with terribly embarrassing flirting techniques, kick-ass delinquents and existential dread by the buttload! Nothing could possibly go wrong in this perfectly imperfect love story. (Updates every other Tuesday!)*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/639fa7c7-a34f-4a56-9af7-cbef538b0044" alt="cover-image" width="200"/>
 
 - [In My Heart](https://www.webtoons.com/en/canvas/in-my-heart-gl/list?title_no=272623)
 
     >*Sasaki Mari is a typical delinquent troublemaker whose only goal is to get a boyfriend, but due to her reputation as bully and low grades, all the boys reject her. Then she decides to change her style, and asks for help from the student with the best grades in the class.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3386daf6-5df6-413d-ae80-2a685ba6a4e4" alt="cover-image" width="200"/>
+
 - [What are the Chances](https://www.webtoons.com/en/canvas/what-are-the-chances/list?title_no=480113)
 
     >*Tricia believes that love is overrated. But when Elise walked in on the family bookshop she's working at, things began to change. After the encounter, she began seeing memories from her previous life and dreams about Elise every night. Who was Tricia in Elise's life before? She feels like the universe keeps playing a game with her. Witness this unlikely journey of friendship, acceptance, love and of life and death.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/1376443c-b6f0-4462-9d44-53cfd4748ae5" alt="cover-image" width="200"/>
 
 - [The Greenhouse](https://www.webtoons.com/en/canvas/the-greenhouse-gl/list?title_no=278312)
 
     >*UPDATES EVERY TWO WEEKS on Saturdays. When a random stranger on the streets told her she was cursed, Mica didn't believe it. But once she's moved into her new apartment after being kicked out, she's starting to reconsider what they said might have been true. (GxG)*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/55830473-8974-4700-a379-d93ad0b2f9fe" alt="cover-image" width="200"/>
+
 - [P.E.T.S](https://www.webtoons.com/en/canvas/pets/list?title_no=221082)
 
     >*Just when Tasha is about to start a new life, she gets abducted by aliens. An interstellar General named Tourmaline comes to the rescue! She soon discover she's unable to return home. Join her on her journey traversing this new world and these new feelings for an alien general. [SLOW BURN]*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4766a892-070d-4564-b72d-49f4fae10793" alt="cover-image" width="200"/>
 
 - [Diamond Dive](https://www.webtoons.com/en/canvas/diamond-dive-gl/list?title_no=268118)
 
     >*When Karta Kloss entered Montgomery University marked as a witch of special talent, she didn’t expect to end up with a crush that would challenge the very system of the world she just joined. Not to worry though, she isn’t the type to give up easily. Join Karta and her new friends in their fight against homework, old traditions and a weirdly persistent demon from Hell - all in the name of love! [Updates twice a month.]*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/6891991e-8e2c-4065-b48b-191cae7bdc16" alt="cover-image" width="200"/>
+
 - [Fatal Kiss](https://www.webtoons.com/en/canvas/fatal-kiss-gl/list?title_no=641203) <sup>Hiatus</sup>
 
     >*What would you do if your crush was a monster?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a2324504-5166-46a6-ae87-23bd5b7f4de4" alt="cover-image" width="200"/>
 
 - [Ruthless](https://www.webtoons.com/en/canvas/ruthless-gl/list?title_no=826576) <sup>Same Creator as </sup> [<sup>Illicit</sup>](https://www.webtoons.com/en/canvas/illicit-gl/list?title_no=250559)
 
     >*(Updates every 8 days - 12 pm EST TIME) Seo Jimin lives by three rules, and a significant lesson from her parents, never get too close to anyone. She loves her independence, avoiding long-term connections. It’s all about the enjoyment without the relationship drama. This approach might get her a bad reputation at the university, but it prevents heartache, especially for her. Then, a strikingly beautiful neighbour arrives…*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3cdff5ef-e652-4909-987e-73c7ea930d1c" alt="cover-image" width="200"/>
+
 - [Eldritch Darling](https://www.webtoons.com/en/canvas/eldritch-darling/list?title_no=821877)
 
     >*What if we kissed and we were both girls? And one of us was an oblivious human and the other was a dark eldritch abomination creature from beyond the stars?? [updates fridays]*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/cd635e33-703e-4733-8317-37e2d467916c" alt="cover-image" width="200"/>
 
 - [The Siren's Light](https://www.webtoons.com/en/canvas/the-sirens-light-gl/list?title_no=658256)
 
     >*In a coastal town haunted by an ominous warning, "Never sail into the sea when your heart bears the weight of sorrow," Jaena, burdened by the pain of a recent breakup, stumbles upon a mystical encounter that changes her life forever. As the deep sea threatens to swallow her whole, an alluring beauty emerges from the depths, followed by a kiss that ignites a bond between two worlds — that of a human and an annoying, flirtatious siren.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/0c8171cb-d7db-448d-86d8-784ade65a249" alt="cover-image" width="200"/>
+
 - [Love, Lila](https://www.webtoons.com/en/canvas/love-lila-gl/list?title_no=368265) <sup>Hiatus</sup>
 
     >*A one-sided love & rivalry between an aspiring ballerina and an artist. Irene comes from a strict and close-minded household which is against her pursuing a career in arts, as a result of her upbringing she became cold, insecure, and distrustful. Then she met Lila, a perfect girl who has everything and is everything Irene wishes to become. But as she gets to know Lila better, she discovers that her privileged upbringing actually hides a traumatic family secret.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c03c1596-95fd-4d9a-afe3-dcfc72ff3591" alt="cover-image" width="200"/>
 
 - [Hate That I Like You](https://www.webtoons.com/en/canvas/hate-that-i-like-you-gl/list?title_no=774528)
 
     >*10 years ago, a teenage girl Kim Jisoo was rejected by her first love Jung Aerin...*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8474df25-ae4b-4b79-8c56-9341e2dc78f5" alt="cover-image" width="200"/>
+
 - [HeartWorker](https://www.webtoons.com/en/canvas/heartworker-/list?title_no=807311)
 
     >*Amelia (32) gets along really well with her best friend's little sister Emma (26) A few snippets of the life of a pair of roommates/fwb...*
 
+---
+
 *Highest Rated Ongoing on Webtoons that I could find*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/f01a6f40-e236-4616-833b-70bac3cf9783" alt="cover-image" width="200"/>
 
 - [My Sweet Archenemy](https://www.webtoons.com/en/canvas/my-sweet-archenemy-new/list?title_no=908261)
 
     >*A queer comedy between the incompetent super villain, Made Spade and the overworked super heroine, Miss Sunshine!*
 
+---
+
 *Also By*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/9795264b-f059-4c47-aa4a-4c669d291e6f" alt="cover-image" width="200"/>
 
 - [Seven Days in Silverglen](https://www.webtoons.com/en/canvas/seven-days-in-silverglen-gl/list?title_no=775479) <sup>Same Creator as </sup> [<sup>Always Human</sup>](https://www.webtoons.com/en/romance/always-human/list?title_no=557) <sup> and </sup> [<sup>Aerial Magic</sup>](https://www.webtoons.com/en/fantasy/aerial-magic/list?title_no=1358)
 
     >*Tess is a professional working gorgon. She's responsible, organised, and would never do anything as ridiculous as agreeing to fake date a coworker. Except, inexplicably, she did? // GL // romcom // modern fantasy // very slow burn // honestly mostly pining // updates every Saturday*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/f5054f73-36ef-4056-9e7a-a9db7484d67b" alt="cover-image" width="200"/>
+
 - [Picky on You](https://www.webtoons.com/en/canvas/picky-on-you-gl/list?title_no=836758) <sup>Same Creator as </sup> [<sup>Finding Wonderland</sup>](https://www.webtoons.com/en/fantasy/finding-wonderland/list?title_no=2704)
 
     >*Two exes now have to work together and pretend like nothing ever happened between them, don't they?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/b99459a7-6131-4a08-b1e0-1de00fc0c2f7" alt="cover-image" width="200"/>
 
 - [Dragon's Mercenary](https://www.webtoons.com/en/canvas/dragons-mercenary/list?title_no=925663) <sup>Same Creator as </sup> [<sup>Kiss It Goodbye</sup>](https://www.webtoons.com/en/canvas/kiss-it-goodbye/list?title_no=443703)
 
     >*A young half-dragon girl has to travel back to her home. A stoic mercenary is accompanying her during her journey. A light slow-burn journey in a fantasy world.*
 
+---
+
 **Tapas**
 
 *Listing bookmarks > 10K*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/15039b73-01cc-4ff1-ba82-d2f61fccefdc" alt="cover-image" width="200"/>
 
 - [Honey and Venom](https://tapas.io/series/Honey-and-Venom/info)
 
     >*A powerful goddess and her devoted priestess are reunited 2,000 years later in California! There's just one problem: her priestess has no idea who she is! Now this ancient goddess is stuck navigating the modern world on top of trying to win back the heart of her soul mate!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/9f9733f5-8113-4da9-95cc-cbe6a79b3765" alt="cover-image" width="200"/>
+
 - [Sunflowers and Lavender](https://tapas.io/series/Sunflowers-and-Lavender/info)
 
     >*All Penny wants to do is ask out the girl of her dreams - how hard can that be?!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/fda6002d-fc11-4eae-9041-123d5f47da43" alt="cover-image" width="200"/>
 
 - [48km](https://tapas.io/series/48km) [<sup>English Translation</sup>](https://tapas.io/series/48km-english)
 
     >*Kelly and Jade knew each other taking the same bus everday and fell in love, but they are unable to directly confess their ages and life style differences, so they try to show affection in a sublet and clumsy way.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/57e4f122-faba-4fe8-bde0-3a14cad1b0e6" alt="cover-image" width="200"/>
+
 - [Million Dollar Sugar Baby](https://tapas.io/series/million-dollar-sugar-baby--GL-/info)
 
     >*Jia polleti, the CEO of a popular adult-streaming platform takes interest in one of their newest rising stars, Ellie Magnolia, after their enxounter in one of their typical bussiness parties*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d0a03aae-e3c0-4db3-8f34-da2eb989e595" alt="cover-image" width="200"/>
 
 - [Lovespells](https://tapas.io/series/Lovespells/info)
 
     >*A positive lesbian comic about a witch and a lady magic knight who fall in love. Slowburn romance set in a JRPG-inspired world.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/0c2979aa-665b-48f1-b878-ab875c9610c3" alt="cover-image" width="200"/>
+
 - [BLINDFOLD](https://tapas.io/series/BLINDFOLD/info)
 
     >*The story takes place in the near future. Detective Celia Mine is working on a strange murder case, the process of which accidentally spoils her new friend...*
 
-- [Vampire Girlfriend](https://tapas.io/series/Vampire-Girlfriend/info)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a4c1e41c-de6d-4dc5-aaf3-6568e8041392" alt="cover-image" width="200"/>
+
+- [Vampire Girlfriends](https://tapas.io/series/Vampire-Girlfriend/info)
 
     >*The modern lives of two vampire girlfriends! (And their friends.)*
 
