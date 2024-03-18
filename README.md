@@ -1267,9 +1267,15 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*This girl wore the mask of an honor student with good morals who's blessed with both beauty and brains, but in reality she's an evil genius who looked down on people. For the sake of regaining the dignity she lost to Komaki, Wakaba challenges her to a match, but Komaki tells her "Each time I win, I will take one precious thing from you." as a condition!? Every time she loses to the girl she "hates", her true feelings get exposed.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/9520f391-fc10-41f1-94d6-fd73b0bf2ba7" alt="cover-image" width="200"/>
+
 - [Convenient Semi-Friend](https://mangadex.org/title/688eee00-d587-4998-a999-652767aac846/convenient-semi-friend)
 
     >*Kuruma Suuna, a gloomy and socially awkward girl, begins her high school dorm life only to discover her new roommate, Hamanasu Ruka, flirting with another girl!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/87653ddd-9c18-4c2a-873e-6cdf7dd047c2" alt="cover-image" width="200"/>
 
 - [The Villainess Who Steals the Heroine's Heart](https://mangadex.org/title/4b4ed76c-ca51-4d44-aaa4-d2398919fe09/the-villainess-who-steals-the-heroine-s-heart)
 
@@ -1277,14 +1283,22 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*One day, the prince makes the stunning announcement that he is breaking off his engagement! Seeing a chance to strike while the iron is hot, Akuya decides to steal Sei away with sizzling hot and erotic words of love...*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/20717f1b-daf1-441e-94c4-323ad7c88673" alt="cover-image" width="200"/>
 
 - [Mutually Unrequited Twin Sisters](https://mangadex.org/title/0afc1883-d6ff-4c76-8f35-fb6010dc9d95/mutually-unrequited-twin-sisters)
 
     >*Saori and Shiori are twin sisters. They both love each other, but think their loves are unrequited!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4da4ca0e-187f-4c60-a2a5-999f582f8d21" alt="cover-image" width="200"/>
+
 - [How To Love: A Secret That Cannot Be Told](https://mangadex.org/title/df805b8c-0c05-40f2-8f92-0f096ca346e4/ienai-himitsu-no-aishikata)
 
     >*Highschool teacher Saeki Nao is secretly a hardcore otaku who loves yuri manga. One day, at a doujinshi convention they participate in, Nao is eager to convey her feelings to "Nyapoleon", an artist she worships. However, it turned out to be a girl from her school, Kurumizawa Haruka, and moreover, she had to help her. After the event, they decided to go out for a meal, at Haruka's suggestion…. When she wakes up in the morning, there is Haruka in the bed…?!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/f3aade32-ed7c-4feb-a92e-ac1adbfd1fd4" alt="cover-image" width="200"/>
 
 - [Contract Sisters](https://mangadex.org/title/e3fa25bc-23eb-46c3-af17-36ec9200456e/keiyaku-shimai)
 
@@ -1292,7 +1306,12 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*"Will you be my big sister?"*
 
+---
+
 *Highest Rated Ongoing on MangaDex besides Above*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8133e6f3-300a-4764-90d0-ee7e9d379aef" alt="cover-image" width="200"/>
 
 - [The Princess of Sylph](https://mangadex.org/title/927617bf-a212-44d6-9ff0-3d941fbaae2a/the-princess-of-sylph)
 
@@ -1302,39 +1321,68 @@ They've nicknamed her Usotsuki (Liar).*
 
     >*So begins the fantasy yuri adventure of a lonesome princess and meddlesome nun!*
 
+---
+
 *Also By*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3298ca73-c6da-48d5-b745-644ddee1dbab" alt="cover-image" width="200"/>
 
 - [My Dearest Nemesis](https://mangadex.org/title/32f887f1-824f-4dbc-8e15-70a5b0b8112a/my-dearest-nemesis) <sup>Same Creator as</sup> [<sup>That Time I Was Blackmailed By the Class's Green Tea Bitch</sup>](https://mangadex.org/title/73965527-b393-4f65-9bc3-2439ec44935a/that-time-i-was-blackmailed-by-the-class-s-green-tea-bitch)
 
     >*The whole company knew that they they were polar opposites who fought like cats and dogs. Yet during the year-end party, the wall between them shattered after they got drunk! And so the two of them went from always being close to going off on each other to feeling very strange things following the accidental mishap...*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/f73087b1-e039-4e16-9730-cd04a0a4147d" alt="cover-image" width="200"/>
+
 - [Fugue Across Worlds](https://mangadex.org/title/d9339050-0957-46e9-a30a-4466eaa0a1e8/fugue-across-worlds) <sup>Same Creators as</sup> [<sup>Soulmate</sup>](https://mangadex.org/title/04f2b88a-e167-410e-ac38-4fd4777f4e0f/soulmate)
 
     >*During troubled times, Weng Shaoying is one of the most famous singers in Dongping. Many people go to Song of Fairyland just to see her perform. However, under her glamorous facade, she has been controlled for more than 10 years. On the other side of Dongping is Bi Xing Tang, one of the most famous gangs there. After her father’s death, Yanchu became the young female leader of Bi Xing Tang, which caused a lot of rumors to spread. On one inevitably fortuitous night, the two happened to meet. At that time, neither of them knew that they would eventually become the most important person in the other’s life. Starting from that night onwards, the gears in Shaoying and Yanchu’s fate will forever be rotating together.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d15374e1-fa5d-48b1-ae91-f87547e7c8e6" alt="cover-image" width="200"/>
 
 - [IDOL×IDOL STORY!](https://mangadex.org/title/30b89356-952c-4a72-9d8c-cf44147e881a/idol-idol-story) <sup>Same Creator as</sup> [<sup>New Game!</sup>](https://sevenseasentertainment.com/series/new-game/) <sup> - Not Listed as GL on Mangaupdates</sup>
 
     >*Mimi Nagisa (22 years old) is a former idol. After giving up on her dream of being an idol because of her lacking talent she spends her days working part-time while attending college. However, the moment she meets the idol Ibuki Nanakusa, whom she recently found interest in, their lives begin to cross each other.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/93838eaa-554e-4d6c-b3c9-73caad01e685" alt="cover-image" width="200"/>
+
 - [Inko-Sensei](https://mangadex.org/title/a4aa093a-0f92-43b2-9146-b8cd369cc865/inko-sensei) <sup>Sequel to</sup> [<sup>Tadokoro-san</sup>](https://mangadex.org/title/8ffbfa2f-23fa-4490-848e-942581a4d873/tadokoro-san)
 
     >*Sequel to Tadokoro-san following manga artist Inko-sensei as she brings on an assistant to help draw her hardboiled manga.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d861577e-9d9b-46b3-aba3-c550e1404a4d" alt="cover-image" width="200"/>
 
 - [Happiness Rides a Broomstick](https://mangadex.org/title/71d51fb0-fc54-400a-8819-c12ae212ed73/happiness-rides-a-broomstick) <sup>Same Creator as</sup> [<sup>Ring My Bell!</sup>](https://tapas.io/series/ringmybell/info) <sup> - Hiatus</sup>
 
     >*Although she is just a college freshman, Kim Danjo, much like her name, lives a monotonous life. One day Danjo goes to a storage room to run an errand for her sunbae when she witnesses a broom transform into a human girl. From that day on, the broom persistently asks for Danjo's help, claiming she has no where to go. In the end, Danjo accidentally gives the broom who claims to actually be a Dookkabei (Korean supernatural creature) the name Eundohae and they start living together in Danjo's small gosiwon.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/275f09a2-6ebe-4157-8631-e7a68c217b38" alt="cover-image" width="200"/>
+
 - [A Grim Reaper to Go With Your Rice!](https://mangadex.org/title/351b627f-1f88-4fcd-afd6-938a6167bb23/gohan-no-otomo-ni-shinigami-to) <sup>Same Creator as</sup> [<sup>Beauty and the Beast Girl</sup>](https://sevenseasentertainment.com/series/beauty-and-the-beast-girl/) <sup> and </sup> [<sup>Dear Noman</sup>](https://yenpress.com/series/dear-noman)
 
     >*Yoshida-san, the malnourished corporate slave, and Miku, the clumsy grim reaper who came from the underworld to extend her lifespan. The dining table where these two very different people gather is a messy, but somewhat gentle place. Will Yoshida-san be able to become "healthy"!? The mysterious communal life of a human and a reaper begins!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/0fe636cb-9dc5-49c1-9c4d-aa182ed40bc6" alt="cover-image" width="200"/>
 
 - [My Sisters Love Me](https://mangadex.org/title/c40e4be4-669e-4b1c-9702-ca9bd10b821f/my-sisters-love-me) <sup>Same Creator as</sup> [<sup>Kiss and White Lily for My Dearest Girl</sup>](https://yenpress.com/series/kiss-and-white-lily-for-my-dearest-girl)
 
     >*Misaki suddenly has four younger sisters due to her parents' remarriage, and they all love their big sister! The passionate appeals for love and affection from the different types of sisters will make you smile!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/045dbc15-0ea1-4bb5-a6b1-cd6e952f7981" alt="cover-image" width="200"/>
+
 - [Inari's Marriage](https://mangadex.org/title/ca715fe2-cdb3-4a98-a3e5-92116490f067/inari-no-kekkon) <sup>Same Artist as</sup> [<sup>Kindred Spirits on the Roof</sup>](https://sevenseasentertainment.com/series/kindred-spirits-on-the-roof/) <sup> and </sup> <sup>Same Creator as</sup> [<sup>Isn't The Moon Beautiful?</sup>](https://mangadex.org/title/b9797c5b-642e-44d9-ac40-8b31b9ae110a/tsuki-ga-kirei-desu-ne)
 
     >*A romance about two foxes who went from childhood friends to newlyweds and their slow-paced rural life.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/2ce798fd-0cb1-4ad6-a2db-0d085fa41f3a" alt="cover-image" width="200"/>
 
 - [The White Maidens' Werewolf](https://mangadex.org/title/bd0f8a88-6846-4a6f-814b-4aa97c80f78f/the-white-maidens-werewolf) <sup>Same Artist as</sup> [<sup>Failed Princesses</sup>](https://sevenseasentertainment.com/series/failed-princesses/)
 
@@ -1344,13 +1392,21 @@ They've nicknamed her Usotsuki (Liar).*
     
     >*One day, something happens in the dormitory of the student council! In their midst is a two-faced wolf aiming for their purity - and it is up to them to pull back the mask!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/410d62fd-ecaa-4ebb-a55e-467db8fd74d3" alt="cover-image" width="200"/>
+
 - [I want to make Black-Knight fall in love with me!](https://mangadex.org/title/48de4f49-d7f9-4b0c-99f4-0929c2a9910b/gakeppuchi-reijou-wa-kurokishi-sama-o-horesasetai) <sup>Same Artist as</sup> [<sup>Superwomen in Love! Honey Trap and Rapid Rabbit</sup>](https://sevenseasentertainment.com/series/superwomen-in-love-honey-trap-and-rapid-rabbit/)
 
     >*My family is in debt, and we don't have enough money for my sick sister's treatment... The troubled noble, Clarice, finds herself engaged in a political marriage with the most feared Black-Knight in the kingdom, Frost, known for "slaughtering beasts with his bare hands". In an attempt to secure the fortune, Clarice tries to seduce the "Black-Knight", but just as she does, she discovers "her" secret...*
- 
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a4033dbe-fea6-4efc-89f5-f514a7cda5a6" alt="cover-image" width="200"/>
+
 - [Becoming Her Lover For the Sake of Love](https://mangadex.org/title/f7262e67-e7d7-44b5-b39a-96fafef39edf/koi-ni-koi-suru-koibito-kankei) <sup>Same Creator as</sup> [<sup>Doughnuts Under a Crescent Moon</sup>](https://sevenseasentertainment.com/series/doughnuts-under-a-crescent-moon/) <sup> and </sup> [<sup>I Married My Female Friend</sup>](https://sevenseasentertainment.com/series/i-married-my-female-friend/)
 
     >*The womanising most popular girl in school catches the no-nonsense student council president breaking the school rules, and agrees to keep quiet if the president becomes her girlfriend.*
+
+---
 
 **Webtoons**
 
