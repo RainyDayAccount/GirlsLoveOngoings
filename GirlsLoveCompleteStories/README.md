@@ -348,57 +348,132 @@
 ---
 <img src="https://images.yenpress.com/imgs/9781975325596.jpg?w=408&h=612&type=books&s=4270e5943abc957614355cdd5ffd19e1" alt="cover-image" width="200"/>
 
+- [A Witch's Love at the End of the World](https://mangadex.org/title/caf7e86a-1fc7-4dcd-820a-17d267153654/a-witch-s-love-at-the-end-of-the-world) [<sup>Yen Press</sup>](https://yenpress.com/series/a-witch-s-love-at-the-end-of-the-world#)
+
+    >*Forcefully separated from Alice, Mari learns the truth about a witch’s power-and what it takes to lose it. Startled, she realizes the depth of emotions in Alice’s open heart…as well as her own! But when a sudden betrayal unravels the witches’ grand plan and plunges them all into danger, is their love strong enough to surpass the end of the world?*
+
 ---
 <img src="https://images.yenpress.com/imgs/9781975374693.jpg?w=408&h=612&type=books&s=010ee88aac2ac99e74d51dc691eaca13" alt="cover-image" width="200"/>
+
+- [Breasts Are My Favorite Things in the World!](https://mangadex.org/title/af906856-ef0c-4c7a-aa61-27edebe9e834/sekai-de-ichiban-oppai-ga-suki)  [<sup>Yen Press - New Release on Aug 20, 2024</sup>](https://yenpress.com/series/breasts-are-my-favorite-things-in-the-world?format=Digital)
+
+    >*When bosom buddies Chiaki Ichihara and Hana Harumi share an accidental kiss, Chiaki realizes there might be more to life than just fondling breasts—now she wants Hana’s heart too! Will she be able to confess her feelings during a steamy hot spring vacation...? Meanwhile, discipline monitor Riku Matsuzaka has an awakening of her own!When bosom buddies Chiaki Ichihara and Hana Harumi share an accidental kiss, Chiaki realizes there might be more to life than just fondling breasts—now she wants Hana’s heart too! Will she be able to confess her feelings during a steamy hot spring vacation...? Meanwhile, discipline monitor Riku Matsuzaka has an awakening of her own!*
 
 ---
 <img src="https://images.yenpress.com/imgs/9781975340193.jpg?w=408&h=612&type=books&s=d43e69ec4999ec597c10b21df0874aec" alt="cover-image" width="200"/>
 
+- [Catch These Hands!](https://mangadex.org/title/db7744a6-785e-4504-9d59-1c6b84de7033/watashi-no-kobushi-wo-uketomete) [<sup>Yen Press</sup>](https://yenpress.com/series/catch-these-hands#)
+
+    >*After throwing some hands like back in the old days, Takebe and Soramori’s relationship is finally back on track. But the more Takebe tries to care for her girlfriend, the more she wonders if their feelings aren’t quite the same…And if there’s anything harder than taking Soramori down, it’s getting her to open up. That won’t stop Takebe from trying, though! The ex-delinquent couple’s tale comes to a close in this heartwarming finale.*
+
 ---
 <img src="https://images.yenpress.com/imgs/9781975369897.jpg?w=408&h=612&type=books&s=2cf28d259c7565779c3ba8f2e8b6e79a" alt="cover-image" width="200"/>
+
+- [Cheerful Amnesia](https://mangadex.org/title/f9448f90-c068-4b6a-8c85-03d739aef255/cheerful-amnesia) [<sup>Yen Press - New Release on Jun 18, 2024</sup>](https://yenpress.com/series/cheerful-amnesia#)
+
+    >*No matter how upbeat Arisa is about her amnesia, losing her memories has brought its share of problems. She can’t remember her girlfriend Mari’s favorite foods, the anniversary of their first date, and—most important of all—what they got up to in bed. Mari proposes an overnight trip to a hot springs resort, which would be the perfect chance for them to clear the air and put their complicated feelings into words. The only issue? Arisa will have to start working again if they want to pay for it!*
 
 ---
 <img src="https://images.yenpress.com/imgs/9781975323318.jpg?w=408&h=612&type=books&s=a3058f068318b2d3feb8b6439188f3de" alt="cover-image" width="200"/>
 
+- [Dear Noman](https://mangadex.org/title/59813bfa-fa47-4f95-89ab-ae578d618197/dear-noman) [<sup>Yen Press</sup>](https://yenpress.com/series/dear-noman)
+
+    >*As summer comes to an end, Mashiro and her partner, the crow spirit Bazu, have begun to grow closer. They don’t have time to relax, though, as the Boundary Preservation Society is entering its busiest time of year-the Bon festival, when the souls of the dead come home to visit. But even as she works, Mashiro is left to wonder: If she can see ghosts, why has she never seen the spirit of her dead sister? Could it have something to do with why nomans are going missing?*
+
 ---
 <img src="https://images.yenpress.com/imgs/9781975324698.jpg?w=408&h=612&type=books&s=24381246eb7ee0bed922a4fa59cbb4c9" alt="cover-image" width="200"/>
+
+- [Happy Sugar Life](https://mangadex.org/title/010a8606-ab4f-4e3e-82ce-17f19b02f262/happy-sugar-life) [<sup>Yen Press</sup>](https://yenpress.com/series/happy-sugar-life)
+
+    >*Once alone, now together. Deceive. We learned warmth...and sweetness. Betray. These feelings that were born... Steal. …in the cage only we remember- Kill. They’re not lies. For Love. Or so I believed.*
 
 ---
 <img src="https://images.yenpress.com/imgs/9781975314248.jpg?w=408&h=612&type=books&s=ca7b6f568785f6ea834cfa5f08c8bef4" alt="cover-image" width="200"/>
 
+- [I Love You So Much, I Hate You](https://mangadex.org/title/d59b465c-43ac-4754-8d7c-6d1b34e2cca5/i-love-you-so-much-i-hate-you) [<sup>Yen Press</sup>](https://yenpress.com/series/i-love-you-so-much-i-hate-you)
+
+    >*Saori Fujimura and her boss, Ayako Asano, are an unbeatable duo at work, but after hours their relationship is more than just professional. As tensions mount between Ayako and her husband and Saori’s feelings grow stronger, they’ll have to decide—is it love they seek, or merely pleasure?*
+
 ---
 <img src="https://images.yenpress.com/imgs/9781975357245.jpg?w=408&h=612&type=books&s=6e0404803a11cd64db28828210188e2c" alt="cover-image" width="200"/>
+
+- [Killing Me](https://mangadex.org/title/2d454afa-cc59-40cd-b554-94f5eeb7a46f/killing-me) [<sup>Yen Press - Cancelled</sup>](https://yenpress.com/series/killing-me)
+
+    >*Vampire hunter Saki Fujimiya is the epitome of poise and finesse—that is, when she’s not around Miyoko Kujou! Why does Miyoko get such a rise out of her? Well, to begin with, Miyoko’s a campire—Saki’s natural enemy—but that’s not the only reason Miyoko gets under Saki’s skin. Despite Saki’s best efforts to kill Miyoko, something keeps stopping her from biting the bullet and ending it all for good. It’s hard to tell who’s really the prey in this love comedy packed with bite!*
 
 ---
 <img src="https://images.yenpress.com/imgs/9781975358624.jpg?w=408&h=612&type=books&s=73a2085c53097e411ee25a920cb8f0f2" alt="cover-image" width="200"/>
 
+- [Kiss and White Lily for My Dearest Girl](https://mangadex.org/title/77f90d44-f62f-4423-8d40-ba0595ea2cd7/ano-ko-ni-kiss-to-shirayuri-wo) [<sup>Yen Press</sup>](https://yenpress.com/series/kiss-and-white-lily-for-my-dearest-girl)
+
+    >*After a life defined by grades, Ayaka thought taking back the top spot was all she wanted from Yurine. But even though she’s finally won, Yurine is still all Ayaka can think about. No longer able to hide behind her studies, Ayaka must confront the feelings she’s suppressed for so long and decide—who is Yurine to her now? Everything falls into place in this final volume of Kiss and White Lily for My Dearest Girl!*
+
 ---
 <img src="https://images.yenpress.com/imgs/9781975370497.jpg?w=408&h=612&type=books&s=ebe0a698cc40d76b02f82589372e6123" alt="cover-image" width="200"/>
+
+- [Kiss the Scars of the Girls](https://mangadex.org/title/cfd5a759-63ce-4b63-8edb-870267622e6b/shoujo-tachi-no-kizuato-ni-kuchizuke-wo) [<sup>Yen Press</sup>](https://yenpress.com/series/kiss-the-scars-of-the-girls)
+
+    >*“I’m sure someday, I’ll get you to look my way.” Danger and uncertainty are common for a young vampire, which is why Emille will be assigned a “Big Sister” on her fourteenth birthday, like all the girls at her school. Deep within a secluded forest, her sister will teach her how to hunt and safely feed on humans. Learning to rely on each other for survival cultivates a deep relationship comparable to that between family-but does theirs have the potential to evolve into something more?"*
 
 ---
 <img src="https://images.yenpress.com/imgs/9781975336233.jpg?w=408&h=612&type=books&s=b705e57eb0178752c9d0f6a154620204" alt="cover-image" width="200"/>
 
+- [Mizuno and Chayama](https://mangadex.org/title/ca5024a5-0f1e-4ad7-8412-6780265e3d07/mizuno-and-chayama) [<sup>Yen Press</sup>](https://yenpress.com/series/mizuno-and-chayama)
+
+    >*Mizuno, the daughter of a mayoral candidate, is desperate to escape the suffocating pressure and scrutiny of smalltown life. Chayama, the heiress of the tea company Chayama-en, is adamantly walking down the path laid out for her, despite being forced to atone for her family’s apparent misdeeds. Yet in the bubble of the school’s third floor guidance counseling room-away from rumors, watchful eyes, and their feuding families-they’re simply Mizuno and Chayama, two teenagers who find comfort and hope in each other. But when the outside world tries to tear them apart, the two must find a way to protect their relationship and, more importantly, themselves…*
+
 ---
 <img src="https://images.yenpress.com/imgs/9781975340841.jpg?w=408&h=612&type=books&s=77e6442ca055b3f2128184f732a04a19" alt="cover-image" width="200"/>
+
+- [Monster Wrestling](https://mangadex.org/title/1e2d3dd0-74c9-4ef9-8aa5-b81cd93b9d52/monster-wrestling-interspecies-combat-girls) [<sup>Yen Press</sup>](https://yenpress.com/series/monster-wrestling#)
+
+
+    >*With a string of victories, Tirol and Ryuuka are headed to the finals of the Monster Wrestling World Tag Tournament! But when fellow contenders Latep and Yewggoth show their true colors, the Bellezza duo are left fighting not just for the championship belt, but for the fate of the whole world…! Tirol must call upon all she’s learned if she hopes to prevail as this supernatural tale of suplexes and submissions reaches its climax!*
 
 ---
 <img src="https://images.yenpress.com/imgs/9781975320928.jpg?w=408&h=612&type=books&s=04643104158ea708d5d8e708d71c0cd5" alt="cover-image" width="200"/>
 
+- [Strawberry Fields Once Again](https://mangadex.org/title/ea6c90a3-50f1-4599-953c-65d164b66498/strawberry-fields-once-again) [<sup>Yen Press</sup>](https://yenpress.com/series/strawberry-fields-once-again)
+
+    >*“Why…does my heart hurt so much…?” Akira is troubled by recurring dreams-or are they memories?-of an attractive blond stranger who somehow feels very precious to her. Meanwhile, Pure has spent much of the past year searching in vain for Akira, her one t rue love. Thanks to Ruri’s time reversal experiment, the meddling visitor from the future has been set on a different path-one that doesn’t interfere with his plans to alter the timeline so drastically that Pure will never unite with her amore! Only time will tell what the future holds!*
+
 ---
 <img src="https://images.yenpress.com/imgs/9781975370237.jpg?w=408&h=612&type=books&s=481e74e1484102355a93f1d53a8b5caa" alt="cover-image" width="200"/>
+
+- [The Witch's Marriage](https://mangadex.org/title/9b7c6a16-5759-4598-99aa-0ef01f8c2e74/the-witch-s-marriage) [<sup>Yen Press</sup>](https://yenpress.com/series/the-witches-marriage)
+
+    >*Having passed their first trial, Melissa and Tanya continue to strengthen their bond and, with it, their magic power. But with Melissa’s pride and Tanya’s insecurity keeping the two from taking the next step on the path to magic mastery, they need to find a way to get closer. One day, the perfect opportunity arrives—they’re invited to a special school for witch partners looking to get stronger! Will they pull through together when their trust is put to the test?*
 
 ---
 <img src="https://images.yenpress.com/imgs/9781975322489.jpg?w=408&h=612&type=books&s=f72fcad8509a5014b8f5524fa3f934b9" alt="cover-image" width="200"/>
 
----
-<img src="https://images.yenpress.com/imgs/9781975357580.jpg?w=408&h=612&type=books&s=21e1543c74a1e346dc0366b14268c1e1" alt="cover-image" width="200"/>
+- [The Whole of Humanity Has Gone Yuri Except for Me](https://mangadex.org/title/36a4167c-0e0b-4d46-b493-3375ec8debe7/all-of-humanity-is-yuri-except-for-me) [<sup>Yen Press</sup>](https://yenpress.com/series/the-whole-of-humanity-has-gone-yuri-except-for-me)
+
+    >*Marika Uruuno is just a normal girl in a normal world. She’ll fall in love normally, get married normally, and have a normal family- or that was the plan anyway. But when she suddenly wakes up in a version of reality filled only with women, she finds herself questioning what exactly “normal” means and why it’s so important to her. And as Mariko discovers something even more precious, she’s faced with a choice-will she find a way back to her previous life…or will she stay in this strange new world?*
 
 ---
 <img src="https://images.yenpress.com/imgs/9781975357276.jpg?w=408&h=612&type=books&s=8e0454f0cf0a4eca7bd3b0cfa4644a6d" alt="cover-image" width="200"/>
 
+- [Yuri Life](https://mangadex.org/title/4e59920a-8716-4095-9b9d-304abd3f5048/yurigurashi) [<sup>Yen Press</sup>](https://yenpress.com/titles/9781975357276-yuri-life)
 
+    >*Cohabitating can make or break any relationship, but with a little luck, a lot of love, and a healthy dose of patience, living together can bring out the best in a couple! There’s a lot to navigate—clashing personalities, age gaps, business trips, conflicting feelings, jealousy, sex, and even the supernatural—but these women in love find a way to make it work!*
 
 **Kodansha**
+
+---
+<img src="https://cdn.kodansha.us/statics/Publications/30577/Pages/page-0001.jpg?f=webp&w=405" alt="cover-image" width="200"/>
+
+---
+<img src="https://cdn.kodansha.us/statics/Publications/32214/Pages/page-0001.jpg?f=webp&w=405" alt="cover-image" width="200"/>
+
+---
+<img src="https://cdn.kodansha.us/statics/comics/2022/05/9781646512751-IfICouldReachYou_007_cvr.jpg?f=webp&w=405" alt="cover-image" width="200"/>
+
+---
+<img src="https://cdn.kodansha.us/statics/Products/31298/Pages/page-0001.jpg?f=webp&w=405" alt="cover-image" width="200"/>
+
+---
+<img src="https://cdn.kodansha.us/statics/comics/2022/11/SheHerCameraAndHerSeasons_Vol05_ReSize_cover_v1.jpg?f=webp&w=405" alt="cover-image" width="200"/>
 
 **J-Novel**
 
