@@ -733,6 +733,13 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
     >*What is the price of revenge? Kris knows she’s different but lives in the dark about her power, controlled by her father’s supervision and her job as “The Cleaner,” doing the dirty work of the Hyuu Police Department. When she finally has a chance to learn more about herself, her father is murdered by a vicious crime syndicate. Eden, the chairwoman of a rival crime family, gives Kris another chance at life. With vengeance on her mind, will Kris adapt to her new life in the underworld, or will she fall deeper into the pit?*
 
 ---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4f78afe7-91ba-48dd-88f5-1a5c6d989c1c" alt="cover-image" width="200"/>
+
+- [Straylight Tiger](https://www.webtoons.com/en/sf/straylight-tiger/list?title_no=2807)
+
+    >*When humans can shift into animals, manipulate elemental powers, or possess weapons created from otherworldly metals, things undoubtedly escalate quickly. Still, as an extremist cult emerges to dominate the one city that unites the three species, a powerful corporation recruits a secret task force to challenge them.*
+
+---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a3bcf0f7-aff1-4428-8f03-88a4a81d26a9" alt="cover-image" width="200"/>
 
 - [High Class Homos](https://www.webtoons.com/en/comedy/high-class-homos/list?title_no=2723)
@@ -1405,6 +1412,23 @@ They've nicknamed her Usotsuki (Liar).*
 - [Becoming Her Lover For the Sake of Love](https://mangadex.org/title/f7262e67-e7d7-44b5-b39a-96fafef39edf/koi-ni-koi-suru-koibito-kankei) <sup>Same Creator as</sup> [<sup>Doughnuts Under a Crescent Moon</sup>](https://sevenseasentertainment.com/series/doughnuts-under-a-crescent-moon/) <sup> and </sup> [<sup>I Married My Female Friend</sup>](https://sevenseasentertainment.com/series/i-married-my-female-friend/)
 
     >*The womanising most popular girl in school catches the no-nonsense student council president breaking the school rules, and agrees to keep quiet if the president becomes her girlfriend.*
+
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/0a3cf36a-9fb7-4682-b7fe-57dc8e397077" alt="cover-image" width="200"/>
+
+- [Summer, Lemon, and Overlay](https://mangadex.org/title/6560eb32-d4ba-4e93-ba39-9790b03b32ea/summer-lemon-and-overlay) <sup>Same Artist as</sup> [<sup>I Can’t Believe I Slept With You!</sup>](https://sevenseasentertainment.com/series/i-cant-believe-i-slept-with-you/)
+
+    >*A struggling voice actress who goes by the name of Yunimaru is barely making ends meet. Constantly thinking about when she will escape her miserable life, she's contacted by Konno Sayaka—a beautiful and successful woman working for a big company—with a job offer: to read a farewell letter at her own funeral. While grappling with whether or not to accept such an absurd job offer, Sayaka makes her a proposal that she can't refuse. Now with an opportunity to escape her situation, Yunimaru also finds herself aiding Sayaka in the completion of her letter.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/84ab4d89-3039-449b-86a6-c6fbd5c17719" alt="cover-image" width="200"/>
+
+- [Wanna Skip School in the Infirmary?](https://mangadex.org/title/a6246828-0577-4aaf-9478-371b52e6634d/wanna-skip-school-in-the-infirmary) <sup>Same Creator as</sup> [<sup>A Collar Only For You</sup>](https://www.pocketcomics.com/comic/7491) <sup> and </sup> [<sup>I Wanna Spoil Yoroizuka-san!</sup>](https://mangadex.org/title/69d9d31d-a435-4f5d-8fbb-3ab93fab16f9/i-wanna-spoil-yoroizuka-san)
+
+    >*Miyake Mia has always worn the mask of an exemplary student. Recently, however, there is someone who draws a lot of attention to her. That's Nurse Morikubo, who is rumored to be a "delinquent" within the school....*
+
+    >*A pure love story between a high school student who hides her true self and a delinquent "nurse teacher"!*
 
 ---
 
