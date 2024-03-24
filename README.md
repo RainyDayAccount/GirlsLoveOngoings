@@ -585,11 +585,6 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
     >*The daughter of a famous actress, Sungha is glamorous, confident, and beautiful. However, her relationships never last longer than one month, and most of the attention she gets is from…women? In order to get in a serious relationship with Mr. Right, she decides that she needs to prevent all women from falling in love with her. So when Sungha first sees the new transfer student, Rahee, she wants to make some things clear. “You’re not already in love with me, are you? “Don’t worry. You’re the kind of person I can’t stand."*
 
 ---
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/2b82c222-de1e-4ecf-88f4-99842e1c707d" alt="cover-image" width="200"/>
-
-- [On the Contrary](https://www.lezhinus.com/en/comic/contrary)<sup>Not on Mangadex - </sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/contrary)
-
-    >*Ban Jiwoon is loved by all. No matter how chilly someone's exterior may seem, she always finds a way to break through. That is, until her classmate Lee Yoosun comes along. For some reason, Yoosun ignores Jiwoon’s every attempt to win her over. Jiwoon is dumbfounded that, despite her best efforts, she just can’t find a way to weasel her way into the standoffish student’s heart. But when the two have an unexpected encounter, they just might discover that it’s never when a girl is looking for love that she finds it. On the contrary…sometimes it comes from the place she least expects.*
 
 **Manta**
 
