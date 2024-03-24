@@ -372,6 +372,15 @@
     >*Yuu has always loved shoujo manga and awaits the day she gets a love confession that sends her heart aflutter with bubbles and hearts, and yet when a junior high classmate confesses his feelings to her…she feels nothing. Disappointed and confused, Yuu enters high school still unsure how to respond. That’s when Yuu sees the beautiful student council president Nanami turn down a suitor with such maturity that she’s inspired to ask her for help. But when the next person to confess to Yuu is Nanami herself, has her shoujo romance finally begun?*
 
 ---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d1a67884-852c-4211-b983-a74de8ec7dcf" alt="cover-image" width="200"/>
+
+- [DNA Doesn’t Tell Us](https://mangadex.org/title/4dca6fcf-33a2-4ab4-b6c4-dfc65b1c5721/dna-wa-oshiete-kurenai-animalium-no-otome-tachi) [<sup>Seven Seas - Not Listed as GL</sup>](https://sevenseasentertainment.com/series/dna-doesnt-tell-us/)
+
+
+    >*Across the planet, animals are turning into humans! Well, mostly human anyway. These animal-featured new individuals must learn how to live in their new bodies and amongst one other. It’s for this reason some are sent to Animalium—an all-girls school specifically for this new species—and it’s there these girls will learn all they need to know about themselves and each other!*
+
+
+---
 
 **Yen Press**
 
@@ -496,6 +505,13 @@
     >*Cohabitating can make or break any relationship, but with a little luck, a lot of love, and a healthy dose of patience, living together can bring out the best in a couple! There’s a lot to navigate—clashing personalities, age gaps, business trips, conflicting feelings, jealousy, sex, and even the supernatural—but these women in love find a way to make it work!*
 
 ---
+<img src="https://m.media-amazon.com/images/I/51BTC3Ze7+L.jpg" alt="cover-image" width="200"/>
+
+- [S.S. Astro](https://mangadex.org/title/2bee95c6-dea3-481a-9896-33aef0ac3c18/s-s-astro-asashio-sogo-teachers-room) [<sup>Yen Press - Not Listed Anymore</sup>](https://www.amazon.com/S-S-Astro-Vol-Asashio-Teachers/dp/0759528985)
+
+    >*Ever wondered what goes on behind the closed doors of the teachers' lounge? At Asashio High, the new school year brings new faces, both in the student body and on staff. The new crop of teachers are all former students, and it quickly becomes obvious they have yet to grow out of their hilariously juvenile ways. From romantic entanglements to otaku obsessions, these teachers just go to show that the fun doesn't have to end after high school!*
+
+---
 
 **Kodansha**
 
@@ -559,23 +575,39 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c1676224-bb4e-42d8-a45e-a6df994a3e85" alt="cover-image" width="200"/>
 
-- [After Hours](https://mangadex.org/title/162ebd58-0b43-4d95-9b3a-da6ff4e34edd/after-hours) [<sup>Viz Media</sup>](https://www.viz.com/read/manga/after-hours/all)
+- [After Hours](https://mangadex.org/title/162ebd58-0b43-4d95-9b3a-da6ff4e34edd/after-hours) [<sup>Viz Media</sup>](https://www.viz.com/after-hours)
 
     >*The club is hopping and Emi isn’t…so she ends up hiding in a corner after her friend ditches her to flirt with a guy! Emi figures the night is a bust, but then someone amazing comes to her rescue. Kei is a DJ, and her effortless self-confidence captivates Emi. Is this just a wonderful night out or the start of the rest of her life?*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/514d0508-bc49-4acf-81f7-78174f6e189c" alt="cover-image" width="200"/>
 
-- [Kannazuki no Miko](https://mangadex.org/title/4625710a-bff1-43d1-b3f0-c3da3e42f474/destiny-of-shrine-maiden) [<sup>Viz Media</sup>](https://www.viz.com/read/manga/kannazuki-no-miko/all)
+- [Kannazuki no Miko](https://mangadex.org/title/4625710a-bff1-43d1-b3f0-c3da3e42f474/destiny-of-shrine-maiden) [<sup>Viz Media</sup>](https://www.viz.com/kannazuki-no-miko)
 
     >*Shy Himeko adores Chikane, the gorgeous and cool "princess" of their exclusive boarding school. She's been looking forward to their joint sweet sixteen birthday party for weeks. But on that fateful day, a shrine appears in the sky, giant robots ravage the school, and Himeko discovers that she is the reincarnation of the Solar Priestess--and Chikane is the reincarnated Lunar Priestess. As dark secrets unravel, one thing is clear: their lives will never be the same...*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8db6eb90-f655-4e77-925c-b087a6a21a81" alt="cover-image" width="200"/>
 
-- [Sweet Blue Flowers](https://mangadex.org/title/7e9ea5e7-7dc0-4907-b79c-5b66605ef955/sweet-blue-flowers) [<sup>Viz Media</sup>](https://www.viz.com/read/manga/sweet-blue-flowers/all)
+- [Sweet Blue Flowers](https://mangadex.org/title/7e9ea5e7-7dc0-4907-b79c-5b66605ef955/sweet-blue-flowers) [<sup>Viz Media</sup>](https://www.viz.com/sweet-blue-flowers)
 
     >*Fumi is glad Akira is back in her life. Even in kindergarten, Akira knew how to stand up for herself, and she was always willing to stand up for Fumi too. But Fumi’s first love recently got married, and Fumi is grappling with a broken heart and the fact that her sweetheart was another woman… Can Akira’s open heart help dispel the gloom Fumi has been caught up in?*
+
+---
+<img src="https://dwgkfo5b3odmw.cloudfront.net/manga/thumbs/thumb-11865-MCW_01_web.jpg" alt="cover-image" width="200"/>
+
+
+- [Miyuki-Chan in Wonderland](https://mangadex.org/title/dfbb1fd7-4790-4db0-ae1d-2efa6c544ee4/fushigi-no-kuni-no-miyuki-chan) [<sup>Viz Media</sup>](https://www.viz.com/miyuki-chan-in-wonderland)
+
+    >*There are many worlds in the universe outside of our own, connected by doors that are hidden to the eye. But if you chance upon those doors, you can be transported to a place where supple beauties reign supreme and all of your fantasies come alive. Should you pass through the doorways, be most careful, for the creatures you will meet can be as dangerous as they are beautiful. Many would die for a glimpse at those worlds - Miyuki would do anything to have them go away.*
+
+---
+<img src="https://dw9to29mmj727.cloudfront.net/products/1974715140.jpg" alt="cover-image" width="200"/>
+
+
+- [Revolutionary Girl Utena](https://mangadex.org/title/b5c810ba-d6d5-485e-8990-2fa48c893af8/revolutionary-girl-utena) [<sup>Viz Media</sup>](https://www.viz.com/revolutionary-girl-utena)
+
+    >*Lured into the twisted duels of Ohtori Academy, can Utena become the prince she’s been waiting to meet?*
 
 ---
 
@@ -654,6 +686,17 @@
 - [Vampeerz](https://mangadex.org/title/c431712b-231c-4d25-85fa-7ca6bf460f15/vampeerz) [<sup>Denpa</sup>](https://denpa.pub/manga/vampeerz-volume-1)
 
     >*Just as Ichika and her family begin to settle down after a funeral, a mysterious young lady appears in their home searching for something. Who is this person? And is she looking for a memento or is she hunting down something more vascular?*
+
+---
+
+**Ponent Mon**
+
+---
+<img src="http://www.ponentmon.com/resources/images/portadas/blue.jpg" alt="cover-image" width="200"/>
+
+- [Blue](https://mangadex.org/title/d6735724-3b57-40dd-8ad4-a30fd123f885/blue) [<sup>Ponent Mon</sup>](http://www.ponentmon.com/comic-books-english/east/blue/index.html)
+
+    >*Kayako Kirishima and Masami Endô are about to discover that their recent friendship is turning into obsessive love. But when today’s hopes and yesterday’s dreams meet tomorrow’s problems, will they be able to continue? With clear outline and confused feelings, Kiriko Nananan demonstrates that it is possible to make a Blue manga from black and white.*
 
 ---
 
