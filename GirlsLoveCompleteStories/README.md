@@ -40,6 +40,13 @@
     >*Mako and Shiori are childhood best friends trying to repair a rift in their friendship…or possibly turn it into something more. Meanwhile, fellow student Hase Chiharu joins the Quiz Club to become closer to Natsuki and Rika, a power couple she adores. Tokino, another club member, can’t take her eyes off their beautiful upper classmates either, and as Chiharu and Tokino observe the couple together, their own sweet relationship begins!*
 
 ---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/b9b6b469-90eb-42f4-a6bf-06e5e3ad84b3" alt="cover-image" width="200"/>
+
+- [Magical Girl Spec-Ops Asuka](https://mangadex.org/title/49650767-4fbc-41fc-9a91-6d6202b6a53e?tab=art) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/magical-girl-spec-ops-asuka/)
+
+    >*When the Earth is threatened by the sudden appearance of undead creatures, a group of young women blessed with powers from a mysterious source rose to defeat them. Now, after three years of apparent peace, the same malevolent creatures have resurfaced. Five magical girls are once again conscripted to war as the Magical Girl Special Ops force, to defend mankind from an unholy nemesis.*
+
+---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a24abef4-cb88-4182-85aa-9fdc298bb3a6" alt="cover-image" width="200"/>
 
 - [Monologue Woven For You](https://mangadex.org/title/ee815297-a282-4e81-b22f-bee2b4fc58f1/kimi-ni-tsumugu-bouhaku) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/monologue-woven-for-you/)
@@ -203,11 +210,27 @@
     >*Ritsu is willing to do anything for her best friend Ichika, including the intimate act of cleaning her ears. But when Ichika starts dating a boy, Ritsu realizes that she wants to be more than friends. Will Ichika push her away when Ritsu reveals her innermost feelings?*
 
 ---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ac4c0cf0-5ed9-4b9e-a113-f4f0f24daa4a" alt="cover-image" width="200"/>
+
+- [The Two of Them Are Pretty Much Like This](https://mangadex.org/title/b77668ed-0810-4327-9684-46ca371e370e/the-two-of-them-are-pretty-much-like-this) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/the-two-of-them-are-pretty-much-like-this/)
+
+    >*Thirty-two-year-old scriptwriter Sakuma Ellie and twenty-two-year-old rookie voice actress Inuzuka Wako are roommates with a strictly professional relationship. Or at least, that’s what they tell everyone. In fact, they’ve been living as a couple in Ellie’s apartment for the past year, spending delightful, tranquil days together.*
+    
+---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/cdef5aff-3847-4c46-9ad0-ef3d8820b107" alt="cover-image" width="200"/>
 
 - [Throw Away the Suit Together](https://mangadex.org/title/d006f413-bad9-4f82-a0aa-901ef2d0ece6/kimi-to-shiranai-natsu-ni-naru) [<sup>Seven Seas - Releasing Jul 16, 2024</sup>](https://sevenseasentertainment.com/series/throw-away-the-suit-together/)
 
     >*Getting into university and job hunting is what they’re expected to do, because that’s what “everyone” does—but what do they really want for themselves? When Haru and Hii-chan decide to take life into their own hands, they toss their resumes into the sea and move to an island together. They soon learn that island living isn’t all blue skies and sunny days…and yet, whatever the future holds, they will face it together.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/5704f3da-f05f-4acf-9a49-fa33fc85935d" alt="cover-image" width="200"/>
+
+- [Voiceful](https://mangadex.org/title/8678193d-51ed-4355-8ea9-9a02cfb4fa3c/voiceful) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/books/voiceful/)
+
+    >*They say no one’s ever heard her voice in person…*
+    >
+    >*Meet Kanae, an introvert about to have her life transformed in the most unusual way–through music. Kanae’s transformation begins when she accidentally bumps into Hina, an independent singer who releases her music via the Internet. As the girls become good friends, they quickly find that they’ve become one another’s inspiration–in more ways than one!*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/bbbb8117-55c1-4bd7-acde-5ada517a5b51" alt="cover-image" width="200"/>
@@ -400,6 +423,13 @@
 - [I Love You So Much, I Hate You](https://mangadex.org/title/d59b465c-43ac-4754-8d7c-6d1b34e2cca5/i-love-you-so-much-i-hate-you) [<sup>Yen Press</sup>](https://yenpress.com/series/i-love-you-so-much-i-hate-you)
 
     >*Saori Fujimura and her boss, Ayako Asano, are an unbeatable duo at work, but after hours their relationship is more than just professional. As tensions mount between Ayako and her husband and Saori’s feelings grow stronger, they’ll have to decide—is it love they seek, or merely pleasure?*
+
+---
+<img src="https://images.yenpress.com/imgs/9781975351731.jpg?w=408&h=612&type=books&s=c792f7a91706a9017cd9fbc967bb5a9e" alt="cover-image" width="200"/>
+
+- [If You Could See Love](https://mangadex.org/title/df715a94-a013-4d5d-a7d5-f7f2f778d09d/moshi-koi-ga-mieta-nara) [<sup>Yen Press</sup>](https://yenpress.com/series/if-you-could-see-love?format=Digital)
+
+    >*After starting high school, Mei has witnessed the many different forms love could take. From unrequited crushes to soulmates to unconventional relationships, she’s seen it all. And now, it’s time for her to confront her feelings and figure out which admirer is her own arrow of love pointing to! *
 
 ---
 <img src="https://images.yenpress.com/imgs/9781975357245.jpg?w=408&h=612&type=books&s=6e0404803a11cd64db28828210188e2c" alt="cover-image" width="200"/>
@@ -597,6 +627,24 @@
     >*Wanting to get away from everything, she leaves behind the big city ⁠— and all her problems ⁠—  and goes with her cousin to a little coastal village. There she meets Blanca, a girl full of life and in love with astronomy. Blanca reminds Dani that life can be beautiful, and that she can shine again like stars do.*
 
 ---
+<img src="https://tokyo-pop-us.imgix.net/covers/9781427861528.jpg?auto=format&w=1000" alt="cover-image" width="200"/>
+
+- [Breath of Flowers](https://mangadex.org/title/d6f33c1c-e5fb-4153-b8f7-c8be5dc1e808/breath-of-flowers) [<sup>Tokyopop</sup>](https://tokyopop.com/products/9781427861528_breath-of-flowers-volume-2?_pos=4&_sid=367fbb00f&_ss=r)
+
+    >*Azami has always been attracted only to boys, especially the handsome Gwyn. Intelligent, sporty, attractive and just a little older than Azami, she's sure he would be an ideal boyfriend. Then, on the day Azami finally gets the courage to confess her feelings, everything she believes is suddenly called into question when she finds out that Gwyn is actually a girl!*
+    >
+    >*Despite her initial shock at learning Gwyn’s secret, Azami quickly realizes that love transcends gender, putting her feelings for Gwyn before her previous prejudices. But it turns out Azami isn’t the only girl who’s got her eye on Gwyn!*
+
+---
+<img src="https://tokyo-pop-us.imgix.net/covers/9781427860286.jpg?auto=format&w=300" alt="cover-image" width="200"/>
+
+- [Yuri Bear Storm](https://mangadex.org/title/f1432158-bb90-457e-a609-aafee951cac5/yuri-kuma-arashi) [<sup>Tokyopop</sup>](https://tokyopop.com/products/9781427860286_yuri-bear-storm-volume-3)
+
+    >*Every night, 16-year-old Kureha has a strange dream involving lilies, storms, and... her classmate Ginko as a bear?!*
+    >
+    >*At school, Kureha's unassuming personality and looks render her practically invisible. Sometimes, it feels like no one notices her at all... until cute and energetic Ginko asks Kureha to talk privately one day during lunch. Maybe she really is a bear... or maybe she's just got a crush on Kureha!*
+
+---
 
 **Denpa**
 
@@ -689,124 +737,195 @@ https://www.mangaupdates.com/poll.html?act=old_polls
 **Lezhin**
 
 ---
-<img src="https://ccdn.lezhin.com/v2/comics/5599030406348800/images/tall.webp?updated=1692773933619&width=214" alt="cover-image" width="200"/>
 
-- Bad Thinking Diary
-
----
-<img src="https://ccdn.lezhin.com/v2/comics/5342509844725760/images/tall.webp?updated=1642667941680&width=214" alt="cover-image" width="200"/>
-
-- Lilith 2
-
----
-<img src="https://ccdn.lezhin.com/v2/comics/6240011857690624/images/tall.webp?updated=1562051919950&width=214" alt="cover-image" width="200"/>
-
-- Moonlight Garden
-
----
-<img src="https://ccdn.lezhin.com/v2/comics/6663082292346880/images/tall.webp?updated=1680856778921&width=214" alt="cover-image" width="200"/>
-
-- Sora & Haena
-
----
-<img src="https://ccdn.lezhin.com/v2/comics/5369805451821056/images/tall.webp?updated=1550818801340&width=214" alt="cover-image" width="200"/>
-
-- Her Pet
-
----
-<img src="https://ccdn.lezhin.com/v2/comics/5771005493641216/images/tall.webp?updated=1580351794549&width=214" alt="cover-image" width="200"/>
-
-- Lilith
+*All Ages*
 
 ---
 <img src="https://ccdn.lezhin.com/v2/comics/5043026657542144/images/tall.webp?updated=1547449200858&width=214" alt="cover-image" width="200"/>
 
-- The Love Doctor
+- [The Love Doctor](https://mangadex.org/title/c71cbe9e-6cf9-404e-9b3b-b653755a6594/the-love-doctor) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/lovedoctor)
+
+    >*Jung Erae has no clue about relationships and men to the point where she drives every man away. Desperate, she seeks help and ends up contacting a love doctor, Cha Yoon. Strangely enough, Erae starts developing newfound feelings for this so-called doctor.*
 
 ---
-<img src="https://ccdn.lezhin.com/v2/comics/4858332713385984/images/tall.webp?updated=1674720220195&width=214" alt="cover-image" width="200"/>
+<img src="https://ccdn.lezhin.com/v2/comics/5369805451821056/images/tall.webp?updated=1550818801340&width=214" alt="cover-image" width="200"/>
 
-- Best Served Cold
+- [Her Pet](https://mangadex.org/title/65a01086-61a3-44e2-8b9a-328a3b73205d/her-pet) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/herpet)
 
----
-<img src="https://ccdn.lezhin.com/v2/comics/5194436215898112/images/tall.webp?updated=1687767794720&width=214" alt="cover-image" width="200"/>
-
-- Goodnight Cinderella
+    >*Gayoon decides to enroll into a high school far away from home just to be closer to Soha, her middle school heroine and idol. Gayoon finds out about Soha's loss and decides to help her by filling the role of Soha's once true friend - Happy, Soha's pet dog.*
 
 ---
-<img src="https://ccdn.lezhin.com/v2/comics/4799544069259264/images/tall.webp?updated=1668757412563&width=214" alt="cover-image" width="200"/>
+<img src="https://ccdn.lezhin.com/v2/comics/6663082292346880/images/tall.webp?updated=1680856778921&width=214" alt="cover-image" width="200"/>
 
-- Toy XX Box
+- [Sora & Haena](https://mangadex.org/title/86d4fcf4-51b8-402b-b22d-6d3c812be8fb/sora-haena) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/sorahaena)
+
+    >*"Please help me get a boyfriend!!" "Okay, but in return, you have to get me into college~" Sora is the top student at the prestigious Jaeil All-Girls High School but she suddenly finds herself lying to her classmates about a boyfriend she doesn't have, which leads her to accepting the near-impossible task of getting the delinquent Haena Woo into college. But in return, Haena will have to find Mr. Right for Sora so she doesn't get caught in her lie. Yet strangely, instead of some boy, Sora finds her heart beating for Haena..."*
 
 ---
 <img src="https://ccdn.lezhin.com/v2/comics/5521523239682048/images/tall.webp?updated=1559990029259&width=214" alt="cover-image" width="200"/>
 
-- Girl in the Birdcage
+- [Girl in the Birdcage](https://mangadex.org/title/2a45453a-cc9d-4835-8165-2bd585d72436/girl-in-the-birdcage) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/birdcage)
 
+    >*Yeonkwang Arts High School makes a clear distinction between the talented and the mediocre. The talented receive full benefits of the Gifted and Talented program—funding, training, opportunities to participate in exclusive art contests—while the mediocre are left to fend for themselves in the hopes that they, too, can one day make it into the prestigious program. Talent equals power in this competitive school, but when Chung-eun, a G/T student, falls for Yumi, a non-G/T student, the tables are turned. While Chung-eun is blinded by Yumi’s charms, Yumi’s got a hidden agenda.*
+  
 ---
 <img src="https://ccdn.lezhin.com/v2/comics/6624685837254656/images/tall.webp?updated=1534921202443&width=214" alt="cover-image" width="200"/>
 
-- White Angels Have No Wings
+- [White Angels Have No Wings](https://mangadex.org/title/f9b3de2c-5398-4d51-a4f9-bbad25834c3c/white-angels-have-no-wings) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/whiteangels)
 
----
-<img src="https://ccdn.lezhin.com/v2/comics/5071702525607936/images/tall.webp?updated=1641183090763&width=214" alt="cover-image" width="200"/>
-
-- Devil Drop
+    >*A Catholic school where everything seems tranquil and fine. But for Ayeon, a day doesn't pass without getting bullied until one day, Yeonhwa steps in against the bullies. Ayeon is grateful for Yeonhwa but what she doesn't realize is that there seems to be something more than just good intentions behind that beautiful smile.*
 
 ---
 <img src="https://ccdn.lezhin.com/v2/comics/5335823787819008/images/tall.webp?updated=1683100371687&width=214" alt="cover-image" width="200"/>
 
-- Getting to Know Grace
+- [Getting to Know Grace](https://mangadex.org/title/92d3e351-4802-4e74-bbc4-e771a977b572/taming-grace) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/know_grace)
 
----
-<img src="https://ccdn.lezhin.com/v2/comics/4967822548860928/images/tall.webp?updated=1680856859288&width=214" alt="cover-image" width="200"/>
-
-- Sore & Haena - Side Stories
-
----
-<img src="https://ccdn.lezhin.com/v2/comics/6743429903351808/images/tall.webp?updated=1694418338126&width=214" alt="cover-image" width="200"/>
-
-- Maybe Mine
-
----
-<img src="https://ccdn.lezhin.com/v2/comics/4553886531846144/images/tall.webp?updated=1551922447672&width=214" alt="cover-image" width="200"/>
-
-- Lily Love
-
----
-<img src="https://ccdn.lezhin.com/v2/comics/6458580942323712/images/tall.webp?updated=1566264323438&width=214" alt="cover-image" width="200"/>
-
-- Lily Love 2
-
----
-<img src="https://ccdn.lezhin.com/v2/comics/6574960871079936/images/tall.webp?updated=1549935296225&width=214" alt="cover-image" width="200"/>
-
-- Two Birds in Spring
+    >*Andrew is the only daughter of the famous Grace family. She also has an incurable disease. Due to her family's high status in society, Andrew grew up with no friends save for her maid, Herta, whom she has become intensely infatuated with. Little does she know, her family is responsible for ruining Herta's life. Can Andrew break the hierarchy and be with her? Or will Herta end her suffering first...*
 
 ---
 <img src="https://ccdn.lezhin.com/v2/comics/5251275148230656/images/tall.webp?updated=1563181652701&width=214" alt="cover-image" width="200"/>
 
-- Maison de Maid
+- [Maison de Maid](https://mangadex.org/title/3c9fed30-1664-43bf-a823-ac8b774e8dad/maison-de-maid) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/maison)
 
----
-<img src="https://ccdn.lezhin.com/v2/comics/6708978878840832/images/tall.webp?updated=1628238080588&width=214" alt="cover-image" width="200"/>
-
-- Soul Drifters
+    >*The lively yet clumsy new maid June does nothing right except cause trouble and yet, instead of berating June, the young and gracious madam forgives her and shows favoritism among the maids. Both have admiration and affection for one another, but will it turn into something more? 2nd Lezhin Comics World Comic Contest Second Prize Winner.*
 
 ---
 <img src="https://ccdn.lezhin.com/v2/comics/5943101207412736/images/tall.webp?updated=1659338358137&width=214" alt="cover-image" width="200"/>
 
-- Crush of the Decade
+- [Crush of the Decade](https://mangadex.org/title/b33e9cd5-0d8a-49c4-b320-cf75c21a3d20/unrequited-love-skill) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/crush_decade)
+
+    >*Yuna has kept a secret for ten whole years: she has a crush on her best friend, Da-hye. It’s a secret she intends to keep for the rest of her life, but the new year brings a lot of surprises: including a strange new woman named Zoey, who just might change everything. Caught between two women, Yuna’s one-sided crush just might die down…or turn into something else entirely. After a whole decade of pining, is it time for Yuna to finally find her happy ending? And if so, who will be the one to ultimately grant it to her?*
 
 ---
 <img src="https://ccdn.lezhin.com/v2/comics/6139953138499584/images/tall.webp?updated=1563182217401&width=214" alt="cover-image" width="200"/>
 
-- Dallae
+- [Dallae](https://mangadex.org/title/7e2ff827-35d6-4f17-9a8e-33e07e928373/dallae) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/dallae_en)
+
+    >*Bo-eun has recently acquired a furry little roommate named Dallae (Korean for azalea), who she met in an azalea field. Dallae has her own schedule, though, and comes and goes as she pleases. Meanwhile, Bo-eun can’t seem to stop dreaming about a missed friendship in high school – her name is Saeyeon. Oddly enough, it was around the time that Dallae started showing up that Bo-eun started having recurring dreams of Saeyeon... This story has two (or is it three?) main characters, and they’re all hiding a secret from each other. 3rd Lezhin Comics World Comic Contest Winner.*
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/4802805637840896/images/tall.webp?updated=1545202800547&width=214" alt="cover-image" width="200"/>
+
+- [Daily Witch](https://mangadex.org/title/9547cbbe-df33-4414-bd47-d31a3d9d941f/daily-witch) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/daily_witch)
+
+    >*The current world no longer has any need of special powers. Thus, witches have lost their value and are not that different from humans. That's why Misty lives a normal life with her fellow witches, Eve and Baba Yaga, while earning a living as a BL genre comic artist. One day, a mysterious group kidnaps Misty and all of a sudden their once normal life turns "abnormal!"*
+  
+---
+<img src="https://ccdn.lezhin.com/v2/comics/4819160384405504/images/tall.webp?updated=1534498047972&width=214" alt="cover-image" width="200"/>
+
+- [The Chain of Youth](https://mangadex.org/title/5b18efa2-66d6-4a8e-ae20-53e08cfe67f7/the-chain-of-youth) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/chainofyouth)
+
+    >*Jia is an average girl who, along with the majority of her classmates, has fallen head over heels for Yoona, a girl so pretty she's practically the school's idol. They're on two totally different levels, but Jia can ignore her feelings no longer! But who is Yoona, really? Stay tuned to see what romance unfolds between these two!*
+
+---
+
+*Mature - Mature Content Cannot be Viewed in the App*
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5599030406348800/images/tall.webp?updated=1692773933619&width=214" alt="cover-image" width="200"/>
+
+- [Bad Thinking Diary](https://mangadex.org/title/3ed82c63-c018-4f6a-a5ff-d5a71a08d5dc/bad-thinking-diary) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/bad_thinking_diary)
+
+    >*Minji and Yuna have been best friends since high school, and Minji counts herself lucky to have someone so pretty and kind in her life. She just knows that when she finally starts dating, she wants it to be with someone as amazing as Yuna! Everything seems perfect, but things start to change when Minji begins having dirty dreams… ones starring Yuna herself! Minji chalks it up to her own loneliness, but for some reason Yuna starts acting strangely when Minji tells her about it… Is she upset, or could it be that Yuna has harbored feelings for Minji all along? From unrequited love, excitement, and obsession, just where will these bad thoughts lead them?*
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5342509844725760/images/tall.webp?updated=1642667941680&width=214" alt="cover-image" width="200"/>
+
+- [Lilith 2](https://mangadex.org/title/571fe671-00d3-4cc1-b823-4d9188f3a2ad/lilith-2) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/lilith2_en)
+
+    >*Jaehee comes across as a shy, hard-working high school teacher. But behind closed doors, she gets her kicks by kneeling at the end of a whip, with her childhood friend Huilin holding the handle. However, when Sulhwa joins the school as a student teacher, secrets and feelings long buried start to surface. Now Jaehee's about to learn just how much pleasure she can pull from pain. Back with the same writer and a new artist, “Lilith 2” follows on where “Lilith” left off. So strap in and enjoy the rest of the ride….*
+
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/6240011857690624/images/tall.webp?updated=1562051919950&width=214" alt="cover-image" width="200"/>
+
+- [Moonlight Garden](https://mangadex.org/title/c70980c2-f60f-425b-8995-331a7b9dd88a/moonlight-garden) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/moonlightgarden)
+
+    >*The enchanting flower maidens of Moonlight Garden are coveted by all, as they are known to provide sexual pleasures beyond the imagination. But Dohwa, a young flower maiden who has not yet “bloomed,” concocts potions in the hopes of escaping her destined fate at the brothel. One night, she is caught stealing ingredients for her potions by Lady Hyewon, the new mistress of the Garden. But it turns out Dohwa isn’t the only one with an agenda. Lady Hyewon harbors a few terrible secrets of her own.*
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5771005493641216/images/tall.webp?updated=1580351794549&width=214" alt="cover-image" width="200"/>
+
+- [Lilith](https://mangadex.org/title/62f9588b-0636-44f7-bc8f-75e4cc65efc2/lilith) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/lilith_en)
+
+    >*As far as anyone can tell, Jaehee is a shy, hard-working high school teacher. Once she's behind closed doors and drawn curtains, Jaehee enjoys spending her time kneeling at the end of a whip. And no one enjoys holding the handle more than her childhood friend, Huilin. But, when Sulhwa starts her position as a student-teacher at the school, secrets and feelings long buried start to surface. Now, Jaehee's about to learn just how much pleasure she can pull from pain.*
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/4858332713385984/images/tall.webp?updated=1674720220195&width=214" alt="cover-image" width="200"/>
+
+- [Best Served Cold](https://mangadex.org/title/ee48f7ab-c0b4-46ca-9d2f-89d40b175010) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/served_cold)
+
+    >*Minjoo’s lonely. She keeps herself busy with social media, but that doesn’t help the fact that her husband’s distant and she’s virtually friendless. Nothing changes until she runs into Seo Jia, a handsome girl who’s just moved in downstairs. Minjoo’s never met anyone like Jia before, and can’t help but fall for Jia’s charms. But little does Minjoo know that their meeting wasn’t exactly serendipitious; in fact, every one of Jia's moves is carefully calculated...so that she can get her revenge! A spicy new GL comic from the creator of “No Holes Barred”!*
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5194436215898112/images/tall.webp?updated=1687767794720&width=214" alt="cover-image" width="200"/>
+
+- [Goodnight Cinderella](https://mangadex.org/title/a8919641-5d06-4daf-9348-2c1a687f6828/goodnight-cinderella) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/goodnight_cinderella_en)
+
+    >*Hong Jinju and Ji Soojung couldn't be any more different. Jinju is bubbly, popular, and more interested in hanging out with friends and chasing women than worrying about school. On the other hand, Soojung is quiet and reserved, relying on her good grades to earn her scholarship money to afford her tuition. Contrary to her closed off and frigid appearance, Soojung is secretly the model and muse for the lingerie company, “Goodnight Cinderella.” Jinju is drawn to the mysterious nature of Soojung and wants to get to know her better, meanwhile Soojung is keen to stay away and protect her secrets. Watch as the juicy drama unfolds on campus.*
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/4799544069259264/images/tall.webp?updated=1668757412563&width=214" alt="cover-image" width="200"/>
+
+- [Toy XX Box](https://www.lezhinus.com/en/comic/toyxxbox) <sup>Not on Mangadex - </sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/toyxxbox)
+
+    >*Taeyi has a reputation on campus for being extremely beautiful but a hard nut to crack. There’s a reason for that. She’d much rather enjoy the company of her toys than other people. She’s had enough of complicated and bothersome relationships with real humans. That is until a certain underclassman, Kim Ha-on, approaches her. After being convinced that she needs a partner to make the most of her new toy, she reluctantly let’s Ha-on in on her fun. But only on a strictly no strings attached basis! Things were supposed to be purely physical but it was only a matter of time before someone started to catch feelings… Will Ha-on become Taeyi’s new favorite toy or just be thrown back in the box with the rest of them?*
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5071702525607936/images/tall.webp?updated=1641183090763&width=214" alt="cover-image" width="200"/>
+
+- [Devil Drop](https://mangadex.org/title/ac3a4b3f-ae8b-4bbc-a5a4-cb5d72d65f31/devil-drop) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/devildrop_en)
+
+    >*One day, Joan, a young and sexually frustrated jobseeker, wakes up from a highly erotic dream only to discover that the star of that dream, a she-devil, is lying on her living room floor. So what does she do? Ask her to be her roommate, of course! With Lakam, a civil servant from Hell, she gets to enjoy all the perks of having a beautiful and perfect roommate. Large breasts, a wonderful physique, she even helps with the chores! But Lakam seems a bit too perfect. Is this arrangement truly a match made in heaven…or the beginning of hell on Earth? 2nd Lezhin Comics Big Comic Contest Prize Winner.*
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/4967822548860928/images/tall.webp?updated=1680856859288&width=214" alt="cover-image" width="200"/>
+
+- [Sora & Haena - Side Stories](https://www.lezhinus.com/en/comic/sorahaena_sidestories) <sup>Not on Mangadex - </sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/sorahaena_sidestories)
+
+    >*"Please help me get a boyfriend!!" "Okay, but in return, you have to get me into college~" Sora is the top student at the prestigious Jaeil All-Girls High School but she suddenly finds herself lying to her classmates about a boyfriend she doesn't have, which leads her to accepting the near-impossible task of getting the delinquent Haena Woo into college. But in return, Haena will have to find Mr. Right for Sora so she doesn't get caught in her lie. Yet strangely, instead of some boy, Sora finds her heart beating for Haena..."*
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/6743429903351808/images/tall.webp?updated=1694418338126&width=214" alt="cover-image" width="200"/>
+
+- [Maybe Mine](https://www.lezhinus.com/en/comic/maybe_mine) <sup>Not on Mangadex - </sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/maybe_mine)
+
+    >*What are the chances of finding love through a dating app? The shy and unexperienced Hyunsoo definitely doesn’t have the answer to that question, or to her nonexistent love life. But after hiding her sexual orientation for years, she decides to give the lesbian dating app, “Maybe,” a shot. There, she meets the drop-dead gorgeous Sijin, who whisks her away for an enchanting night together. One night quickly becomes two, and soon they find themselves developing feelings they’d never expected. However, the more they learn about one another, the more they find their past wounds and insecurities returning to haunt them and their relationship. Perhaps what Sijin and Hyunsoo have will be a passing fling, or maybe… it could be the start of something special.*
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/4553886531846144/images/tall.webp?updated=1551922447672&width=214" alt="cover-image" width="200"/>
+
+- [Lily Love](https://mangadex.org/title/d9661a97-5ded-4061-98d3-a821ba7f2fce/lily-love) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/lilylove)
+
+    >*When Donut meets Mew, their encounter turns out to be more than just a coincidence, as their closeness slowly turns into something more intimate. Lily Love... is a story between two very different people, who hand and hand, learn to trust each other in order to nurture and protect the love they share regardless of position, distance, or gender. If finding true love already seems next to impossible, how much harder will it be to keep it?*
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/6458580942323712/images/tall.webp?updated=1566264323438&width=214" alt="cover-image" width="200"/>
+
+- [Lily Love 2](https://mangadex.org/title/724dd143-c35c-478a-9cd8-fa8b58eca714/lily-love-2) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/lilylove2)
+
+    >*Ploy has been avoiding her family and anything that's related to her family's business as long as she could. She is now, however, forced to be part of the business and dreads what her parents have in store for her. Hopefully, there is one thing that could help her bear all of it as a certain student applies for an internship at the hotel Ploy is at.*
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/6574960871079936/images/tall.webp?updated=1549935296225&width=214" alt="cover-image" width="200"/>
+
+- [Two Birds in Spring](https://mangadex.org/title/1b7219e5-c4bc-4628-bf7c-c317d2837a18/two-birds-in-spring) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/2birds)
+
+    >*Sena's built the perfect life for herself. She a has a caring boyfriend, a job she actually enjoys, and all the comforts she could hope for. But behind her happy facade, she hides a past marred by a past relationship with another woman. Jinri isn't thrilled to be working at an office, much less to be running a department her father set up for her. She's spent years living a carefree live and adding to a long list of casual relationships with men and women. When these two meet, they'll have to re-evaluate their lives as well as the men and women they share it with.*
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/6708978878840832/images/tall.webp?updated=1628238080588&width=214" alt="cover-image" width="200"/>
+
+- [Soul Drifters](https://mangadex.org/title/7823e9c4-2600-4887-87cc-7bd62941b2ba/soul-drifters) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/souldrifters)
+
+    >*The human race has finally developed beyond natural death. The immortality so many have dreamed of has finally come to fruition. Claire Clayton, employed by the Eternal Life Corporation, spearheads similar projects as a prestigious researcher. Her wife, Sheryl Goss, holds the top position in the very same company. A stable job and a loving partner – the perfect life. Unbeknownst to her, she is an important piece of a puzzle she herself needs to solve; one which will unveil the mystery of life force and memory transference and shed light on the events of her murky past.*
 
 ---
 <img src="https://ccdn.lezhin.com/v2/comics/5833582225719296/images/tall.webp?updated=1651654017823&width=214" alt="cover-image" width="200"/>
 
-- Blind Passion
+- [Blind Passion](https://mangadex.org/title/7bc53a44-35c8-4511-affa-d0a32f869d16/blind-passion) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/blindpassion)
+
+    >*The royal palace is no place for fun and games—here, only the most cunning and powerful survive. After Soon-ock becomes queen consort thanks to the machinations of her scheming father and his allies, she finds herself in the middle of a bloody fight between the king and the crown prince. Despite her precarious position, Soon-ock is determined to survive and will do anything to ensure the safety of herself and her lover, Hyang-yi. She soon makes a deal that could either make her life heaven or hell. The only catch? Part of the plan involves using her beloved Hyang-yi. A gripping tale of conspiracy, lust, and desire set in the royal court of medieval Korea.*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/2b82c222-de1e-4ecf-88f4-99842e1c707d" alt="cover-image" width="200"/>
@@ -816,50 +935,312 @@ https://www.mangaupdates.com/poll.html?act=old_polls
     >*Ban Jiwoon is loved by all. No matter how chilly someone's exterior may seem, she always finds a way to break through. That is, until her classmate Lee Yoosun comes along. For some reason, Yoosun ignores Jiwoon’s every attempt to win her over. Jiwoon is dumbfounded that, despite her best efforts, she just can’t find a way to weasel her way into the standoffish student’s heart. But when the two have an unexpected encounter, they just might discover that it’s never when a girl is looking for love that she finds it. On the contrary…sometimes it comes from the place she least expects.*
 
 ---
-<img src="https://ccdn.lezhin.com/v2/comics/4802805637840896/images/tall.webp?updated=1545202800547&width=214" alt="cover-image" width="200"/>
-
-- Daily Witch
-
----
 <img src="https://ccdn.lezhin.com/v2/comics/5630934501294080/images/tall.webp?updated=1563181059617&width=214" alt="cover-image" width="200"/>
 
-- The Third Party
+- [The Third Party](https://mangadex.org/title/930f985b-b254-4bac-9e95-a4c357e44f32/the-third-party) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/thirdparty)
 
----
-<img src="https://ccdn.lezhin.com/v2/comics/4819160384405504/images/tall.webp?updated=1534498047972&width=214" alt="cover-image" width="200"/>
-
-- The Chain of Youth
+    >*A rich and beautiful girl, and the heiress to the GBS broadcasting center. A handsome aspiring news anchor with limitless ambitions. A gorgeous backstage producer with a secret. Three people with different goals and desires. A triangle love thriller that will keep you on the edge of your seats! 1st Lezhin US Comic Contest First Prize Winner.*
 
 ---
 <img src="https://ccdn.lezhin.com/v2/comics/6649261014646784/images/tall.webp?updated=1556186231229&width=214" alt="cover-image" width="200"/>
 
-- Elixir
+- [Elixir](https://mangadex.org/title/d3759ca6-d967-4ca0-ac00-41a943c32b45/elixir) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/elixir_en)
+
+    >*Eunha is heartbroken when she finds out her high school sweetheart, Siyeon, used an elixir to make her fall in love. When the two reunite 10 years later at a business meeting, Siyeon asks for a second chance. But before they can talk things out and rebuild their trust, greater magical forces interfere.*
 
 ---
 <img src="https://ccdn.lezhin.com/v2/comics/5782026120462336/images/tall.webp?updated=1605167416177&width=214" alt="cover-image" width="200"/>
 
-- White Angels Get No Rest
+- [White Angels Get No Rest](https://mangadex.org/title/705c0d08-2f93-4e63-ba6a-7f140d5d802d/white-angels-get-no-rest) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/whiteangels2)
+
+    >*Dahye is still haunted by the abuse she got from Yeonhwa. Fate has it, Dahye is able to carry out her revenge after so many years. In what ways will Dahye get her revenge, and will Yeonhwa be even affected by it?*
 
 ---
 <img src="https://ccdn.lezhin.com/v2/comics/5558424190582784/images/tall.webp?updated=1673832304471&width=214" alt="cover-image" width="200"/>
 
-- My Girlfriend's Ex-Boyfriend
+- [My Girlfriend's Ex-Boyfriend](https://mangadex.org/title/cf5404d1-dd42-497b-a94e-27e6a8974c89/my-girlfriend-s-ex-boyfriend) [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/exboyfriend)
+
+    >*I was never curious about my girlfriend's past...until that incident! Now I'm just dying to know! Who is this ex-boyfriend? Why is he acting so friendly? What happened between them in the past?! It sure isn't your typical love triangle. 2nd Lezhin Comics World Comic Contest Winner.*
 
 ---
 
 **Manta**
 
+---
+<img src="https://static.manta.net/2020-12-15/Sr/SraoaklQcSDurGEk.jpg" alt="cover-image" width="200"/>
+
+- [Words & Kisses](https://mangadex.org/title/70b7dcb2-6f86-4210-8db9-542a21f3a6b1/words-kisses) [<sup>Manta</sup>](https://manta.net/en/series/words-kisses?seriesId=1229)
+
+    >*She was the one I'd been looking for. Just as I was about to get into another ambiguous, half-hearted relationship, I met her. Hyunjin Go. I couldn't take my eyes off her. I had been treading a dull path, and she knocked me right off. Then I felt it — a little piece of my heart, breaking off and slipping away. "She's so pretty..."*
+
+---
+<img src="https://static.manta.net/2023-07-10/JR/JRrbGKOCglncsNV1.jpg" alt="cover-image" width="200"/>
+
+- [The Iron Inside](https://manta.net/en/series/the-iron-inside?seriesId=2096) <sup>Not on Mangadex - </sup> [<sup>Manta</sup>](https://manta.net/en/series/the-iron-inside?seriesId=2096)
+
+    >*Love and survival beneath the sand. Baekgi awakens in a world engulfed in sand after being cryogenically frozen. She joins Spear and Shield, a unit entrusted with protecting the bunker, and begins training under her senior officer, Ibaek. They must fight to survive in this new world amidst sudden epidemics and monster attacks...*
+
+---
+<img src="https://static.manta.net/2020-12-10/VQ/VQe3E2ZzNloR7MUv.jpg" alt="cover-image" width="200"/>
+
+- [Killing Mr. Park](https://manta.net/en/series/killing-mr-park?seriesId=1129) <sup>Not on Mangadex - </sup> [<sup>Manta</sup>](https://manta.net/en/series/killing-mr-park?seriesId=1129)
+
+    >*One day, Sujin confesses to Min that she wants to kill her husband, Mr. Park, during the company field trip. Min, who has had a crush on Sujin for a long time, agrees to help her with her plan. But on the trip, despite seeming as if she doesn't remember the plan, Sujin acts strangely. What agenda could Sujin be hiding?*
+
+---
+<img src="https://static.manta.net/2024-01-04/nY/nYm3KdFvSyQWDTbO.jpg" alt="cover-image" width="200"/>
+
+- [Let's Kill Your Husband](https://mangadex.org/title/4f54fc14-c7c4-4fa8-aac5-fbadd0aab1aa/let-s-kill-your-husband) [<sup>Manta</sup>](https://manta.net/en/series/let-s-kill-your-husband?seriesId=1324)
+
+    >*So should we kill your husband? Your shaky demeanor, the bruises on your face... It killed me to see how you'd changed after getting married. Maybe we should just kill your husband. But how? Will our lives ever be the same again? Fate must have been on our side, because everything went smoother than expected.*
+    
+---
+<img src="https://static.manta.net/2022-08-26/62/62WhyIILTwoTnRwM.jpg" alt="cover-image" width="200"/>
+
+- [Don't Fall In Love!](https://mangadex.org/title/35e143c0-661e-4fd2-b583-ed6598e0ab5c/no-don-t-fall-in-love) [<sup>Manta</sup>](https://manta.net/en/series/don-t-fall-in-love?seriesId=1872)
+
+    >*Helplessly falling in love at first sight. Junghyun is a girl who easily gets carried away by her feelings. On her first day of work as a manager for actress Heera Joo, she falls head over heels for her! Junghyun can't afford to lose her job, but her heart melts every time she sees Heera's face. Will she be able to hide her feelings?*
+
+---
+<img src="https://static.manta.net/2021-08-05/AN/ANtbGwnXpLUGcuCg.jpg" alt="cover-image" width="200"/>
+
+- [Tendering Resignation](https://mangadex.org/title/235f24e7-fa17-4493-9a0d-a0a42a83af61/request-to-leave) [<sup>Manta</sup>](https://manta.net/en/series/tendering-resignation?seriesId=1273)
+
+    >*3 women, 1 messy love triangle! Geumhee has always felt safe and comfortable working at her best friend Taeri's company. But everything changes when Bora comes and stirs things up — Taeri suddenly goes into hiding, and Geumhee gets thrown into the middle of... a police investigation and a messy lesbian love triangle!*
+
+---
+<img src="https://static.manta.net/2022-03-23/Gg/Ggo2al3m01PtDfWT.jpg" alt="cover-image" width="200"/>
+
+- [Spring and Winter](https://manta.net/en/series/spring-and-winter?seriesId=1330) <sup>Not on Mangadex - </sup> [<sup>Manta</sup>](https://manta.net/en/series/spring-and-winter?seriesId=1330)
+
+    >*Outed in high school?! In the middle of the night, high schooler Jungyoon sends a teary text to her ex-girlfriend in the hopes of winning her back. But much to her horror, she discovers that she's actually sent it to Doyoung, the most anti-social girl in her class! Will she be outed at school?!*
+
+---
+
 **PocketComics**
+
+---
+<img src="https://images.comico.io/thumbnail/en/193/193/cover/main/1630464617259.jpg" alt="cover-image" width="200"/>
+
+- [The Forbidden Peach](https://mangadex.org/title/eaea38ae-f16a-4d8a-abd2-06141ac72ec3/suimitsutou-ha-shoujo-ni-kajirareru) [<sup>PocketComics</sup>](https://www.pocketcomics.com/comic/193)
+
+    >*Momoka is almost thirty years old and has had no love experience. Frustrated with her situation, she looks up dating services online and stumbles upon a "lesbian brothel". Momoka decides to try it out and ends up having sex with "Riko", one of the girls from the brothel. Momoka becomes captivated by Riko but soon discovers that she is keeping a secret...?*
+
+---
+<img src="https://images.comico.io/thumbnail/en/203/203/cover/main/1622683963419.jpg" alt="cover-image" width="200"/>
+
+- [Her Tale of Shim Chong](https://mangadex.org/title/a812160f-9242-48cb-b0b9-0119841e646b/her-tale-of-shim-chong) [<sup>PocketComics</sup>](https://www.pocketcomics.com/comic/203)
+
+    >*In a unique interpretation of a famous Korean folk tale, two women of vastly different backgrounds find comfort and strength in one another while fighting against a world and culture dominated by men.*
+
+---
+<img src="https://images.comico.io/comic/thumbnail/en/438/438/cover/main/1647485888724.jpg" alt="cover-image" width="200"/>
+
+- [Shine on You](https://www.pocketcomics.com/comic/438) <sup>Not on Mangadex - </sup> [<sup>PocketComics</sup>](https://www.pocketcomics.com/comic/438)
+
+    >*Four years ago, Joe came out as a female writer from her pen name Jeffery Collins. Amid many denunciations, an amicable man named Liam approaches her. However, he turned out to be a notorious literary critic. Along with her father's disapproval as a writer, Joe became hostile and unable to trust anyone. That is until Anna Baker, a bright young art student, starts to change her.*
+
+---
+<img src="https://images.comico.io/thumbnail/en/239/239/cover/main/1623814047469.jpg" alt="cover-image" width="200"/>
+
+- [My Princess Charming](https://mangadex.org/title/d02a17ed-a1eb-4fa0-80a3-65fc13d59d1e/my-princess-charming) [<sup>PocketComics</sup>](https://www.pocketcomics.com/comic/239)
+
+    >*Twenty-one year old Yuna is tired of having guys hit on her all the time. As popular as she is, she's been single her whole life. Just when she decides to make herself a boyfriend to fend off guys, she meets a handsome guy who looks good enough to be her boyfriend. But wait, the guy is actually a girl! In fact, rumor says that Min is a lesbian. Nonetheless, the two decide to pretend to be in a romantic relationship.*
+
+---
+<img src="https://images.comico.io/comic/thumbnail/en/131/8131/cover/main/1653367388711.jpg" alt="cover-image" width="200"/>
+
+- [The Glass](https://www.pocketcomics.com/comic/8131) <sup>Not on Mangadex - </sup> [<sup>PocketComics</sup>](https://www.pocketcomics.com/comic/8131)
+
+    >*Lara and Suni are childhood friends who meet again after 10 years. Suni is a member of the world’s most successful idol group, "THE GLASS''. Lara is looking for a job while planning her wedding with her fiancé, Mark. After a small accident, they meet again and - thanks to Suni's help - Lara gets a job as her new manager!*
+
+    >*However, Suni has a secret… she’s been in love with Lara since childhood, and now she is determined to keep the promise they made to each other when they were little girls... to marry her. Suni and her teammates (Eva, Dana, and Lia) will fight to achieve their dream of being the first idol group to win a Grammy, but will their love and drama keep it out of reach in the end? Music, dance, fashion, and a lot of passion... "see us, hear us" we are THE GLASS!*
+
+---
+<img src="https://images.comico.io/thumbnail/en/334/334/cover/main/1628522733279.jpg" alt="cover-image" width="200"/>
+
+- [Butterfly Love Effect](https://mangadex.org/title/9b72abeb-b054-4db2-a871-a016bc59090c/the-sound-of-a-butterfly) [<sup>PocketComics</sup>](https://www.pocketcomics.com/comic/334)
+
+    >*Bullied at school and abused at home, Seulbi, a high school senior struggling with her interest in other girls and her dull life, is on the verge of ending it all. That is, until she runs into an odd girl, wandering the streets with no memory of who or where she is. Instantly falling for this mysterious girl who has no memories and doesn't feel any pain or hunger, Seulbi gives her a new name, Gu Seju, meaning "Savior". The only clue of Seju's identity is a mysterious note that appears in her pocket each day. Seulbi sticks with her, determined to help and solve the mystery that is Seju. However, as the mystery unfolds... Seulbi discovers a secret beyond anything she could imagine: Seju is her future girlfriend who has traveled back in time to see her??!!!!*
+
+---
+<img src="https://images.comico.io/thumbnail/en/225/225/cover/main/1623394686486.jpg" alt="cover-image" width="200"/>
+
+- [Would You? Could You?](https://mangadex.org/title/88411e0c-865b-43d4-b001-f3ddffea47af/would-you-could-you) [<sup>PocketComics</sup>](https://www.pocketcomics.com/comic/225)
+
+    >*Why didn't you accept my bouquet? She asked, years later like it was the simplest thing. Chance brought Juna back into Yunseo's life but things were much more complicated now. They were no longer in college where the only obstacle between them were the truth yet spoken. Luna was married with a child, what could Yunseo do? As Saeha chases after Yunseo, Yunseo discovers even after all these years she'd still love Juna at the drop of a hat. The three women navigate through their feelings for another, each desperate and yearning for a chance to be accepted.*
+
+---
+<img src="https://images.comico.io/thumbnail/en/194/194/cover/main/1628003971582.jpg" alt="cover-image" width="200"/>
+
+- [Maid in Heaven](https://mangadex.org/title/dc3e195c-0ade-4733-b835-5d38fcee4729/maid-in-heaven) [<sup>PocketComics</sup>](https://www.pocketcomics.com/comic/194)
+
+    >*"An orphan, Sherl Watson, leaves her job in London to work at the Taylor Mansion. Rumors and a cloud of mystery surrounds the mansion as strange occurences keep popping up. Will Sherl and the other maids be able to get out alive or were they all doomed to begin with?"*
+
+---
 
 **TappyToon**
 
-**Azuki**
+---
+<img src="https://d1ed0vta5mrb00.cloudfront.net/comics/370/thumbnails/dca0e2fb-1cb6-403b-a8eb-d9a8979a5cb3.jpg?size=large" alt="cover-image" width="200"/>
 
-**Lilyka Manga(Active?)**
+- [Savior](https://mangadex.org/title/b4e1ca94-668c-47f7-aac9-229917608d4b/savior) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/savior)
+
+    >*Ku Wohn is a vampire that needs human blood to survive. As a tenderhearted child, she led a tortured existence until a girl named Seyeon willingly became her steady blood source. Seyeon stood by Wohn throughout their school years, defending her from bullies. Fast forward to the present where they move in together ahead of their freshman year of college. Seyeon remains fiercely protective of her friend, but Wohn is ready for a fresh start. When a devoutly religious sophomore girl named Juyi showers her with kindness, Wohn emerges from her shell only to realize that Juyi had once been her father’s kidnapping victim, a potential blood source she had refused to bite. Juyi grows closer to Wohn without remembering the incident, fueling jealousy in Seyeon. Will Juyi prove to be a savior washing away Wohn’s guilt, or will she ruin a vampire’s dream of redemption?*
+
+---
+<img src="https://d1ed0vta5mrb00.cloudfront.net/comics/215/thumbnails/cover_14a2d977-c027-41b2-8dcd-a79b7fe2dec0.jpg?size=large" alt="cover-image" width="200"/>
+
+- [The Barefoot Nina](https://mangadex.org/title/20428655-eaa3-4563-8077-92c26cbbf744/the-barefoot-nina) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/the-barefoot-nina)
+
+    >*When shy and timid Eunseo was forced to transfer to the elite Stella Academy of the Arts, she expected lonely school days filled with cutthroat competition. So she's taken by surprise when the free-spirited Ina takes a sudden liking to her. The two girls become closer as they secretly meet on the rooftop after classes, and Eunseo's friendly admiration grows into something more. Luckily, Ina returns her feelings as well... but they seem to border on a dark obsession that grows larger by the day. What will happen when Eunseo discovers the hidden reason behind Ina's mysterious love?*
+
+---
+<img src="https://image-repository-cdn.tappytoon.com/series/71/1a458b2b-ee21-410e-91da-40029155cbba.jpg?size=large" alt="cover-image" width="200"/>
+
+- [After the Curtain Call](https://mangadex.org/title/65f631d8-3965-435b-94c1-4c1808e36157/after-the-curtain-call) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/after-curtain-call)
+
+    >*Soyoung is devastated when her favorite musical actor is swallowed up by the world of TV. Just after she quits supporting him, she discovers charismatic actress Jaeyi in a theater performance of "Macbeth" and becomes a fan at first sight. By meeting Jaeyi after her shows and even doing her a favor, Soyoung goes from a mere fan to her good friend. But when Jaeyi has to work with celebrity actress Hyesun, who she has a troubled past with, it unexpectedly sours their friendship. All Soyoung wanted was to support her favorite actress... so why does this new development bother her so much?*
+
+---
+<img src="https://d1ed0vta5mrb00.cloudfront.net/comics/27/thumbnails/cover_c1553d5d-67cc-40e9-bd93-135bd6cd369a.jpg?size=large" alt="cover-image" width="200"/>
+
+- [Seasons in Bloom](https://mangadex.org/title/de88a251-e1a4-4e08-b166-ef317548e44b/seasons-in-bloom) [<sup>TappyToon</sup>](https://www.tappytoon.com/en/book/seasonsib)
+
+    >*Two young girls at a renowned boarding school depend on and despise each other for the attention they both desperately want-and the love they cannot sustain. Every rose has its thorns, each dazzling flame burns in this period thriller set in turn of the century Seoul, during Japan's colonial occupation of Korea. Genre: GL, Romance, Drama, Mystery, School [Series Complete]*
+
+---
+
+**Titan**
+
+---
+<img src="https://dyn.media.titan-comics.com/JZM7rXZ6C5Pp7h3op9Otz5YUzK0=/300x0/https://media.titan-comics.com/comics/issues/BurstAngelVol1.jpg" alt="cover-image" width="200"/>
+
+- [Burst Angel](https://mangadex.org/title/608ceab6-b924-4d3f-95d2-5a874f543f78/bakuretsu-tenshi-angel-s-adolescence)  [<sup>Titan</sup>](https://titan-comics.com/c/2038-burst-angel-vol1/) <sup> - Previously Available on </sup> [<sup>Tokyopop</sup>](https://www.amazon.com/Burst-Angel-MANGA-1-Gonzo/dp/1427811822)
+
+    >*Culinary student Takeru’s life takes a sudden turn when he crosses paths with Jo, an ace sharpshooter, and the kind-hearted Meg. The dynamic duo run a ‘Jack of all trades’ service, which sees them thwart criminals, recover stolen treasures, and battle formidable opponents to pay the bills. Takeru is inspired by his new friends and finds courage in the face of adversity, proving that overcoming fears can lead to unexpected heroism.*
+
+**Manga.Club**
+
+---
+<img src="https://d205c5ezx6yg6v.cloudfront.net/MAGIAEN/IMMORAL-EN/001/cover.jpg" alt="cover-image" width="200"/>
+
+- Immoral
+
+---
+<img src="https://d205c5ezx6yg6v.cloudfront.net/ROLLEN/YURIWALL-EN/001/cover.jpg" alt="cover-image" width="200"/>
+
+- Yuri Wall
+
+---
+<img src="https://d205c5ezx6yg6v.cloudfront.net/ROLLEN/JUSTDREAM-EN/001/cover.jpg" alt="cover-image" width="200"/>
+
+- Smile, It's Just a Dream
+
+---
+<img src="https://d205c5ezx6yg6v.cloudfront.net/ROLLEN/KOTONOHA-EN/001/cover.jpg" alt="cover-image" width="200"/>
+
+- Kotonoha
+
+---
+<img src="https://d205c5ezx6yg6v.cloudfront.net/ROLLEN/LILYMARBLE-EN/001/cover.jpg" alt="cover-image" width="200"/>
+
+- Lily Marble
+
+---
+<img src="https://d205c5ezx6yg6v.cloudfront.net/ROLLEN/GIRLSCOCOON-EN/001/cover.jpg" alt="cover-image" width="200"/>
+
+**Lilyka**
+
+---
+<img src="https://emanga.com/cdn/shop/products/YunagiMarbled_000_480x480.png?v=1579919404" alt="cover-image" width="200"/>
+
+- Yunagi Marbled
+
+---
+<img src="https://emanga.com/cdn/shop/products/UnderMySkin_000_480x480.png?v=1675133161" alt="cover-image" width="200"/>
+
+- Under My Skin
+
+---
+<img src="https://emanga.com/cdn/shop/products/TomarigiNoMa_000_480x480.png?v=1579920893" alt="cover-image" width="200"/>
+
+- Tomarigi no Ma -Where The Lovebird Comes to Rest-
+
+---
+<img src="https://emanga.com/cdn/shop/files/000000_1b3d2ba1-3a86-4644-982b-85998156263f_480x480.jpg?v=1683239158" alt="cover-image" width="200"/>
+
+- Tokorozawa is 177 cm Tall
+
+---
+<img src="https://emanga.com/cdn/shop/products/ToBecomeAnAdult_000_480x480.png?v=1579920885" alt="cover-image" width="200"/>
+
+- To Become An Adult
+
+---
+<img src="https://emanga.com/cdn/shop/files/000000_66698da3-e943-4df4-bb12-d494838740ef_480x480.jpg?v=1683068789" alt="cover-image" width="200"/>
+
+- Inhuman Girls
+
+---
+<img src="https://emanga.com/cdn/shop/products/TheStalkerAndThePrince_000_480x480.png?v=1579920849" alt="cover-image" width="200"/>
+
+- The Stalker and the Prince
+
+---
+<img src="https://emanga.com/cdn/shop/products/TheRightToLove2_000_480x480.png?v=1579920080" alt="cover-image" width="200"/>
+
+- The Right to Love
+
+---
+<img src="https://emanga.com/cdn/shop/products/TheRedRook_000_480x480.png?v=1579920071" alt="cover-image" width="200"/>
+
+- The Red Rook, The Blue Bishop, and The Colorful Pawn
+
+---
+<img src="https://emanga.com/cdn/shop/products/TheRainAndTheOtherSideOfYou_000_480x480.png?v=1579920068" alt="cover-image" width="200"/>
+
+- The Rain and the Other Side of You
+
+---
+<img src="https://emanga.com/cdn/shop/files/000000_0d15e099-f1fe-4a10-b0eb-eccdf8a818a2_480x480.jpg?v=1682983593" alt="cover-image" width="200"/>
+
+- The Mermaid's Garden
+
+---
+<img src="https://emanga.com/cdn/shop/products/TheMargueriteAndTheBlackRose_000_480x480.png?v=1579920008" alt="cover-image" width="200"/>
+
+---
+<img src="https://emanga.com/cdn/shop/files/000000_75447aa5-ba8a-468f-8e99-0ce215c88408_480x480.jpg?v=1682815518" alt="cover-image" width="200"/>
+
+---
+<img src="https://emanga.com/cdn/shop/products/TheGatheringOfLove_000_480x480.png?v=1579919803" alt="cover-image" width="200"/>
+
+---
+<img src="https://emanga.com/cdn/shop/files/000000_dfd9113f-1b37-4f00-b82b-705878790363_480x480.jpg?v=1683062924" alt="cover-image" width="200"/>
+
+---
+<img src="https://emanga.com/cdn/shop/files/000000_e7163225-86b7-4aaf-b7ac-bdb0dd064a72_480x480.jpg?v=1682973210" alt="cover-image" width="200"/>
+
+---
+<img src="https://emanga.com/cdn/shop/products/Tadokorosan4_000_480x480.png?v=1674695522" alt="cover-image" width="200"/>
+
+---
+<img src="https://emanga.com/cdn/shop/products/strawberrysyrup_000_480x480.png?v=1674784037" alt="cover-image" width="200"/>
+
+---
+<img src="https://emanga.com/cdn/shop/files/000000_4d7a2d8a-a177-4a6a-a0ea-721550183f5d_480x480.jpg?v=1683060855" alt="cover-image" width="200"/>
+
+---
+
+
+
 
 **INKR**
 
 ![i300805](https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/6f8e8e21-bf9f-4ca3-a856-ed5b3a16197d)
+
+**Renta**
 
 **Webcomics**
 
