@@ -594,16 +594,14 @@
     >*Fumi is glad Akira is back in her life. Even in kindergarten, Akira knew how to stand up for herself, and she was always willing to stand up for Fumi too. But Fumi’s first love recently got married, and Fumi is grappling with a broken heart and the fact that her sweetheart was another woman… Can Akira’s open heart help dispel the gloom Fumi has been caught up in?*
 
 ---
-<img src="https://dwgkfo5b3odmw.cloudfront.net/manga/thumbs/thumb-11865-MCW_01_web.jpg" alt="cover-image" width="200"/>
-
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/79227883-11a9-4532-ba1d-e44372f5bef7" alt="cover-image" width="200"/>
 
 - [Miyuki-Chan in Wonderland](https://mangadex.org/title/dfbb1fd7-4790-4db0-ae1d-2efa6c544ee4/fushigi-no-kuni-no-miyuki-chan) [<sup>Viz Media</sup>](https://www.viz.com/miyuki-chan-in-wonderland)
 
     >*There are many worlds in the universe outside of our own, connected by doors that are hidden to the eye. But if you chance upon those doors, you can be transported to a place where supple beauties reign supreme and all of your fantasies come alive. Should you pass through the doorways, be most careful, for the creatures you will meet can be as dangerous as they are beautiful. Many would die for a glimpse at those worlds - Miyuki would do anything to have them go away.*
 
 ---
-<img src="https://dw9to29mmj727.cloudfront.net/products/1974715140.jpg" alt="cover-image" width="200"/>
-
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/34e26130-50c7-44a0-b651-870b14d192e0" alt="cover-image" width="200"/>
 
 - [Revolutionary Girl Utena](https://mangadex.org/title/b5c810ba-d6d5-485e-8990-2fa48c893af8/revolutionary-girl-utena) [<sup>Viz Media</sup>](https://www.viz.com/revolutionary-girl-utena)
 
@@ -711,28 +709,29 @@
 *With Bilibili-EN down, the completed version might be lost media.*
 
 ---
-<img src="https://cdn.anime-planet.com/manga/primary/xian-chan-nu-1.jpg?t=1625847355" alt="cover-image" width="200"/>
+<img src="https://cdn.anime-planet.com/manga/primary/xian-chan-nu-1.jpg" alt="cover-image" width="200"/>
 
 - [Xian Chan Nu](https://mangadex.org/title/eb9ad4bd-3a08-4471-8c17-0e397e4e25a8/xian-chan-nu?tab=art) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc4)
 
     >*Liu Shiqing, the lady in charge of the escort who loves to play, encounters a cicada to save her when she is out of danger and falls in love at first sight. A story of revenge and loyalty is about to unfold around humans and demons, masters and servants.*
 
+
 ---
-<img src="https://cdn.anime-planet.com/manga/primary/what-should-i-do-if-ive-signed-a-marriage-contract-with-the-elven-princess-1.webp?t=1638412073" alt="cover-image" width="200"/>
+<img src="https://cdn.anime-planet.com/manga/primary/what-should-i-do-if-ive-signed-a-marriage-contract-with-the-elven-princess-1.webp" alt="cover-image" width="200"/>
 
 - [What Should I Do If I've Signed a Marriage Contract with the Elven Princess](https://mangadex.org/title/d76d1db5-3488-4f1b-a5e1-10288056e531/what-should-i-do-if-i-ve-signed-a-marriage-contract-with-the-elven-princess?tab=art) [<sup>Bilibili</sup>](https://m.bilibilicomics.com/detail/mc124)
 
     >*Nan Yue was only in transit in the Kingdom of Elven. But she found that she signed a marriage contract with Ah Sha, the elven princess. Wait, I am a girl! How could I marry the princess? Wait, why am I wanted by the world after I sign the marriage contract?? To survive, I have to take the princess for a leap of faith – As expected of an uptown girl, you are pretty hot! – Get lost, you perv!!*
 
 ---
-<img src="https://cdn.anime-planet.com/manga/primary/the-nightingale-and-the-rose-1.webp?t=1652984638" alt="cover-image" width="200"/>
+<img src="https://cdn.anime-planet.com/manga/primary/the-nightingale-and-the-rose-1.webp" alt="cover-image" width="200"/>
 
 - [Nightingale and the Rose](https://mangadex.org/title/0bd57ae7-6eab-4fdc-a323-2e6c752a217d/nightingale-and-the-rose) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc1588)
 
     >*Streamer Bai Xinxin transmigrated into the thriller game “The Nightingale and the Rose” as the prince’s daughter, Bai Yueguang. In this game, everyone wants to kill the female protagonist. Only Lan Sha, the character the player controls, can protect her. To survive in “a world full of bitter yanderes” and “political opponents who want to stop the marriage,” Bai Yueguang has to figure out how to win against her enemies while keeping herself and Lan Sha Alive. However, this “Lan Sha” seems to be a little…?!*
 
 ---
-<img src="https://cdn.anime-planet.com/manga/primary/help-because-of-a-bug-im-getting-pestered-by-the-games-babe-1.jpg?t=1625877646" alt="cover-image" width="200"/>
+<img src="https://cdn.anime-planet.com/manga/primary/help-because-of-a-bug-im-getting-pestered-by-the-games-babe-1.jpg" alt="cover-image" width="200"/>
 
 - [Help! Because Of A BUG, I'm Getting Pestered By The Game's Babe](https://mangadex.org/title/456925ac-9a19-4fa2-95d9-6789b21fb515/help-because-of-a-bug-i-m-getting-pestered-by-the-game-s-babes) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/mc6/11886)
 
@@ -741,35 +740,35 @@
     >*A group of beautiful girls appears and pesters the female game producer. Is this the beginning of a wonderful harem life? No, this is the beginning of a chaotic cohabitation life.*
 
 ---
-<img src="https://cdn.anime-planet.com/manga/primary/for-her-id-give-it-my-all-1.webp?t=1658696418" alt="cover-image" width="200"/>
+<img src="https://cdn.anime-planet.com/manga/primary/for-her-id-give-it-my-all-1.webp" alt="cover-image" width="200"/>
 
 - [For Her, I'd Give It My All](https://mangadex.org/title/9707d784-8619-4b82-bfda-d1e343763301/for-her-i-d-give-it-my-all) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc87)
 
     >*Jiaxia is a new editor for the comic company BliBli. Ever since high school she has admired comic artist Taiji-sensei, who inspired her to pursue a career in the 2D world. Although Taiji-sensei has a bad reputation in the publishing world for being lazy and troublesome, Jiaxia is determined to be her new editor. But will she be able to get Taiji-sensei to finally get motivated to draw a new comic?*
 
 ---
-<img src="https://cdn.anime-planet.com/manga/primary/her-who-i-yearn-for-1.webp?t=1636946619" alt="cover-image" width="200"/>
+<img src="https://cdn.anime-planet.com/manga/primary/her-who-i-yearn-for-1.webp" alt="cover-image" width="200"/>
 
 - [Her, Who I Yearn For](https://mangadex.org/title/e4cbc409-d540-48ef-a876-0b2a81e8a2ae/the-one-i-yearn-for) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc260)
 
     >*Dream chaser Nuo En accidentally bumped into the queen of fashion Jun Ling one day, and since then accidentally interlocked their fates. Two individuals from completely different backgrounds began living together after that. However, conspiracy after conspiracy slowly unveil themselves over time; will timid Nuo En alone be enough to save Jun Ling's heart from freezing forever?*
 
 ---
-<img src="https://cdn.anime-planet.com/manga/primary/her-lies-1.webp?t=1632358997" alt="cover-image" width="200"/>
+<img src="https://cdn.anime-planet.com/manga/primary/her-lies-1.webp" alt="cover-image" width="200"/>
 
 - [Her Lies](https://mangadex.org/title/acade594-f346-4f5f-acd0-3b5f936f4239/her-lies) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc243)
 
     >*By coincidence, Zhao Fugui a girl who can see everyone's life score, struggles every day on the front line of love in order to find the boy with 100 points. However, little did she know. There was a character with 100 points always been around her, and she loved herself deeply all the time...*
 
 ---
-<img src="https://cdn.anime-planet.com/manga/primary/lala-1.webp?t=1658423970" alt="cover-image" width="200"/>
+<img src="https://cdn.anime-planet.com/manga/primary/lala-1.webp" alt="cover-image" width="200"/>
 
 - [Lala](https://mangadex.org/title/719e258b-e2aa-4f6b-9676-50118ad27f28/lala) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc1953) <sup> - Season 1 at </sup> [<sup>Webcomics</sup>](https://www.webcomicsapp.com/comic/Lala/5c0a4df8d5626e75ff1f2d11)
 
     >*Xia Yuxun, a girl who really likes cute things and has been forced to repeat a year meets what she considers an angel at the start of the school year: the short and cute Xue Shini. In order to force Xue Shini into wearing her cute designs, Xia Yuxun has to attack. Will she get what she wants...? A light and funny schoolyard comedy unfolds here.*
 https://www.mangaupdates.com/poll.html?act=old_polls
 ---
-<img src="https://cdn.anime-planet.com/manga/primary/seeing-xinghuo-again-1.webp?t=1648001457" alt="cover-image" width="200"/>
+<img src="https://cdn.anime-planet.com/manga/primary/seeing-xinghuo-again-1.webp" alt="cover-image" width="200"/>
 
 - [Seeing Xinghuo Again](https://mangadex.org/title/7f972939-67a4-408d-9ebb-8fb15bbe9b07/seeing-the-spark-again) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc1565)
 
