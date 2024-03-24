@@ -54,6 +54,13 @@
     >*In an all-woman planet of intelligent fungi, Arriala and Erriela get married! But a member of the royal mushroom family is smitten with Erriela and is willing to start a war over her. To rescue her wife, can Arriala traverse the wild and treacherous mushroom kingdom and hope to survive?*
 
 ---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/52b8e4ac-2902-4d75-94b6-13282a432090" alt="cover-image" width="200"/>
+
+- [My Lesbian Experience with Loneliness](https://mangadex.org/title/4d84cc9c-0f88-45d0-8700-d364d8ddbca9/my-lesbian-experience-with-loneliness) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/my-lesbian-experience-with-loneliness/)
+
+    >*A hugely popular comic on Pixiv, My Lesbian Experience With Loneliness offers readers an honest and heartfelt look at one young woman’s exploration of her sexuality, mental well-being, and growing up in our modern age. (Continued in [My Solo Exchange Diary](https://sevenseasentertainment.com/series/my-solo-exchange-diary/), [My Alcoholic Escape from Reality](https://sevenseasentertainment.com/series/my-alcoholic-escape-from-reality/), and [My Wandering Warrior Existence](https://sevenseasentertainment.com/series/my-wandering-warrior-existence/).)*
+
+---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/299cb971-bc8c-4c3f-8669-d869dc91c850" alt="cover-image" width="200"/>
 
 - [Namekawa-san Won’t Take a Licking!](https://mangadex.org/title/ebff8638-a79f-4ddc-b754-3662bbbf4bd3/namekawa-san-won-t-be-bullied) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/namekawa-san-wont-take-a-licking/)
@@ -121,7 +128,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/2dabb3e8-e230-46b1-ab06-952fb6d9a766" alt="cover-image" width="200"/>
 
-- ROADQUEEN: Eternal Roadtrip to Love <sup>Not on Mangadex - </sup> [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/roadqueen-eternal-roadtrip-to-love/)
+- [ROADQUEEN: Eternal Roadtrip to Love](https://sevenseasentertainment.com/series/roadqueen-eternal-roadtrip-to-love/) <sup>Not on Mangadex - </sup> [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/roadqueen-eternal-roadtrip-to-love/)
 
     >*Leo’s the hottest senior at Princess Andromeda Academy, and her adoring fangirls have one goal: beat her in a road race and win the chance to date her! Unfortunately for them, the only thing Leo loves more than breaking hearts is her faithful motorcycle, Bethany. But when a mysterious girl named Vega takes Bethany away, Leo finds her heart may have been stolen, too.*
 
@@ -300,7 +307,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/67fd1902-8e73-461c-81b0-b7753ad63cb7" alt="cover-image" width="200"/>
 
-- Hungry for You: Endo Yasuko Stalks the Night <sup>Not on Mangadex - </sup> [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/hungry-for-you-endo-yasuko-stalks-the-night/)
+- [Hungry for You: Endo Yasuko Stalks the Night](https://sevenseasentertainment.com/series/hungry-for-you-endo-yasuko-stalks-the-night/) <sup>Not on Mangadex - </sup> [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/hungry-for-you-endo-yasuko-stalks-the-night/)
 
     >*In a gloomy town, where three girls have gone missing, high school girl Shizue witnesses an attack on a fellow classmate. The assailant appears to be none other than fellow student Endo Yasuko, a striking beauty who declares to Shizue that she is starving, and only Shizue can sate her hunger! Is Endo Yasuko a vampire, a serial killer–or just plain weird? And what does she really want from Shizue…?*
 
@@ -463,33 +470,372 @@
 ---
 <img src="https://cdn.kodansha.us/statics/Publications/30577/Pages/page-0001.jpg?f=webp&w=405" alt="cover-image" width="200"/>
 
+- [Chasing After Aoi Koshiba](https://mangadex.org/title/0dfc179b-26e6-469e-a2c2-01ad3185e607/kyou-koshiba-aoi-ni-aetara) [<sup>Kodansha</sup>](https://kodansha.us/series/chasing-after-aoi-koshiba)
+
+    >*A wistful yuri romance about the intense feelings of youth, and the perspective and regrets that adulthood can bring, for fans of manga like Bloom Into You and Orange. From the creator of Masamune-kun’s Revenge Hazuki Takeoka and acclaimed yuri artist Fly.*
+
 ---
 <img src="https://cdn.kodansha.us/statics/Publications/32214/Pages/page-0001.jpg?f=webp&w=405" alt="cover-image" width="200"/>
+
+- [I Can't Say No to the Lonely Girl](https://mangadex.org/title/d7576e72-0301-4ed3-9137-722ed768bfda/i-can-t-say-no-to-the-lonely-girl) [<sup>Kodansha - New Release on May 28, 2024</sup>](https://kodansha.us/series/i-cant-say-no-to-the-lonely-girl)
+
+    >*In this juicy yuri manga, the goody-goody high school girl Sakurai meets a lonely girl—and ends up entangled in a web of blackmail that might just lead to romance. It’s hard to keep up with school when you can never say no to a devious classmate!*
 
 ---
 <img src="https://cdn.kodansha.us/statics/comics/2022/05/9781646512751-IfICouldReachYou_007_cvr.jpg?f=webp&w=405" alt="cover-image" width="200"/>
 
+- [If I Could Reach You](https://mangadex.org/title/a44362f0-aaf9-4fef-9c60-acf65256705c/tatoe-todokanu-ito-da-to-shite-mo) [<sup>Kodansha</sup>](https://kodansha.us/series/if-i-could-reach-you)
+
+    >*In this heart wrenching new yuri manga, a teenage girl comes to terms with her own sexuality through her crush on her brother’s wife. Hopelessly in love, high schooler Uta must navigate living with her brother and Kaoru, her crush…and sister-in-law. Desperate to get over her unrequited feelings, Uta pulls away, but when the cracks in her brother’s marriage begin to show, Kaoru begins to confide in her new teenage sister, which just makes matters worse!*
+
 ---
 <img src="https://cdn.kodansha.us/statics/Products/31298/Pages/page-0001.jpg?f=webp&w=405" alt="cover-image" width="200"/>
+
+- [Run Away With Me, Girl](https://mangadex.org/title/fa6ee44f-8c47-4cbc-ba10-9815a100d6b5/run-away-with-me-girl) [<sup>Kodansha</sup>](https://kodansha.us/series/run-away-with-me-girl)
+
+   >*Maki’s first love was her high school classmate, a girl named Midori. But Midori broke up with Maki at graduation, saying they were now “too old to be fooling around dating girls.” Ten years later, Maki still can’t get Midori off her mind, and when the two women reconnect after a chance encounter, Maki realizes that, while her feelings haven’t changed, Midori has long moved on—in fact, she’s engaged. Yet the more Maki hears Midori talk about her soon-to-be-husband, the more red flags she notices. And Midori has another secret, one she hasn’t yet shared with Maki. Will it be the last blow to Maki’s hopes that their romance might be rekindled? Or will it be the push that sets them on a new path—one they’ll travel together?*
 
 ---
 <img src="https://cdn.kodansha.us/statics/comics/2022/11/SheHerCameraAndHerSeasons_Vol05_ReSize_cover_v1.jpg?f=webp&w=405" alt="cover-image" width="200"/>
 
+- [She, Her Camera, and Her Seasons](https://mangadex.org/title/80d614aa-c37b-428b-bf1f-25173fee7c87/kanojo-to-camera-to-kanojo-no-kisetsu) [<sup>Kodansha</sup>](https://kodansha.us/series/she-her-camera-and-her-seasons)
+
+    >*Akari is a third-year student who has spent her high school career sticking to the straight and narrow…but her attention is caught by Yuki Sendo, the short-haired, standoffish girl in her class who seems to buck the trend. Akari can’t seem to stop seeking Yuki out, and her feelings rapidly develop into something more than girlish friendship. But Yuki seems to have eyes only for her childhood friend, Rintaro Kagawa…who himself seems to have feelings for Akari. It’s a mess…and one that threatens to grow even messier as Akari navigates between what she wants and what’s expected of her…*
+
+---
+
 **J-Novel**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/463f57ba-13ce-40ee-8732-ce70b6fd76c0" alt="cover-image" width="200"/>
+
+- [I Love Yuri and I Got Bodyswapped With a Fujoshi!](https://mangadex.org/title/b89882d5-e2c8-457d-8b74-a70bf0b36b7e/ore-ga-fujoshi-de-aitsu-ga-yuriota-de) [<sup>J-Novel</sup>](https://j-novel.club/series/i-love-yuri-and-i-got-bodyswapped-with-a-fujoshi)
+
+    >*Meet Reiji Yoshida: a yuri otaku that loves yuri more than anything else in the world. All he wants is to enjoy his hobby in peace, but trouble ensues when he crosses paths with Mitsuru Hoshina, a fujoshi who is obsessed with boys’ love. Hijinks ensue, and a vengeful ghost residing in their school’s manga club swaps their bodies! Polar opposites in both personalities and hobbies clash in this exciting first volume—follow the adventures of their comedic body swap experiences!*
 
 **Viz Media**
 
-**Square Enix**
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d1aaca10-7596-4e71-85f3-39831f8e0116" alt="cover-image" width="200"/>
+
+- [The Girl That Can’t Get a Girlfriend](https://www.viz.com/girl-that-can-t-get-a-girlfriend) <sup>Not on Mangadex - </sup> [<sup>Viz Media</sup>](https://www.viz.com/girl-that-can-t-get-a-girlfriend)
+
+    >*Mieri is an awkward, nerdy college student with no dating experience, and her previous crushes on fellow butch women have all ended in disaster. That all changes when she meets Ash and has her feelings returned for the first time. But when first love turns to first heartbreak, Mieri will do everything possible to win Ash back. Based on true events, this is a hilarious and heart-wrenching story about love, loneliness, and the true meaning of finding one’s own happy ending.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c1676224-bb4e-42d8-a45e-a6df994a3e85" alt="cover-image" width="200"/>
+
+- [After Hours](https://mangadex.org/title/162ebd58-0b43-4d95-9b3a-da6ff4e34edd/after-hours) [<sup>Viz Media</sup>](https://www.viz.com/read/manga/after-hours/all)
+
+    >*The club is hopping and Emi isn’t…so she ends up hiding in a corner after her friend ditches her to flirt with a guy! Emi figures the night is a bust, but then someone amazing comes to her rescue. Kei is a DJ, and her effortless self-confidence captivates Emi. Is this just a wonderful night out or the start of the rest of her life?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/514d0508-bc49-4acf-81f7-78174f6e189c" alt="cover-image" width="200"/>
+
+- [Kannazuki no Miko](https://mangadex.org/title/4625710a-bff1-43d1-b3f0-c3da3e42f474/destiny-of-shrine-maiden) [<sup>Viz Media</sup>](https://www.viz.com/read/manga/kannazuki-no-miko/all)
+
+    >*Shy Himeko adores Chikane, the gorgeous and cool "princess" of their exclusive boarding school. She's been looking forward to their joint sweet sixteen birthday party for weeks. But on that fateful day, a shrine appears in the sky, giant robots ravage the school, and Himeko discovers that she is the reincarnation of the Solar Priestess--and Chikane is the reincarnated Lunar Priestess. As dark secrets unravel, one thing is clear: their lives will never be the same...*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8db6eb90-f655-4e77-925c-b087a6a21a81" alt="cover-image" width="200"/>
+
+- [Sweet Blue Flowers](https://mangadex.org/title/7e9ea5e7-7dc0-4907-b79c-5b66605ef955/sweet-blue-flowers) [<sup>Viz Media</sup>](https://www.viz.com/read/manga/sweet-blue-flowers/all)
+
+    >*Fumi is glad Akira is back in her life. Even in kindergarten, Akira knew how to stand up for herself, and she was always willing to stand up for Fumi too. But Fumi’s first love recently got married, and Fumi is grappling with a broken heart and the fact that her sweetheart was another woman… Can Akira’s open heart help dispel the gloom Fumi has been caught up in?*
+
+---
+
+**One Peace**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/972101b6-be2c-4193-a14e-a90b77998991" alt="cover-image" width="200"/>
+
+- [Whispered Words](https://mangadex.org/title/c83695c9-1831-48ba-82a3-8c5a6082ab61/sasameki-koto) [<sup>Viz Media</sup>](https://www.onepeacebooks.com/jt/WhisperedWords.html)
+
+    >*Whispered Words is the story of two high school girls, Sumika and Ushio. One is in love with the other, but unable to confess. Both of them prefer girls, but Ushio likes cute and petite types while Sumika prefers the athletic outgoing girls. To complicate things, a cross dressing boy, Masaki, is in love with Sumika. What ever will happen to this mixed-up bizarre love triangle mess?*
+
+---
 
 **Tokyopop**
+
+---
+<img src="https://tokyo-pop-us.imgix.net/covers/9781427875822.jpg?auto=format&w=300" alt="cover-image" width="200"/>
+
+- [Futaribeya: A Room for Two](https://mangadex.org/title/a9316e33-94ad-4388-9b30-eaf41990a076/futaribeya) [<sup>Tokyopop</sup>](https://tokyopop.com/products/9781427875822_futaribeya-a-room-for-two-volume-10)
+
+    >*About to start her first year of high school, Sakurako Kawawa settles into her new lodgings. But when she meets her new roommate ― the stunningly beautiful Kasumi Yamabuki, who lives life at her own pace ― everything changes! From day one, responsible and level-headed Sakurako and lazy, easygoing Kasumi find themselves at odds with one another... but with their matching mugs and one bed to share, Sakurako and Kasumi's friendship is just beginning!*
+
+---
+<img src="https://tokyo-pop-us.imgix.net/covers/9781427867506.jpg?auto=format&w=300" alt="cover-image" width="200"/>
+
+- [Still Sick](https://mangadex.org/title/98c34d01-2f69-41f1-bd54-4e0c7d89ce18/still-sick) [<sup>Tokyopop</sup>](https://tokyopop.com/products/9781427867506_still-sick-volume-3)
+
+    >*Makoto Shimizu is just an ordinary office worker, blending in seamlessly with her colleagues on the job... That is, until her coworker Akane Maekawa discovers her well-hidden secret: in her spare time, she draws and sells girls' love comics!*
+
+    >*Akane is the last person Makoto would think of as a nerd, but as the two grow closer, it starts to seem like Akane may have a secret of her own...     *
+
+---
+<img src="https://tokyo-pop-us.imgix.net/covers/9781427872272.jpg?auto=format&w=300" alt="cover-image" width="200"/>
+
+- [Just Friends](https://mangadex.org/title/20a01e92-9988-4d00-9804-87fe163e05fa/just-friends) [<sup>Tokyopop</sup>](https://tokyopop.com/collections/love-x-love/products/9781427872272_just-friends)
+
+    >*During one summer in her teens, Erika’s mother pressured her into going to a local overnight camp. Despite her reservations, Erika ended up meeting a girl named Emi... and Emi didn't let Erika’s anti-social front prevent them from forming a special bond.*
+
+    >*Now in their 30s, Erika and Emi reminisce about that fateful summer and consider what could have been.*
+
+---
+<img src="https://tokyo-pop-us.imgix.net/covers/9781427868855.jpg?auto=format&w=300" alt="cover-image" width="200"/>
+
+- [Sirius: Twin Stars](https://mangadex.org/title/7e826476-5801-421c-a368-a7f4ef7351d9/sirius-twin-stars) [<sup>Tokyopop</sup>](https://tokyopop.com/collections/love-x-love/products/9781427868855_sirius-twin-stars)
+
+    >*Dani's bright future as an elite tennis player comes to a sudden stop when, during a match, she has a heart attack. Her newly discovered condition affects not only her health, but also her relationship with her mother, as well as her career.*
+ 
+    >*Wanting to get away from everything, she leaves behind the big city ⁠— and all her problems ⁠—  and goes with her cousin to a little coastal village. There she meets Blanca, a girl full of life and in love with astronomy. Blanca reminds Dani that life can be beautiful, and that she can shine again like stars do.*
+
+---
+
+**Denpa**
+
+---
+<img src="https://m.media-amazon.com/images/I/81xi55FaeML._SL1500_.jpg" alt="cover-image" width="200"/>
+
+- [Vampeerz](https://mangadex.org/title/c431712b-231c-4d25-85fa-7ca6bf460f15/vampeerz) [<sup>Denpa</sup>](https://denpa.pub/manga/vampeerz-volume-1)
+
+    >*Just as Ichika and her family begin to settle down after a funeral, a mysterious young lady appears in their home searching for something. Who is this person? And is she looking for a memento or is she hunting down something more vascular?*
 
 **Dark Horse Comics**
 
 **Bilibili**
 
-*Listing What Was Ongoing at Site*
+*Listing What Was Complete at Site(I believe)*
+
+*With Bilibili-EN down, the completed version might be lost media.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3aa73986-86e4-47ff-bc43-42b6911c7677" alt="cover-image" width="200"/>
+
+- [Xian Chan Nu](https://mangadex.org/title/eb9ad4bd-3a08-4471-8c17-0e397e4e25a8/xian-chan-nu?tab=art) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc4)
+
+    >*Liu Shiqing, the lady in charge of the escort who loves to play, encounters a cicada to save her when she is out of danger and falls in love at first sight. A story of revenge and loyalty is about to unfold around humans and demons, masters and servants.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/78273215-e73f-443f-b3ae-9c37a70a00f5" alt="cover-image" width="200"/>
+
+- [What Should I Do If I've Signed a Marriage Contract with the Elven Princess](https://mangadex.org/title/d76d1db5-3488-4f1b-a5e1-10288056e531/what-should-i-do-if-i-ve-signed-a-marriage-contract-with-the-elven-princess?tab=art) [<sup>Bilibili</sup>](https://m.bilibilicomics.com/detail/mc124)
+
+    >*Nan Yue was only in transit in the Kingdom of Elven. But she found that she signed a marriage contract with Ah Sha, the elven princess. Wait, I am a girl! How could I marry the princess? Wait, why am I wanted by the world after I sign the marriage contract?? To survive, I have to take the princess for a leap of faith – As expected of an uptown girl, you are pretty hot! – Get lost, you perv!!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d2df006a-c3a2-49ec-95a6-62ff236054e8" alt="cover-image" width="200"/>
+
+- [Nightingale and the Rose](https://mangadex.org/title/0bd57ae7-6eab-4fdc-a323-2e6c752a217d/nightingale-and-the-rose) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc1588)
+
+    >*Streamer Bai Xinxin transmigrated into the thriller game “The Nightingale and the Rose” as the prince’s daughter, Bai Yueguang. In this game, everyone wants to kill the female protagonist. Only Lan Sha, the character the player controls, can protect her. To survive in “a world full of bitter yanderes” and “political opponents who want to stop the marriage,” Bai Yueguang has to figure out how to win against her enemies while keeping herself and Lan Sha Alive. However, this “Lan Sha” seems to be a little…?!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/5e5b04f3-5ae2-4d16-9b63-3e491626a01f" alt="cover-image" width="200"/>
+
+- [Help! Because Of A BUG, I'm Getting Pestered By The Game's Babe](https://mangadex.org/title/456925ac-9a19-4fa2-95d9-6789b21fb515/help-because-of-a-bug-i-m-getting-pestered-by-the-game-s-babes) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/mc6/11886)
+
+    >*Game characters come to life because of a bug?! Blossom, the ancient-style girl with an ancient mindset; Cthylla, the mature girl who comes from a mysterious world; Gumi, an idol of the Meow Country, Gumi; II, the mischievous, petite magical girl, and No.7, the AI-powered agent who loves money…*
+
+    >*A group of beautiful girls appears and pesters the female game producer. Is this the beginning of a wonderful harem life? No, this is the beginning of a chaotic cohabitation life.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/da84cdc0-5521-473f-8ee5-234d1d9d3e50" alt="cover-image" width="200"/>
+
+- [For Her, I'd Give It My All](https://mangadex.org/title/9707d784-8619-4b82-bfda-d1e343763301/for-her-i-d-give-it-my-all) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc87)
+
+    >*Jiaxia is a new editor for the comic company BliBli. Ever since high school she has admired comic artist Taiji-sensei, who inspired her to pursue a career in the 2D world. Although Taiji-sensei has a bad reputation in the publishing world for being lazy and troublesome, Jiaxia is determined to be her new editor. But will she be able to get Taiji-sensei to finally get motivated to draw a new comic?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/f82210c8-9f2a-4e6b-a683-807f4ce04d4d" alt="cover-image" width="200"/>
+
+- [Her, Who I Yearn For](https://mangadex.org/title/e4cbc409-d540-48ef-a876-0b2a81e8a2ae/the-one-i-yearn-for) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc260)
+
+    >*Dream chaser Nuo En accidentally bumped into the queen of fashion Jun Ling one day, and since then accidentally interlocked their fates. Two individuals from completely different backgrounds began living together after that. However, conspiracy after conspiracy slowly unveil themselves over time; will timid Nuo En alone be enough to save Jun Ling's heart from freezing forever?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d9f135f1-1ea3-4f67-b59d-160511c51dcf" alt="cover-image" width="200"/>
+
+- [Her Lies](https://mangadex.org/title/acade594-f346-4f5f-acd0-3b5f936f4239/her-lies) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc243)
+
+    >*By coincidence, Zhao Fugui a girl who can see everyone's life score, struggles every day on the front line of love in order to find the boy with 100 points. However, little did she know. There was a character with 100 points always been around her, and she loved herself deeply all the time...*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/938fd377-0e32-4044-a749-ae9b778dd187" alt="cover-image" width="200"/>
+
+- [Lala](https://mangadex.org/title/719e258b-e2aa-4f6b-9676-50118ad27f28/lala) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc1953) <sup> - Season 1 at </sup> [<sup>Webcomics</sup>](https://www.webcomicsapp.com/comic/Lala/5c0a4df8d5626e75ff1f2d11)
+
+    >*Xia Yuxun, a girl who really likes cute things and has been forced to repeat a year meets what she considers an angel at the start of the school year: the short and cute Xue Shini. In order to force Xue Shini into wearing her cute designs, Xia Yuxun has to attack. Will she get what she wants...? A light and funny schoolyard comedy unfolds here.*
+https://www.mangaupdates.com/poll.html?act=old_polls
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/42536929-0f3d-4235-b86f-e06a9960f5e6" alt="cover-image" width="200"/>
+
+- [Seeing Xinghuo Again](https://mangadex.org/title/7f972939-67a4-408d-9ebb-8fb15bbe9b07/seeing-the-spark-again) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc1565)
+
+    >*Through an old camera in the club's storage room, Gu An saw something that should not exist. She was a shooting star from three years ago named "Xinghuo." Why do you stay in the night sky? Why am I the only one who can see you? Gu An, who usually follows the crowd, wants to investigate and take the initiative for the first time in her life. As an observer and "the most important friend," Gu An and Xinghuo set on a journey to find the former club members and fulfill their dreams from three years ago. "It's... been exposed." "But, I'm really happy. Thank you, Gu An."*
 
 **Lezhin**
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5599030406348800/images/tall.webp?updated=1692773933619&width=214" alt="cover-image" width="200"/>
+
+- Bad Thinking Diary
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5342509844725760/images/tall.webp?updated=1642667941680&width=214" alt="cover-image" width="200"/>
+
+- Lilith 2
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/6240011857690624/images/tall.webp?updated=1562051919950&width=214" alt="cover-image" width="200"/>
+
+- Moonlight Garden
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/6663082292346880/images/tall.webp?updated=1680856778921&width=214" alt="cover-image" width="200"/>
+
+- Sora & Haena
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5369805451821056/images/tall.webp?updated=1550818801340&width=214" alt="cover-image" width="200"/>
+
+- Her Pet
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5771005493641216/images/tall.webp?updated=1580351794549&width=214" alt="cover-image" width="200"/>
+
+- Lilith
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5043026657542144/images/tall.webp?updated=1547449200858&width=214" alt="cover-image" width="200"/>
+
+- The Love Doctor
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/4858332713385984/images/tall.webp?updated=1674720220195&width=214" alt="cover-image" width="200"/>
+
+- Best Served Cold
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5194436215898112/images/tall.webp?updated=1687767794720&width=214" alt="cover-image" width="200"/>
+
+- Goodnight Cinderella
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/4799544069259264/images/tall.webp?updated=1668757412563&width=214" alt="cover-image" width="200"/>
+
+- Toy XX Box
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5521523239682048/images/tall.webp?updated=1559990029259&width=214" alt="cover-image" width="200"/>
+
+- Girl in the Birdcage
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/6624685837254656/images/tall.webp?updated=1534921202443&width=214" alt="cover-image" width="200"/>
+
+- White Angels Have No Wings
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5071702525607936/images/tall.webp?updated=1641183090763&width=214" alt="cover-image" width="200"/>
+
+- Devil Drop
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5335823787819008/images/tall.webp?updated=1683100371687&width=214" alt="cover-image" width="200"/>
+
+- Getting to Know Grace
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/4967822548860928/images/tall.webp?updated=1680856859288&width=214" alt="cover-image" width="200"/>
+
+- Sore & Haena - Side Stories
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/6743429903351808/images/tall.webp?updated=1694418338126&width=214" alt="cover-image" width="200"/>
+
+- Maybe Mine
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/4553886531846144/images/tall.webp?updated=1551922447672&width=214" alt="cover-image" width="200"/>
+
+- Lily Love
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/6458580942323712/images/tall.webp?updated=1566264323438&width=214" alt="cover-image" width="200"/>
+
+- Lily Love 2
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/6574960871079936/images/tall.webp?updated=1549935296225&width=214" alt="cover-image" width="200"/>
+
+- Two Birds in Spring
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5251275148230656/images/tall.webp?updated=1563181652701&width=214" alt="cover-image" width="200"/>
+
+- Maison de Maid
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/6708978878840832/images/tall.webp?updated=1628238080588&width=214" alt="cover-image" width="200"/>
+
+- Soul Drifters
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5943101207412736/images/tall.webp?updated=1659338358137&width=214" alt="cover-image" width="200"/>
+
+- Crush of the Decade
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/6139953138499584/images/tall.webp?updated=1563182217401&width=214" alt="cover-image" width="200"/>
+
+- Dallae
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5833582225719296/images/tall.webp?updated=1651654017823&width=214" alt="cover-image" width="200"/>
+
+- Blind Passion
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/2b82c222-de1e-4ecf-88f4-99842e1c707d" alt="cover-image" width="200"/>
+
+- [On the Contrary](https://www.lezhinus.com/en/comic/contrary)<sup>Not on Mangadex - </sup> [<sup>Lezhin</sup>](https://www.lezhinus.com/en/comic/contrary)
+
+    >*Ban Jiwoon is loved by all. No matter how chilly someone's exterior may seem, she always finds a way to break through. That is, until her classmate Lee Yoosun comes along. For some reason, Yoosun ignores Jiwoon’s every attempt to win her over. Jiwoon is dumbfounded that, despite her best efforts, she just can’t find a way to weasel her way into the standoffish student’s heart. But when the two have an unexpected encounter, they just might discover that it’s never when a girl is looking for love that she finds it. On the contrary…sometimes it comes from the place she least expects.*
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/4802805637840896/images/tall.webp?updated=1545202800547&width=214" alt="cover-image" width="200"/>
+
+- Daily Witch
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5630934501294080/images/tall.webp?updated=1563181059617&width=214" alt="cover-image" width="200"/>
+
+- The Third Party
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/4819160384405504/images/tall.webp?updated=1534498047972&width=214" alt="cover-image" width="200"/>
+
+- The Chain of Youth
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/6649261014646784/images/tall.webp?updated=1556186231229&width=214" alt="cover-image" width="200"/>
+
+- Elixir
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5782026120462336/images/tall.webp?updated=1605167416177&width=214" alt="cover-image" width="200"/>
+
+- White Angels Get No Rest
+
+---
+<img src="https://ccdn.lezhin.com/v2/comics/5558424190582784/images/tall.webp?updated=1673832304471&width=214" alt="cover-image" width="200"/>
+
+- My Girlfriend's Ex-Boyfriend
+
+---
 
 **Manta**
 
@@ -502,6 +848,13 @@
 **Lilyka Manga(Active?)**
 
 **INKR**
+
+![i300805](https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/6f8e8e21-bf9f-4ca3-a856-ed5b3a16197d)
+
+**Webcomics**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ad1f3267-14d7-4fcc-995d-7bcef52df005" alt="cover-image" width="200"/>
 
 **Webtoons**
 
