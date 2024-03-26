@@ -1167,93 +1167,146 @@ https://www.mangaupdates.com/poll.html?act=old_polls
 ---
 <img src="https://d205c5ezx6yg6v.cloudfront.net/MAGIAEN/IMMORAL-EN/001/cover.jpg" alt="cover-image" width="200"/>
 
-- Immoral
+- [Immoral](https://www.manga.club/book/title/IMMORAL-EN/) <sup>Not on Mangadex - </sup> [<sup>Manga.Club</sup>](https://www.manga.club/book/title/IMMORAL-EN/)
+
+    >*In order to save her sick older brother, Nian was sold to a wealthy family by her parents. For 9 years, Nian survived in the austere household until she suddenly met a mysterious white-haired girl who has the same surname as her. Is she a curse or a blessing?*
 
 ---
 <img src="https://d205c5ezx6yg6v.cloudfront.net/ROLLEN/YURIWALL-EN/001/cover.jpg" alt="cover-image" width="200"/>
 
-- Yuri Wall
+- [Yuri Wall](https://mangadex.org/title/7ca9b35c-264c-4de2-8c44-66a0cce33152/yuri-wall?tab=art) [<sup>Manga.Club</sup>](https://www.manga.club/book/title/YURIWALL-EN/)
+
+    >*"As an outsider, I want to silently protect and watch over the love between women…,” said a Yuri fanatic that got hit by a car and reincarnated as a wall in a certain apartment! And for some reason, the residents of the apartment room are always two girls in yuri relationship… Let’s support these cute and heartwarming couples together with the passionate wall in “Yuri Wall”!*
 
 ---
 <img src="https://d205c5ezx6yg6v.cloudfront.net/ROLLEN/JUSTDREAM-EN/001/cover.jpg" alt="cover-image" width="200"/>
 
-- Smile, It's Just a Dream
+- [Smile, It's Just a Dream](https://www.manga.club/book/title/JUSTDREAM-EN/) <sup>Not on Mangadex - </sup> [<sup>Manga.Club</sup>](https://www.manga.club/book/title/JUSTDREAM-EN/)
+
+    >*This is a cruel, gloomy, and bizarre story about a certain midsummer dream. "This feeling is unrequited that it made me suffered... So I kill that person." It was that kind of dream that Kanae had been witnessing...*
 
 ---
 <img src="https://d205c5ezx6yg6v.cloudfront.net/ROLLEN/KOTONOHA-EN/001/cover.jpg" alt="cover-image" width="200"/>
 
-- Kotonoha
+- [Kotonoha](https://mangadex.org/title/f2803978-d999-4c98-8e77-cfbfbdb903d8/kotonoha) [<sup>Manga.Club</sup>](https://www.manga.club/book/title/KOTONOHA-EN/)
+
+    >*When Fujita was in high school, she had but one romantic encounter – and it was with another girl. It happened one day when they ended up kissing. However, somewhere inside her, she knew a girl kissing another girl was wrong, so she chose to remain as just friends. Even when graduation came, she could not confess her feelings, and so the two girls split ways. Five years later, Fujita still thinks back to that romantic encounter. Meanwhile at work, due to one of her colleagues going on maternity leave, a new designer is brought into the company… and who does that designer turn out to be? None other than her high school crush!*
 
 ---
 <img src="https://d205c5ezx6yg6v.cloudfront.net/ROLLEN/LILYMARBLE-EN/001/cover.jpg" alt="cover-image" width="200"/>
 
-- Lily Marble
+- [Lily Marble](https://mangadex.org/title/239b4796-4ee3-4dd0-b368-430d8b9d8f96/lily-marble) [<sup>Manga.Club</sup>](https://www.manga.club/book/title/LILYMARBLE-EN/)
+
+    >*Isn't it everyone's dream to enjoy the fun and comical relationship between these healthy, bright and independent girls?*
+    >
+    >*"Fitness Club LILY" is a nest for fit and beautiful women. They have the elegant yoga instructor, a boyish muscle female trainer, and the gossip-addict young girls at the reception desk. Not even mention the classy and energetic female customers. What kind of "naughty" relationship will be formed between them?*
+    >
+    >*"Lily Marble" is a light GL that covers multiple pairing, each with their own uniqueness and charm! Must read for every GL fans!*
 
 ---
 <img src="https://d205c5ezx6yg6v.cloudfront.net/ROLLEN/GIRLSCOCOON-EN/001/cover.jpg" alt="cover-image" width="200"/>
+
+- [Girl's Cocoon](https://mangadex.org/title/7acac9ad-c781-4aa6-a768-005d991485a5/girl-s-cocoon) [<sup>Manga.Club</sup>](https://www.manga.club/book/title/GIRLSCOCOON-EN/)
+
+    >*A trilogy of beautiful, dangerous, and cruel truth between adolescent girls...*
 
 **Lilyka**
 
 ---
 <img src="https://emanga.com/cdn/shop/products/YunagiMarbled_000_480x480.png?v=1579919404" alt="cover-image" width="200"/>
 
-- Yunagi Marbled
+- [Yunagi Marbled](https://mangadex.org/title/1a33f6c2-26ad-4313-bfb3-872786225742/yuunagi-marbled) [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/yunagi-marbled?variant=31696805494874)
+
+    >*One evening in a seaside town, high school student Ena was walking her dog when she notices a girl by the seashore. Looking towards the sea, the girl had a melancholy expression which worried Ena. The following day at school, Ena can’t help but remember that encounter and wish she had done something, anything, to help a girl who clearly looked troubled. While she was in a state of regret, the rest of her classmates were talking about an incoming transfer student. As buzz of such news filled the room, in comes the teacher with the new student. To Ena’s shock, it was the girl she saw at the beach! She introduces herself to the class as Mishio Nanjou. From that point on, Ena was committed to stay by Mishio’s side. But after Mishio reveals the reason for her transfer, will Ena still feel the same way? How will she feel after Mishio kisses her unexpectedly?*
 
 ---
 <img src="https://emanga.com/cdn/shop/products/UnderMySkin_000_480x480.png?v=1675133161" alt="cover-image" width="200"/>
 
-- Under My Skin
+- [Under My Skin](https://emanga.com/products/under-my-skin?variant=43016127676578) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/products/under-my-skin?variant=43016127676578)
+
+    >*Futaba Kurumi’s life has been pretty uneventful since the day she was born.*
+    >
+    >*However, when she runs into her classmate, Ryuuzaki Leo, on her way home from school, Kurumi’s simple ordinary life is turned completely upside down.*
+    >
+    >*Were her eyes just deceiving her, or did Leo really just someone’s blood?!*
+    >
+    >*Startled by this newfound information, Kurumi is forced to become Leo’s food, or risk losing her life to this mysterious creature.*
+    >
+    >*What’ll happen to Kurumi now that she knows Leo’s secret? Will things really end up as bad as she’s anticipating? Or, will there be more to Leo than what meets the eye?*
 
 ---
 <img src="https://emanga.com/cdn/shop/products/TomarigiNoMa_000_480x480.png?v=1579920893" alt="cover-image" width="200"/>
 
-- Tomarigi no Ma -Where The Lovebird Comes to Rest-
+- [Tomarigi no Ma -Where The Lovebird Comes to Rest-](https://emanga.com/collections/gl/products/tomarigi-no-ma-where-the-lovebird-comes-to-rest?variant=30724798578778) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/tomarigi-no-ma-where-the-lovebird-comes-to-rest?variant=30724798578778)
+
+    >*For one week every year, when the land is blanketed with snow, the owner of an inn and a traveling photographer reunite. They take a break from their occupations and enjoy their time together at the inn. For each time they meet, it is like falling in love all over again. Though time and distance are never in their favor, the moments they spend with one another make their day-to-day worthwhile. This romance between a traveler and their lover explores the loneliness that both feel when they aren't together... And the bliss once they reunite.*
 
 ---
 <img src="https://emanga.com/cdn/shop/files/000000_1b3d2ba1-3a86-4644-982b-85998156263f_480x480.jpg?v=1683239158" alt="cover-image" width="200"/>
 
-- Tokorozawa is 177 cm Tall
+- [Tokorozawa is 177 cm Tall](https://emanga.com/products/tokorozawa-is-177-cm-tall?variant=43268470505634) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/products/tokorozawa-is-177-cm-tall?variant=43268470505634)
+
+    >*Height 177 cm.... Ms. Tokorozawa is a very tall high school girl.
+She wants to live her life without anyone noticing, but she can't.
+Shirakawa...is a girl who is concerned about Ms. Tokorozawa...*
+    >
+    >*This is a slightly naughty yuri story featuring a dark-haired, dark-skinned beautiful girl and a light-skinned, brown-haired beautiful girl.*
 
 ---
 <img src="https://emanga.com/cdn/shop/products/ToBecomeAnAdult_000_480x480.png?v=1579920885" alt="cover-image" width="200"/>
 
-- To Become An Adult
+- [To Become An Adult](https://emanga.com/products/to-become-an-adult?variant=30724993744986) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/products/to-become-an-adult?variant=30724993744986)
+
+    >*After sharing a kiss in high school, two girls decide to blame their feelings for each other on youth, and part ways. Now, one of them is getting married, and they realize they've become adults...with a hint of regret.*
 
 ---
 <img src="https://emanga.com/cdn/shop/files/000000_66698da3-e943-4df4-bb12-d494838740ef_480x480.jpg?v=1683068789" alt="cover-image" width="200"/>
 
-- Inhuman Girls
+- [The Story of Inhuman Girls](https://emanga.com/products/the-story-of-inhuman-girls?variant=43264750682274) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/products/the-story-of-inhuman-girls?variant=43264750682274)
+
+    >*Growing up we’ve all heard fairy tales and fantasies. Stories of princesses and of creatures unknown to this world. However, is what we see in the storybook really the whole tale? Or, is there so much more to these characters beyond the pages of the book?*
 
 ---
 <img src="https://emanga.com/cdn/shop/products/TheStalkerAndThePrince_000_480x480.png?v=1579920849" alt="cover-image" width="200"/>
 
-- The Stalker and the Prince
+- [The Stalker and the Prince](https://emanga.com/collections/gl/products/the-stalker-and-the-prince?variant=31123442270298) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/the-stalker-and-the-prince?variant=31123442270298)
+
+    >*In this warped Cinderella “love story,” Nemu is crazy-obsessed with the handsome ‘Prince’, Luna, at her all-girls’ school. Her feelings reach the point of no return as she stalks her love interest and constantly debates whether or not to stab her.*
+    >
+    >*Despite Nemu’s unsettling behavior, Luna is not alarmed at all. In fact, she might be just as crazy as her admirer. This and other cute(?) stories in “The Stalker and the Prince.”*
 
 ---
 <img src="https://emanga.com/cdn/shop/products/TheRightToLove2_000_480x480.png?v=1579920080" alt="cover-image" width="200"/>
 
-- The Right to Love
+- [The Right to Love](https://emanga.com/collections/gl/products/the-right-to-love-2?variant=31476814151770) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/the-right-to-love-2?variant=31476814151770)
+
+    >*Suzu has just graduated from high school, and moved to Tokyo to be with her beloved senpai. But the senpai she thought would be waiting for her...turns out to be dating and living with another girl?! Hurt and lonely, Suzu meets a girl, Ami, and decides to go out with her. But even so, the only person on her mind is senpai, and Suzu gets lured back into her trap...*
 
 ---
 <img src="https://emanga.com/cdn/shop/products/TheRedRook_000_480x480.png?v=1579920071" alt="cover-image" width="200"/>
 
-- The Red Rook, The Blue Bishop, and The Colorful Pawn
+- [The Red Rook, The Blue Bishop, and The Colorful Pawn](https://emanga.com/collections/gl/products/the-red-rook-the-blue-bishop-and-the-colorful-pawn?variant=30267343339610) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/the-red-rook-the-blue-bishop-and-the-colorful-pawn?variant=30267343339610)
+
+    >*When Misao lost her virginity at age 14, rumors spread like wildfire and next thing you know, her friends become her bullies and the entire school mocked her. At her junior high school, the rumors were bad but when she went to an all-girls high school, they only became worse. At this point, she was labeled as a delinquent amid many other labels but that did stop Chiaki from helping her out in a time of need, nor did it stop her from becoming her friend. The gentle giant Chiaki was like a ray of sunshine for Misao. Could this be the start of something special or is Misao misinterpreting Chiaki’s cheerful attitude for love?*
 
 ---
 <img src="https://emanga.com/cdn/shop/products/TheRainAndTheOtherSideOfYou_000_480x480.png?v=1579920068" alt="cover-image" width="200"/>
 
-- The Rain and the Other Side of You
+- [The Rain and the Other Side of You](https://mangadex.org/title/b5e886c5-1233-45b3-b86a-8f226e25cfaa/the-rain-and-the-other-side-of-you) [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/the-rain-and-the-other-side-of-you?variant=18039393779802)
+
+    >*Yuka Kano, a 27-year-old junior high school teacher, has never dated a man in her life. One rainy afternoon, whilst tutoring one of her students, Yuka suddenly finds herself being kissed on the cheek by Aki Madarame. Aki confesses that in order to be alone with Yuka, she purposely failed the test. Confused as to why her student would do such a thing, Yuka decides to visit Aki at her house, where she finds out the ugly truth…*
 
 ---
 <img src="https://emanga.com/cdn/shop/files/000000_0d15e099-f1fe-4a10-b0eb-eccdf8a818a2_480x480.jpg?v=1682983593" alt="cover-image" width="200"/>
 
-- The Mermaid's Garden
+- [The Mermaid's Garden](https://emanga.com/collections/gl/products/the-mermaids-garden?variant=43262261592226) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/the-mermaids-garden?variant=43262261592226)
 
 ---
 <img src="https://emanga.com/cdn/shop/products/TheMargueriteAndTheBlackRose_000_480x480.png?v=1579920008" alt="cover-image" width="200"/>
 
----
-<img src="https://emanga.com/cdn/shop/files/000000_75447aa5-ba8a-468f-8e99-0ce215c88408_480x480.jpg?v=1682815518" alt="cover-image" width="200"/>
+- [The Marguerite and The Black Rose](https://emanga.com/collections/gl/products/the-marguerite-and-the-black-rose?variant=18039470293082) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/the-marguerite-and-the-black-rose?variant=18039470293082)
+
+    >*According to a special report on the T.V., studies show that women reach their sexual prime in their 40’s. But Sayuri is not so sure about this as she pursues her friend’s mom, Chitose. Sayuri feels like she is the one doing all the chasing and wonders if Chitose feels anything for her at all. But for Chitose, she feels like her chance at love has passed. Can Sayuri change her mind at all? In a forbidden love affair between a high school girl and her friend’s mom, could Sayuri’s straight-forward feelings convince Chitose to give love a try once more?*
 
 ---
 <img src="https://emanga.com/cdn/shop/products/TheGatheringOfLove_000_480x480.png?v=1579919803" alt="cover-image" width="200"/>
