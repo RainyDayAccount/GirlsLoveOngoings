@@ -674,6 +674,21 @@
     >
     >*At school, Kureha's unassuming personality and looks render her practically invisible. Sometimes, it feels like no one notices her at all... until cute and energetic Ginko asks Kureha to talk privately one day during lunch. Maybe she really is a bear... or maybe she's just got a crush on Kureha!*
 
+
+---
+<img src="https://tokyo-pop-us.imgix.net/covers/9781598166910.jpg?auto=format&w=300" alt="cover-image" width="200"/>
+
+- [12 Days](https://mangadex.org/title/c4c7e711-08e9-4c6b-a7f1-be7c77521082/12-days) [<sup>Tokyopop</sup>](https://tokyopop.com/collections/tpclassics/products/9781598166910_12-days)
+
+    >*When Jackie's ex-lover Noah dies, she decides the best and quickest way to get over the love of her life is to hold a personal ritual with Noah's ashes. Jackie consumes the ashes in the form of smoothies for 12 days, hoping the pain will subside with her profound reaction to Noah's death. While she and her partner-in-crime Nick, Noah's brother, spend the time in the closed space her apartment, they slowly become consumed by Noah's tragedy.*
+
+---
+<img src="https://tokyo-pop-us.imgix.net/covers/9781598161366.jpg?auto=format&w=300" alt="cover-image" width="200"/>
+
+- [Steady Beat](https://mangadex.org/title/80248fe9-d9f3-4a77-bcc5-d1dea20541fa/steady-beat) [<sup>Tokyopop</sup>](https://tokyopop.com/products/9781598161359_steady-beat-volume-1)
+
+    >*"Love Jessica" - That's what Leah finds on the back of a love letter to her sister - but who is this Jessica? When more letters, flowers and gifts start popping up, Leah goes undercover to discover her sister's secret. What she doesn't expect is to find is love of her own, and in some very unexpected places!*
+
 ---
 
 **Denpa**
@@ -773,6 +788,39 @@ https://www.mangaupdates.com/poll.html?act=old_polls
 - [Seeing Xinghuo Again](https://mangadex.org/title/7f972939-67a4-408d-9ebb-8fb15bbe9b07/seeing-the-spark-again) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc1565)
 
     >*Through an old camera in the club's storage room, Gu An saw something that should not exist. She was a shooting star from three years ago named "Xinghuo." Why do you stay in the night sky? Why am I the only one who can see you? Gu An, who usually follows the crowd, wants to investigate and take the initiative for the first time in her life. As an observer and "the most important friend," Gu An and Xinghuo set on a journey to find the former club members and fulfill their dreams from three years ago. "It's... been exposed." "But, I'm really happy. Thank you, Gu An."*
+
+---
+<img src="https://cdn.anime-planet.com/manga/primary/straight-girl-trap-1.webp?t=1628026370" alt="cover-image" width="200"/>
+
+- [Straight Girl Trap](https://mangadex.org/title/0c8abbe9-ae3b-4591-a378-9eaaf9ddec18/straight-girl-trap) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc94)
+
+    >*The regular office worker Zhan Ying, who is drama-queen at heart, recently encountered a question that made her face flush, heart pound, and become embarrassed at a complete loss. That is, she suddenly wondered if her cold queen boss Zhou Yuanyou, who is always taking care of her, has feelings for her?! Is it heartfelt, or is it just a straight trap? Zhan Ying didn't even have time to really think about it when she found herself already caught in the trap...*
+
+---
+<img src="--- <img src="https://cdn.anime-planet.com/manga/primary/xian-chan-nu-1.jpg?t=1625847355" alt="cover-image" width="200"/> " alt="cover-image" width="200"/>
+
+
+- [Xian Chan Nu](https://mangadex.org/title/eb9ad4bd-3a08-4471-8c17-0e397e4e25a8/xian-chan-nu) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc4)
+
+    >*Longing young guard Liu, Siqing, was saved by a masculine-looking Xian with white hair, ChanNu during an accident.*
+    >
+    >*She fell in love with him at first sight. She finally found him, but she also found out that he is actually “she”. Above all, “she” seems to have a very original identity… A story of humans, ethereal, masters, servants, revenge and loyalty is about to begin.*
+
+---
+<img src="https://cdn.anime-planet.com/manga/primary/im-more-dangerous-than-you-1.jpg?t=1625873247" alt="cover-image" width="200"/>
+
+- [I'm More Dangerous Than You](https://mangadex.org/title/b788e331-aa77-475d-819a-2f7b58561dc2/i-m-more-dangerous-than-you) [<sup>Bilibili</sup>](https://m.bilibilicomics.com/detail/mc35)
+
+    >*When Jiang Wanshu met Ren Pingsheng, what she thought was her light, became the beginning of her nightmare. As a teacher, Ren Pingsheng seems gentle and considerate on the outside, but is secretly an extremely passionate reader of Jiang Wanshu's book. What seemed to be a "coincidental" first encounter was in truth calculated and planned. Behind the peaceful days, the crazy reader has begun her hunt...*
+
+---
+<img src="https://cdn.anime-planet.com/manga/primary/the-incapable-married-princess-1.jpg?t=1625874106" alt="cover-image" width="200"/>
+
+- [The Incapable Married Princess](https://mangadex.org/title/0e217a9a-5302-4704-a6f7-06fa1d00d62c/the-incapable-married-princess) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc16)
+
+    >*For the sake of the country, I was going to sacrifice myself and get married off. But the match was also a woman? I thought I was picking her up, but I didn't think I was being picked up by her all the time.*
+
+*This shows ongoing on mangadex but 143 chapters at [Vymanga](https://vyvymanga.net/manga/cant-get-along-with-dear-princess++) matches the number of chapters at the Chinese version of Bilibili which lists this as complete.*
 
 ---
 
@@ -1120,6 +1168,27 @@ https://www.mangaupdates.com/poll.html?act=old_polls
     >*"An orphan, Sherl Watson, leaves her job in London to work at the Taylor Mansion. Rumors and a cloud of mystery surrounds the mansion as strange occurences keep popping up. Will Sherl and the other maids be able to get out alive or were they all doomed to begin with?"*
 
 ---
+<img src="https://images.comico.io/comic/thumbnail/en/206/8206/cover/main/1663898896884.jpg" alt="cover-image" width="200"/>
+
+- [This World is Mine](https://mangadex.org/title/49d1c4f2-9bbe-4cdf-8e64-8f960ffca247/this-world-is-mine) [<sup>PocketComics</sup>](https://www.pocketcomics.com/comic/8206?languageCode=en)
+
+    >*Wooyeon is a reclusive web fiction writer. Her mundane life is changed forever when Princess Charlize Rod Crosel, a minor character in one of her bestselling web fictions, decides to take destiny into her own hands by kidnapping Wooyeon and bringing her into the fictional world. Will Wooyeon and Charlize be given the opportunity to change the future and find their happy ending?*
+
+---
+<img src="https://images.comico.io/comic/thumbnail/en/604/1604/cover/main/1666228978115.jpg" alt="cover-image" width="200"/>
+
+- [Just Right There!](https://mangadex.org/title/da8c1185-5694-47ea-8bd2-d14a3f3602c7/just-right-there) [<sup>PocketComics</sup>](https://www.pocketcomics.com/comic/1604?languageCode=en)
+
+    >*Doyeon Min, a perfect girl with good looks and a successful career, has a secret weakness: a "sex complex". Having never experienced an orgasm in her life, Doyeon starts to worry if she has a problem. But when she meets Renny Lee, a strange and seductive cohabitation begins.*
+
+---
+<img src="https://images.comico.io/comic/thumbnail/en/708/1708/cover/main/1646974482539.jpg" alt="cover-image" width="200"/>
+
+- [One Home, Two Lives](https://mangadex.org/title/ab27cda9-b4b7-4450-bdbe-edae6e9ba0bb/one-home-two-lives) [<sup>PocketComics</sup>](https://www.pocketcomics.com/comic/1708?languageCode=en)
+
+    >*“Hara”, a reckless girl from a well-off family, hit it off at a club with “Go-Eun”, a loner-type girl wearing glasses, and share an intimate night. The next morning, Go-Eun wakes up horrified, has no idea who Hara is, and chases her off... as it turns out, she has... a split personality? Who am I sleeping with? Who am I dating? This is the story of a love triangle between Hara, Go-Eun, and another Go-Eun.*
+
+---
 
 **TappyToon**
 
@@ -1210,7 +1279,11 @@ https://www.mangaupdates.com/poll.html?act=old_polls
 
     >*A trilogy of beautiful, dangerous, and cruel truth between adolescent girls...*
 
+---
+
 **Lilyka**
+
+*Not Including oneshots for now*
 
 ---
 <img src="https://emanga.com/cdn/shop/products/YunagiMarbled_000_480x480.png?v=1579919404" alt="cover-image" width="200"/>
@@ -1220,127 +1293,179 @@ https://www.mangaupdates.com/poll.html?act=old_polls
     >*One evening in a seaside town, high school student Ena was walking her dog when she notices a girl by the seashore. Looking towards the sea, the girl had a melancholy expression which worried Ena. The following day at school, Ena can’t help but remember that encounter and wish she had done something, anything, to help a girl who clearly looked troubled. While she was in a state of regret, the rest of her classmates were talking about an incoming transfer student. As buzz of such news filled the room, in comes the teacher with the new student. To Ena’s shock, it was the girl she saw at the beach! She introduces herself to the class as Mishio Nanjou. From that point on, Ena was committed to stay by Mishio’s side. But after Mishio reveals the reason for her transfer, will Ena still feel the same way? How will she feel after Mishio kisses her unexpectedly?*
 
 ---
-<img src="https://emanga.com/cdn/shop/products/UnderMySkin_000_480x480.png?v=1675133161" alt="cover-image" width="200"/>
+<img src="https://emanga.com/cdn/shop/products/Tadokorosan4_000_480x480.png?v=1674695522" alt="cover-image" width="200"/>
 
-- [Under My Skin](https://emanga.com/products/under-my-skin?variant=43016127676578) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/products/under-my-skin?variant=43016127676578)
+- [Tadokoro-san](https://mangadex.org/title/8ffbfa2f-23fa-4490-848e-942581a4d873/tadokoro-san) [<sup>Lilyka</sup>](https://emanga.com/products/tadokoro-san?variant=31123380306010)'
 
-    >*Futaba Kurumi’s life has been pretty uneventful since the day she was born.*
-    >
-    >*However, when she runs into her classmate, Ryuuzaki Leo, on her way home from school, Kurumi’s simple ordinary life is turned completely upside down.*
-    >
-    >*Were her eyes just deceiving her, or did Leo really just someone’s blood?!*
-    >
-    >*Startled by this newfound information, Kurumi is forced to become Leo’s food, or risk losing her life to this mysterious creature.*
-    >
-    >*What’ll happen to Kurumi now that she knows Leo’s secret? Will things really end up as bad as she’s anticipating? Or, will there be more to Leo than what meets the eye?*
+    >*Shy and introverted, Tadokoro passes her free time in class drawing instead of hanging out with her classmates. But even when her classmates approach her, it’s only to make fun of her drawings and appearance. In stark contrast, Nikaido is well-liked among her peers as she has both beauty and smarts. And while everyone makes fun of Tadokoro, Nikaido on the other hand, is totally infatuated with her. Just one look at one of Tadokoro’s drawings and Nikaido fell in love with the art and eventually, the artist herself. When Tadokoro offers to draw Nikaido a portrait, Nikaido becomes ecstatic as this maybe her chance to get closer with the girl she has been obsessing over!*
 
----
-<img src="https://emanga.com/cdn/shop/products/TomarigiNoMa_000_480x480.png?v=1579920893" alt="cover-image" width="200"/>
-
-- [Tomarigi no Ma -Where The Lovebird Comes to Rest-](https://emanga.com/collections/gl/products/tomarigi-no-ma-where-the-lovebird-comes-to-rest?variant=30724798578778) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/tomarigi-no-ma-where-the-lovebird-comes-to-rest?variant=30724798578778)
-
-    >*For one week every year, when the land is blanketed with snow, the owner of an inn and a traveling photographer reunite. They take a break from their occupations and enjoy their time together at the inn. For each time they meet, it is like falling in love all over again. Though time and distance are never in their favor, the moments they spend with one another make their day-to-day worthwhile. This romance between a traveler and their lover explores the loneliness that both feel when they aren't together... And the bliss once they reunite.*
-
----
-<img src="https://emanga.com/cdn/shop/files/000000_1b3d2ba1-3a86-4644-982b-85998156263f_480x480.jpg?v=1683239158" alt="cover-image" width="200"/>
-
-- [Tokorozawa is 177 cm Tall](https://emanga.com/products/tokorozawa-is-177-cm-tall?variant=43268470505634) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/products/tokorozawa-is-177-cm-tall?variant=43268470505634)
-
-    >*Height 177 cm.... Ms. Tokorozawa is a very tall high school girl.
-She wants to live her life without anyone noticing, but she can't.
-Shirakawa...is a girl who is concerned about Ms. Tokorozawa...*
-    >
-    >*This is a slightly naughty yuri story featuring a dark-haired, dark-skinned beautiful girl and a light-skinned, brown-haired beautiful girl.*
-
----
-<img src="https://emanga.com/cdn/shop/products/ToBecomeAnAdult_000_480x480.png?v=1579920885" alt="cover-image" width="200"/>
-
-- [To Become An Adult](https://emanga.com/products/to-become-an-adult?variant=30724993744986) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/products/to-become-an-adult?variant=30724993744986)
-
-    >*After sharing a kiss in high school, two girls decide to blame their feelings for each other on youth, and part ways. Now, one of them is getting married, and they realize they've become adults...with a hint of regret.*
-
----
-<img src="https://emanga.com/cdn/shop/files/000000_66698da3-e943-4df4-bb12-d494838740ef_480x480.jpg?v=1683068789" alt="cover-image" width="200"/>
-
-- [The Story of Inhuman Girls](https://emanga.com/products/the-story-of-inhuman-girls?variant=43264750682274) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/products/the-story-of-inhuman-girls?variant=43264750682274)
-
-    >*Growing up we’ve all heard fairy tales and fantasies. Stories of princesses and of creatures unknown to this world. However, is what we see in the storybook really the whole tale? Or, is there so much more to these characters beyond the pages of the book?*
-
----
-<img src="https://emanga.com/cdn/shop/products/TheStalkerAndThePrince_000_480x480.png?v=1579920849" alt="cover-image" width="200"/>
-
-- [The Stalker and the Prince](https://emanga.com/collections/gl/products/the-stalker-and-the-prince?variant=31123442270298) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/the-stalker-and-the-prince?variant=31123442270298)
-
-    >*In this warped Cinderella “love story,” Nemu is crazy-obsessed with the handsome ‘Prince’, Luna, at her all-girls’ school. Her feelings reach the point of no return as she stalks her love interest and constantly debates whether or not to stab her.*
-    >
-    >*Despite Nemu’s unsettling behavior, Luna is not alarmed at all. In fact, she might be just as crazy as her admirer. This and other cute(?) stories in “The Stalker and the Prince.”*
-
----
-<img src="https://emanga.com/cdn/shop/products/TheRightToLove2_000_480x480.png?v=1579920080" alt="cover-image" width="200"/>
-
-- [The Right to Love](https://emanga.com/collections/gl/products/the-right-to-love-2?variant=31476814151770) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/the-right-to-love-2?variant=31476814151770)
-
-    >*Suzu has just graduated from high school, and moved to Tokyo to be with her beloved senpai. But the senpai she thought would be waiting for her...turns out to be dating and living with another girl?! Hurt and lonely, Suzu meets a girl, Ami, and decides to go out with her. But even so, the only person on her mind is senpai, and Suzu gets lured back into her trap...*
-
----
-<img src="https://emanga.com/cdn/shop/products/TheRedRook_000_480x480.png?v=1579920071" alt="cover-image" width="200"/>
-
-- [The Red Rook, The Blue Bishop, and The Colorful Pawn](https://emanga.com/collections/gl/products/the-red-rook-the-blue-bishop-and-the-colorful-pawn?variant=30267343339610) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/the-red-rook-the-blue-bishop-and-the-colorful-pawn?variant=30267343339610)
-
-    >*When Misao lost her virginity at age 14, rumors spread like wildfire and next thing you know, her friends become her bullies and the entire school mocked her. At her junior high school, the rumors were bad but when she went to an all-girls high school, they only became worse. At this point, she was labeled as a delinquent amid many other labels but that did stop Chiaki from helping her out in a time of need, nor did it stop her from becoming her friend. The gentle giant Chiaki was like a ray of sunshine for Misao. Could this be the start of something special or is Misao misinterpreting Chiaki’s cheerful attitude for love?*
+*I believe this is from Pixiv version, which is complete, but doesn't correspond to the 4 volumes released in Japan.*
 
 ---
 <img src="https://emanga.com/cdn/shop/products/TheRainAndTheOtherSideOfYou_000_480x480.png?v=1579920068" alt="cover-image" width="200"/>
 
-- [The Rain and the Other Side of You](https://mangadex.org/title/b5e886c5-1233-45b3-b86a-8f226e25cfaa/the-rain-and-the-other-side-of-you) [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/the-rain-and-the-other-side-of-you?variant=18039393779802)
+- [The Rain and the Other Side of You](https://mangadex.org/title/b5e886c5-1233-45b3-b86a-8f226e25cfaa/the-rain-and-the-other-side-of-you) [<sup>Lilyka</sup>](https://emanga.com/products/the-rain-and-the-other-side-of-you?variant=18039393779802)
 
     >*Yuka Kano, a 27-year-old junior high school teacher, has never dated a man in her life. One rainy afternoon, whilst tutoring one of her students, Yuka suddenly finds herself being kissed on the cheek by Aki Madarame. Aki confesses that in order to be alone with Yuka, she purposely failed the test. Confused as to why her student would do such a thing, Yuka decides to visit Aki at her house, where she finds out the ugly truth…*
 
----
-<img src="https://emanga.com/cdn/shop/files/000000_0d15e099-f1fe-4a10-b0eb-eccdf8a818a2_480x480.jpg?v=1682983593" alt="cover-image" width="200"/>
 
-- [The Mermaid's Garden](https://emanga.com/collections/gl/products/the-mermaids-garden?variant=43262261592226) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/the-mermaids-garden?variant=43262261592226)
+---
+<img src="https://emanga.com/cdn/shop/products/TheRightToLove2_000_480x480.png?v=1579920080" alt="cover-image" width="200"/>
+
+- [The Right to Love](https://emanga.com/collections/gl/products/the-right-to-love?variant=31423920537690) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/the-right-to-love?variant=31423920537690)
+
+    >*Suzu has just graduated from high school, and moved to Tokyo to be with her beloved senpai. But the senpai she thought would be waiting for her...turns out to be dating and living with another girl?! Hurt and lonely, Suzu meets a girl, Ami, and decides to go out with her. But even so, the only person on her mind is senpai, and Suzu gets lured back into her trap...*
 
 ---
 <img src="https://emanga.com/cdn/shop/products/TheMargueriteAndTheBlackRose_000_480x480.png?v=1579920008" alt="cover-image" width="200"/>
 
-- [The Marguerite and The Black Rose](https://emanga.com/collections/gl/products/the-marguerite-and-the-black-rose?variant=18039470293082) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/collections/gl/products/the-marguerite-and-the-black-rose?variant=18039470293082)
+- [The Marguerite and The Black Rose](https://emanga.com/products/the-marguerite-and-the-black-rose?variant=18039470293082) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/products/the-marguerite-and-the-black-rose?variant=18039470293082)
 
     >*According to a special report on the T.V., studies show that women reach their sexual prime in their 40’s. But Sayuri is not so sure about this as she pursues her friend’s mom, Chitose. Sayuri feels like she is the one doing all the chasing and wonders if Chitose feels anything for her at all. But for Chitose, she feels like her chance at love has passed. Can Sayuri change her mind at all? In a forbidden love affair between a high school girl and her friend’s mom, could Sayuri’s straight-forward feelings convince Chitose to give love a try once more?*
 
----
-<img src="https://emanga.com/cdn/shop/products/TheGatheringOfLove_000_480x480.png?v=1579919803" alt="cover-image" width="200"/>
+*Order is [The Marguerite and The Black Rose](https://emanga.com/products/the-marguerite-and-the-black-rose?variant=18039470293082) - [Sayuri's Blues](https://emanga.com/products/sayuris-blues?variant=18039486709850) - [Droplets of Melting Snow](https://emanga.com/products/droplets-of-melting-snow?variant=18039431626842)*
 
 ---
-<img src="https://emanga.com/cdn/shop/files/000000_dfd9113f-1b37-4f00-b82b-705878790363_480x480.jpg?v=1683062924" alt="cover-image" width="200"/>
+<img src="https://m.media-amazon.com/images/I/81-oBfxz+uS._SL1500_.jpg" alt="cover-image" width="200"/>
+
+- [Around the Season of Cherry Blossoms](https://emanga.com/products/around-the-season-of-cherry-blossoms?variant=31573867593818) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/products/around-the-season-of-cherry-blossoms?variant=31573867593818)
+
+    >*Beneath the cherry blossoms, admiration blooms into desire. Ritsu, a young sporty student, can't help but feel flustered when she's close to her teacher and track & field coach, Ms. Sawa.*
+    >
+    >*And when she witnesses an intimate moment, she realizes that her feelings are much more complex than mere admiration.*
+
+*All 4 Volumes Published by Lilyka / Digital Manga, but only first listed at website? Other volumes at [Amazon](https://www.amazon.com/gp/product/B097QBV1DZ?ref_=dbs_p_def_rwt_cobb&storeType=ebooks) or other retailers.*
 
 ---
-<img src="https://emanga.com/cdn/shop/files/000000_e7163225-86b7-4aaf-b7ac-bdb0dd064a72_480x480.jpg?v=1682973210" alt="cover-image" width="200"/>
+<img src="https://emanga.com/cdn/shop/products/MagnumLily5_000_480x480.png?v=1674779931" alt="cover-image" width="200"/>
+
+- [Magnum Lily](https://mangadex.org/title/72ff7504-dd77-439c-bd5a-5c9da017e302/magnum-lily) [<sup>Lilyka</sup>](https://emanga.com/products/magnum-lily-1?variant=42998083420322)
+
+    >*“There isn’t anything I really want to do with my life…”*
+    >
+    >*Yuri Higuchi is a middle school student, who’s graduation is fast approaching. However, unlike her classmates, Yuri hasn’t found a dream of her own.*
+    >
+    >*After a disappointing “date” with her senpai, Yuri decides to relieve her stress on a punching machine.*
+    >
+    >*Having witnessed Yuri’s punching, a beautiful foreign girl, named Windy, suddenly invites Yuri to come watch a women’s boxing match…*
+    >
+    >*And so, Yuri’s journey to become a professional boxer begins! Witness as a 15 year old female, lights the passionate flames of her burning youth!!*
 
 ---
-<img src="https://emanga.com/cdn/shop/products/Tadokorosan4_000_480x480.png?v=1674695522" alt="cover-image" width="200"/>
+<img src="https://emanga.com/cdn/shop/products/LittleRedCapAndCinderella_000_480x480.png?v=1616027771" alt="cover-image" width="200"/>
+
+- [Lily Fairy Tale](https://emanga.com/collections/vendors?q=mintaro) <sup>Not on Mangadex - </sup> [<sup>Lilyka</sup>](https://emanga.com/products/magnum-lily-1?variant=42998083420322)
+
+    >*At the fairy tale boarding school, Marie the "Little Mermaid" meets Gretle from "Hansel and Gretel," and immediately feels that they are destined to be together. She believes that Gretle is the key to break the curse that took her voice away, on the day her parents got divorced. Marie tries her best to become friends with Gretle, but then things start to take an unexpected turn…*
+
+*Order is [Little Mermaid + Hansel and Gretel](https://emanga.com/collections/vendors/products/lily-fairy-tale-little-mermaid-met-hansel-and-gretel) - [Little Red Cap + Cinderella](https://emanga.com/collections/vendors/products/lily-fairy-tale-little-red-cap-and-cinderella) - [Rapunzel + Sleeping Beauty](https://emanga.com/collections/vendors/products/lily-fairy-tale-rapunzel-and-sleeping-beauty)*
 
 ---
-<img src="https://emanga.com/cdn/shop/products/strawberrysyrup_000_480x480.png?v=1674784037" alt="cover-image" width="200"/>
+
+**Coolmic**
 
 ---
-<img src="https://emanga.com/cdn/shop/files/000000_4d7a2d8a-a177-4a6a-a0ea-721550183f5d_480x480.jpg?v=1683060855" alt="cover-image" width="200"/>
+<img src="https://en-img.coolmic.me/titles/000/000000/000000507/000000507_vertical.jpg.webp" alt="cover-image" width="200"/>
+
+- [Innocent](https://www.mangaupdates.com/series/xb2bgpr/innocent-usotsuki-onna-no-shiiku-bako) [<sup>Coolmic</sup>](https://coolmic.me/titles/507)
+
+    >*Rikka is a lesbian... But her biggest secret by far is the fact that she's keeping her former lover, Yukiji, confined in her house…*
 
 ---
+<img src="https://en-img.coolmic.me/titles/000/000000/000000511/000000511_large_vertical.jpg.webp" alt="cover-image" width="200"/>
 
+- [Yuri Hell](https://mangadex.org/title/25ddb594-7114-42e8-a915-8ec3646a413a/yuri-hell) [<sup>Coolmic</sup>](https://coolmic.me/titles/511)
 
+    >*"Rumor has it that you fucked Haruki..." I thought we loved each other... Why, Haruki? Why are you casting me down into hell?*
 
+---
+<img src="https://en-img.coolmic.me/titles/000/000000/000000062/000000062_large_vertical.jpg.webp" alt="cover-image" width="200"/>
+
+- [Bondage Play](https://mangadex.org/title/4dd06513-2bbb-4e0c-8313-d9e619afdfd2/bondage-play) [<sup>Coolmic</sup>](https://coolmic.me/titles/62)
+
+    >*"Will you be my dog?" What connected two girls hiding the darkness in their hearts is…a collar and a red rope...*
+
+---
+<img src="https://en-img.coolmic.me/titles/000/000000/000000462/000000462_large_vertical.jpg.webp" alt="cover-image" width="200"/>
+
+- [Taste My Sweet Jelly Body](https://mangadex.org/title/9bf6c067-7345-4ca7-9677-f1b6d2745ca6/taste-my-sweet-jelly-body) [<sup>Coolmic</sup>](https://coolmic.me/titles/462)
+
+    >*"The First Prize Semi Grand Prix Winner of the Monk Manga" With her jelly body, she twists around Kurono sweetly... and the pleasure that spreads throughout Kurono's body has deprived her from her freedom…*
+
+- [Queen of the Idealiree](https://coolmic.me/titles/436) <sup>Not on Mangadex - </sup> [<sup>Coolmic</sup>](https://coolmic.me/titles/436)
+
+    >*Young girls, made to eat nothing but flowers, a barbed wire fence stretched round about them… Is this a girls' flower garden…? Or a nightmarish prison…? *
+
+---
+<img src="https://en-img.coolmic.me/titles/000/000000/000000027/000000027_large_vertical.jpg.webp" alt="cover-image" width="200"/>
+
+- [Me (a Guy)... Lesbian!?](https://mangadex.org/title/bf790a7b-d45e-46bc-91de-79d636ae9704/ore-ga-yuri)  [<sup>Coolmic</sup>](https://coolmic.me/titles/27)
+
+    >*I was suddenly turned into a girl and the only way to turn back is to enter in a "love relationship" with another girl!?*
+
+---
 
 **INKR**
 
-![i300805](https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/6f8e8e21-bf9f-4ca3-a856-ed5b3a16197d)
+- Drawn Together
+- Mojito
+- An Older Guy's VR First Love
+- Fatal Possession
+- Eros/Psyche
+- Luisa - Now and Then
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/6f8e8e21-bf9f-4ca3-a856-ed5b3a16197d" alt="cover-image" width="200"/>
+
+- Spirit of Peach Blossom
+- Phoebe & Selina
+- Sexual Liberation: To Each Their Own Form of Love
+- Spring Storm
+- Soulmate
+- Longing For Your Rouge
 
 **Renta**
 
+- Mr. Right Turned Out To Be A Younger Woman!?
+- Black Lily and White Lily
+- Patterns of Yuri at the Girls' School
+- South Pacific Girlfriend -The Ocean, the Sun, and You...-
+
 **Webcomics**
+
+- Phoebe and Selina
+- Slightly Sour Secret
+- Why Did I, the MC Of Gal Game Jump Into A World Of Yuri Comic?
+- June and Alice
+- Lime Herbal Tea 
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ad1f3267-14d7-4fcc-995d-7bcef52df005" alt="cover-image" width="200"/>
+
+---
+
+**Lalatoon**
+
+---
+
+- Rainbow House
+- The Demon's Vengeance
+
+---
+
+**Webtoon Factory**
+
+- Tales of love and consequences
+- My Demon Secretary
+
+**Manga Plaza**
+
+- The Evening and The Sea
+- AYAKA is in LOVE with HIROKO!
+
+**Manga Planet**
+
+-
 
 **Webtoons**
 
