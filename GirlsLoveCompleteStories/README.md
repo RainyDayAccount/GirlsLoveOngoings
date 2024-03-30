@@ -713,7 +713,41 @@
 
 ---
 
+**BOOM! Studios**
+
+---
+
 **Dark Horse Comics**
+
+---
+
+**DC**
+
+---
+
+**Fantagraphics**
+
+---
+
+**IDW**
+
+---
+
+**Image Comics**
+
+---
+
+**Marvel**
+
+---
+
+**Oni Press**
+
+---
+
+**Titan**
+
+- The Cold Ever After
 
 ---
 
@@ -1796,6 +1830,33 @@ https://www.mangaupdates.com/poll.html?act=old_polls
 - [Dormant Desires](https://mangadex.org/title/6f9ced73-2058-4022-8316-58fa56592f83/dormant-desires) [<sup>Tapas</sup>](https://tapas.io/series/dormant-desires/info)
 
     >*Eve’s a police officer trained to investigate and catch the most hardened criminals, but she can’t figure out why she has these dreams with the same sexy dominatrix night after night! Until... one day she happens upon a doppelgänger of her seductress, a Ms. Sammi Shi, in the interrogation room. Who is she? The sexual tension between the two is evident. Eve is drawn to Sammi, pulled tighter and tighter by the chemistry between them. She needs to find out more!... so much more...*
+
+---
+<img src="https://us-a.tapas.io/sa/60/c2cd516c-b9c3-4314-b703-b105a6cc1586_z.jpg" alt="cover-image" width="200"/>
+
+- [The Girlfriend Project](https://tapas.io/series/the-girlfriend-project/info) <sup>Not on Mangadex - </sup> [<sup>Tapas</sup>](https://tapas.io/series/the-girlfriend-project/info)
+
+    >*When Julia’s scholarship is cut, she’s out of options. A surprise rescue comes when her project partner Ryn offers to pay Julia to pretend to be her girlfriend for the holidays. One problem: Ryn is quite possibly the weirdest person Julia knows. On top of that, Ryn’s filthy rich family snubs black sheep like Ryn and working-class people like Julia. As Julia works to win the hearts of Ryn’s family, she realizes it could be more than her pride on the line: Her own heart may be in jeopardy, too.*
+
+---
+<img src="https://us-a.tapas.io/sa/ab/79e8a1be-8842-4661-8c29-8d1db4cd7af9_z.jpg" alt="cover-image" width="200"/>
+
+- [Charity Case](https://tapas.io/series/Charity-Case/info) <sup>Not on Mangadex - </sup> [<sup>Tapas</sup>](https://tapas.io/series/Charity-Case/info)
+
+    >*Aspiring musician Julie finds herself relying on the charity of others to get her life back together, but the feelings she’s developing for her new housemates threaten to tear it all apart.*
+    >
+    >*Charity Case is a polyamorous romance with a side helping of found families; if you like agonizingly slow relationship development and LGBTQ+ characters, this is the one for you.*
+    >
+    >*[Warnings: depictions of anxiety. Aimed at YA and Adults]*
+    
+---
+<img src="https://us-a.tapas.io/sa/15/0e6a5acf-d3d8-4eee-a465-7f622c327ad8_z.jpg" alt="cover-image" width="200"/>
+
+- [The Five Suits](https://tapas.io/series/thefivesuits/info) <sup>Not on Mangadex - </sup> [<sup>Tapas</sup>](https://tapas.io/series/thefivesuits/info)
+
+    >*Chris is an unapologetic heartbreaker and slacker, burying the memories of her painful childhood by playing around with women and cutting class. When mysterious monsters begin attacking high schools in her area, she has to team up with four of her classmates to become superheroes and discover what the shadowy villain’s true purpose is.*
+    
+---
 
 **---UNLICENSED-ENG---**
 
