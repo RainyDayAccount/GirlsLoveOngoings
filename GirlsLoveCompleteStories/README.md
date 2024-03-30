@@ -713,41 +713,154 @@
 
 ---
 
+**Abrams Books**
+
+- Tell No Tales
+
+---
+
 **BOOM! Studios**
+
+- The Spire
+- Welcome Back
+- Abbott 1973
+- Bury the Lede
+- Cognetic
+- Specter Inspectors
+- Hollow (2022)
+- Mamo (2022)
+- Eat the Rich (2021)
+- Juliet Takes a Breath (2020)
+- Joyride (2016)
+- Jonesy (2016)
+- Lumberjanes
+- Goldie Vance
+- Steven Universe
+- Save Yourself! 
 
 ---
 
 **Dark Horse Comics**
 
+- Us
+- Crema
+- Killer Queens
+- The Once and Future Queen
+- The Marble Queen
+- Basil and Oregano
+- Carmilla: The First Vampire (2023)
+- Spell on Wheels (2016)
+
+
 ---
 
 **DC**
 
+- Galaxy
+- Crush & Lobo
+- Batwoman
+- Harley Quinn
+- Poison Ivy
+- I am not Starfire
 ---
 
 **Fantagraphics**
+
+- I Am Not Okay With This
+- Stone Fruit
+- The Heavy Bright
+- Men I Trust 
+
+---
+
+**Graphix**
+
+- The Girl and the Sea
 
 ---
 
 **IDW**
 
+- Satellite Falling
+- The Infinite Loop 
+
 ---
 
 **Image Comics**
 
+- Isola
+- Paris
+- Snotgirl
+- Paper Girls
+- Motor Crush
+- Moonstruck
+- Rain
+- Bingo Love
+
 ---
 
 **Marvel**
+
+- New Mutants: Lethal Legion (2023)
+- Betsy Braddock: Captain Britain (2023)
+- Runaways
+- America (2017)
+- Angela: Queen of Hel (2015)
 
 ---
 
 **Oni Press**
 
 ---
+<img src="https://oni-press.myshopify.com/cdn/shop/products/AQUICORNCOVE-COMPFNLWEB_900x.jpg?v=1631127118" alt="cover-image" width="200"/>
+
+- [Aquicorn Cove](https://oni-press.myshopify.com/collections/queer-comics/products/aquicorn-cove)
+
+    >*When Lana and her father return to their seaside hometown to help clear the debris of a big storm, Lana remembers how much she’s missed the ocean—and the strong, reassuring presence of her aunt. As Lana explores the familiar beach, she discovers something incredible: a colony of Aquicorns, small magical seahorse-like creatures that live in the coral reef. Lana rescues an injured Aquicorn and cares for it with the help of her aunt, who may know more about these strange creatures than she's willing to admit. But when a second storm threatens to reach the town, choices made many years ago about how to coexist with the sea start to rise to the surface. Lana realizes she will need to find the strength to stand on her own, even when it means standing up to the people who she has always relied on to protect her.*
+
+---
+<img src="https://oni-press.myshopify.com/cdn/shop/products/TEADRAGONSV1-COMPFNLWEB_900x.jpg?v=1631127348" alt="cover-image" width="200"/>
+
+- [The Tea Dragon Society](https://oni-press.myshopify.com/collections/queer-comics/products/the-tea-dragon-society)
+
+    >*From K. O'Neill, the award-winning author of Princess Princess Ever After comes THE TEA DRAGON SOCIETY, the beloved and charming all-ages book that follows the story of Greta, a blacksmith apprentice, and the people she meets as she becomes entwined in the enchanting world of tea dragons. After discovering a lost tea dragon in the marketplace, Greta learns about the dying art form of tea dragon care-taking from the kind tea shop owners, Hesekiel and Erik. As she befriends them and their shy ward, Minette, Greta sees how the craft enriches their lives—and eventually her own.*
+
+*Sequels at [The Tea Dragon Festival](https://oni-press.myshopify.com/products/the-tea-dragon-festival-hardcover?pr_prod_strat=jac&pr_rec_id=705d3b29b&pr_rec_pid=4094530519151&pr_ref_pid=4522468376687&pr_seq=uniform) and [The Tea Dragon Tapestry](https://oni-press.myshopify.com/products/the-tea-dragon-tapestry-paperback?pr_prod_strat=e5_desc&pr_rec_id=705d3b29b&pr_rec_pid=9043375423787&pr_ref_pid=4522468376687&pr_seq=uniform)*
+
+---
+<img src="https://oni-press.myshopify.com/cdn/shop/products/CHEER_UP_-_COVER_COMP_SOLICIT_WEB_1080x.jpg?v=1669241759" alt="cover-image" width="200"/>
+
+- [Cheer Up: Love and Pompoms](https://oni-press.myshopify.com/collections/queer-comics/products/cheer-up-love-and-pompoms)
+
+    >*Annie is a smart, antisocial lesbian starting her senior year of high school who’s under pressure to join the cheerleading squad to make friends and round out her college applications. Her former friend Bebe is a people-pleaser, a trans girl who must keep her parents happy with her grades and social life in order to maintain their support of her transition. Through the rigors of squad training and amped-up social pressures (not to mention microaggressions and other queer youth problems), the two girls rekindle a friendship they thought they’d lost and discover there may be other, sweeter feelings springing up between them.*
+
+---
+<img src="https://oni-press.myshopify.com/cdn/shop/products/MOONCAKES-COMPSOLICITWEB_900x.jpg?v=1597860170" alt="cover-image" width="200"/>
+
+- [Mooncakes](https://oni-press.myshopify.com/collections/queer-comics/products/mooncakes)
+
+    >*A story of love and demons, family and witchcraft. Nova Huang knows more about magic than your average teen witch. She works at her grandmothers’ bookshop, where she helps them loan out spell books and investigate any supernatural occurrences in their New England town. One fateful night, she follows reports of a white wolf into the woods, and she comes across the unexpected: her childhood crush, Tam Lang, battling a horse demon in the woods. As a werewolf, Tam has been wandering from place to place for years, unable to call any townhome. Pursued by dark forces eager to claim the magic of wolves and out of options, Tam turns to Nova for help. Their latent feelings are rekindled against the backdrop of witchcraft, untested magic, occult rituals, and family ties both new and old in this enchanting tale of self-discovery.*
+
+---
+<img src="https://oni-press.myshopify.com/cdn/shop/products/PRINCESSPV1SC-COMPFNLWEB_1080x.jpg?v=1631127477" alt="cover-image" width="200"/>
+
+- [Princess Princess Ever After](https://oni-press.myshopify.com/collections/queer-comics/products/princess-princess-ever-after)
+
+    >*When the heroic princess Amira rescues the kind-hearted princess Sadie from her tower prison, neither expects to find a true friend in the bargain. Yet as they adventure across the kingdom, they discover that they bring out the very best in the other person. They’ll need to join forces and use all the know-how, kindness, and bravery they have in order to defeat their greatest foe yet: a jealous sorceress, who wants to get rid of Sadie once and for all. Join Sadie and Amira, two very different princesses with very different strengths, on their journey to figure out what “happily ever after” really means—and how they can find it with each other.*
+---
+
+**Penguin Random House**
+
+---
 
 **Titan**
 
-- The Cold Ever After
+---
+<img src="https://dyn.media.titan-comics.com/uNJNXDimYt6BOospVvPbGf5B8Z8=/600x0/https://media.titan-comics.com/comics/issues/thecoldeverafter.jpg" alt="cover-image" width="200"/>
+
+- [The Cold Ever After](https://titan-comics.com/c/1997-the-cold-ever-after/)
+
+    >*“She lost everything when she fell in love with her Queen. Now she has a week to find a missing princess, or she’ll lose it all again… along with her head.”   Ten years after her disgrace and exile, Sir Noelani Mahi’ai – former Royal Champion of the kingdom of Patria Lupi and Queen’s protector – has been hiding under a rock at the bottom of a bottle and hasn’t lifted a sword in all that time. Until one day, the Queen summons Noelani to find her daughter who has mysteriously disappeared the night before her wedding.   Given one week to recover the princess, Noelani is forced to confront a baffling mystery, a terrifying adversary and her own past to save the kingdom. But not everything is as it seems in Patria Lupi, and in seven days she may not have a life to get back on track.*
 
 ---
 
