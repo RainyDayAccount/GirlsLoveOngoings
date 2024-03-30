@@ -724,14 +724,6 @@
 *With Bilibili-EN down, the completed version might be lost media.*
 
 ---
-<img src="https://cdn.anime-planet.com/manga/primary/xian-chan-nu-1.jpg" alt="cover-image" width="200"/>
-
-- [Xian Chan Nu](https://mangadex.org/title/eb9ad4bd-3a08-4471-8c17-0e397e4e25a8/xian-chan-nu?tab=art) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc4)
-
-    >*Liu Shiqing, the lady in charge of the escort who loves to play, encounters a cicada to save her when she is out of danger and falls in love at first sight. A story of revenge and loyalty is about to unfold around humans and demons, masters and servants.*
-
-
----
 <img src="https://cdn.anime-planet.com/manga/primary/what-should-i-do-if-ive-signed-a-marriage-contract-with-the-elven-princess-1.webp" alt="cover-image" width="200"/>
 
 - [What Should I Do If I've Signed a Marriage Contract with the Elven Princess](https://mangadex.org/title/d76d1db5-3488-4f1b-a5e1-10288056e531/what-should-i-do-if-i-ve-signed-a-marriage-contract-with-the-elven-princess?tab=art) [<sup>Bilibili</sup>](https://m.bilibilicomics.com/detail/mc124)
@@ -797,8 +789,7 @@ https://www.mangaupdates.com/poll.html?act=old_polls
     >*The regular office worker Zhan Ying, who is drama-queen at heart, recently encountered a question that made her face flush, heart pound, and become embarrassed at a complete loss. That is, she suddenly wondered if her cold queen boss Zhou Yuanyou, who is always taking care of her, has feelings for her?! Is it heartfelt, or is it just a straight trap? Zhan Ying didn't even have time to really think about it when she found herself already caught in the trap...*
 
 ---
-<img src="--- <img src="https://cdn.anime-planet.com/manga/primary/xian-chan-nu-1.jpg?t=1625847355" alt="cover-image" width="200"/> " alt="cover-image" width="200"/>
-
+<img src="https://cdn.anime-planet.com/manga/primary/xian-chan-nu-1.jpg?t=1625847355" alt="cover-image" width="200"/>
 
 - [Xian Chan Nu](https://mangadex.org/title/eb9ad4bd-3a08-4471-8c17-0e397e4e25a8/xian-chan-nu) [<sup>Bilibili</sup>](https://www.bilibilicomics.com/detail/mc4)
 
@@ -1231,6 +1222,8 @@ https://www.mangaupdates.com/poll.html?act=old_polls
 
     >*Culinary student Takeru’s life takes a sudden turn when he crosses paths with Jo, an ace sharpshooter, and the kind-hearted Meg. The dynamic duo run a ‘Jack of all trades’ service, which sees them thwart criminals, recover stolen treasures, and battle formidable opponents to pay the bills. Takeru is inspired by his new friends and finds courage in the face of adversity, proving that overcoming fears can lead to unexpected heroism.*
 
+---
+
 **Manga.Club**
 
 ---
@@ -1407,65 +1400,272 @@ https://www.mangaupdates.com/poll.html?act=old_polls
 
 **INKR**
 
-- Drawn Together
-- Mojito
-- An Older Guy's VR First Love
-- Fatal Possession
-- Eros/Psyche
-- Luisa - Now and Then
+---
+<img src="https://i1.inkr.com/p/image/d6aa9e264c7badc52c7e9114f5c39ee3.png/347.webp/thumbnail-drawn-together.webp" alt="cover-image" width="200"/>
+
+- [Drawn Together](https://mangadex.org/title/4bc3e522-0301-467e-827c-eb2984ec8a79/kami-eshi-jk-to-ol-fujoshi?tab=chapters) [<sup>INKR</sup>](https://comics.inkr.com/title/2512-drawn-together?ref=genre_detail_ik-genre-30)
+
+    >*With BL manga as her greatest and only love, Aizawa is destined to be forever alone. All her time not spent in the office is spent fawning over fanart of her favorite pairing, completely wasting her beauty. One day, the goddess of her world, the artist Misumi, announces that she will descend on a comic convention, so off Aizawa goes! When she finds Misumi's booth, what awaits her is...a super cute high school girl?!*
+
+- [Mojito](https://mangadex.org/title/d67ed460-f859-4cdd-bddf-72838faea6de/mojito) [<sup>INKR</sup>](https://comics.inkr.com/title/1721-mojito?ref=genre_detail_ik-genre-30)
+
+    >*After a photo of rising supermodel Xiao Zhong kissing a girl went viral, she was outed as a lesbian*
+    >
+    >*The girl is a lawyer named Mushen who is Xiao Zhong’s girlfriend and is being involved in the mess*
+    >
+    >*Living in a society where same sex relationships are frowned upon, they fight for their love*
+
+---
+<img src="https://i1.inkr.com/p/image/73aa363c5a60bda1a7a9a19dcd22fac5.png/347.webp/thumbnail-an-older-guy-s-vr-first-love.webp" alt="cover-image" width="200"/>
+
+- [An Older Guy's VR First Love](https://comics.inkr.com/title/3478-an-older-guy-s-vr-first-love?ref=genre_detail_ik-genre-30) <sup>Not on Mangadex - </sup> [<sup>INKR</sup>](https://comics.inkr.com/title/3478-an-older-guy-s-vr-first-love?ref=genre_detail_ik-genre-30)
+
+    >*""Farewell, my last and final lover."" Naoki is forty years old, single, male, and a temp worker. But in the world of VR, he takes on the form of a lovely young girl. There, he meets his first love- the cheerful and beautiful Honami. Real life, for Naoki, was a failure. The VR world where he escapes to is coming to an end, too. But in those final moments, he finds her...*
+
+---
+<img src="https://i1.inkr.com/p/image/3f2e01caebc878b96fc32208e42ab193.png/347.webp/thumbnail-fatal-possession.webp" alt="cover-image" width="200"/>
+
+- [Fatal Possession](https://mangadex.org/title/1b941a51-e8a5-49a6-bd43-560765fbc9b4/fatal-possession) [<sup>INKR</sup>](https://comics.inkr.com/title/287-fatal-possession)
+
+    >*Fan Shen is the daughter of Bufan Shen, and she secretly solves her father's deeds in the underworld*
+    >
+    >*For three years, she has searched for a woman who may or may not be involved in a series of murders*
+    >
+    >*A deliciously dark series about a girl's desperate search for a love that might end up killing her*
+
+---
+<img src="https://i1.inkr.com/p/image/22dcdd1468ed120a62a1d341eba69dda.png/347.webp/thumbnail-eros-psyche.webp" alt="cover-image" width="200"/>
+
+- [Eros/Psyche](https://mangadex.org/title/0c6b00b0-e735-4a2e-9f83-ae353a0c252f/eros-psyche) [<sup>INKR</sup>](https://comics.inkr.com/title/1215-eros-psyche?ref=genre_detail_ik-genre-30)
+
+    >*From the artist of the bestselling Faithless series...comes Eros/Psyche. The Rose female boarding school is paradise for young girls...but only if you follow the rules. Because, if you disobey them, you can end up expelled, or even worse, dead. Sara and Silje are two students learning the rules of the school, which includes classes by day...and the casting of curses and spells by night. A love develops between the two, which is tender, but threatens to break under the weight of the dark secret society within The Rose. Acclaimed creator Maria Llovet (Faithless, Heartbeat, Loud) brings you a surreal, bewitching tale of love, magic, and tragedy in Eros/Psyche.*
+
+- [Luisa - Now and Then](https://comics.inkr.com/title/1146-luisa-now-and-then?ref=genre_detail_ik-genre-30) <sup>Not on Mangadex - </sup> [<sup>INKR</sup>](https://comics.inkr.com/title/1146-luisa-now-and-then?ref=genre_detail_ik-genre-30)
+
+    >*At 32, Luisa encounters her 15-year-old self in this sentimental and bold story about self-acceptance and sexuality. PUBLICATION IN 1 VOLUME - COMPLETED WORK. A disillusioned photographer has a chance encounter with her lost teenage self who has miraculously traveled into the future. Together, both women ultimately discover who they really are, finding the courage to live life by being true to themselves. A time-traveling love story that turns coming-of-age conventions upside down, LUISA is a universal queer romance for the modern age.*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/6f8e8e21-bf9f-4ca3-a856-ed5b3a16197d" alt="cover-image" width="200"/>
 
-- Spirit of Peach Blossom
-- Phoebe & Selina
-- Sexual Liberation: To Each Their Own Form of Love
-- Spring Storm
-- Soulmate
-- Longing For Your Rouge
+- [Spirit of Peach Blossom](https://mangadex.org/title/a40ceaad-4a29-4512-b20f-f4ac04a4eab8/spirit-of-peach-blossom) [<sup>INKR</sup>](https://comics.inkr.com/title/883-spirit-of-peach-blossom?ref=genre_detail_ik-genre-30)
+
+    >*A love-struck of a peach blossom demon and a human girl! Dan Qing meets a peach blossom demon while gathering herbs in Ghost Forest, but humans and demons are never meant to be together. They overcome hardships together as their complicated and ambiguous relationship leads to a story filled with medical practice, love, friendship, the past, and the present.*
+
+---
+<img src="https://i1.inkr.com/p/image/f605f8acfb24121767c43fc426461d92.png/347.webp/thumbnail-phoebe-selina.webp" alt="cover-image" width="200"/>
+
+- [Phoebe & Selina](https://mangadex.org/title/57c2155b-9814-4692-920b-e59ffab6d237/sister-what-can-be-wrong) [<sup>INKR</sup>](https://comics.inkr.com/title/1172-phoebe-selina/chapters)
+
+    >*Selina is a celebrated movie director while Phoebe is the richest woman in Hong'ao City*
+    >
+    >*Selina developed feelings for Phoebe, while Phoebe took an interest in her as soon as she saw her*
+    >
+    >*But with Phoebe's friends and family opposing her relationship with Selina, will their bond last?*
+
+---
+<img src="https://i1.inkr.com/p/image/aef1805ca3c8d1873ed4d46d83e5a629.png/347.webp/thumbnail-sexual-liberation-to-each-their-own-form-of-love.webp" alt="cover-image" width="200"/>
+
+- [Sexual Liberation: To Each Their Own Form of Love](https://mangadex.org/title/477e3bc9-bb91-40cc-8b62-e02d3ae89536/sexual-liberation-to-each-their-own-form-of-love) [<sup>INKR</sup>](https://comics.inkr.com/title/1503-sexual-liberation-to-each-their-own-form-of-love?ref=genre_detail_ik-genre-30)
+
+    >*At 27 years old, insurance broker Mio Sahara is the perfect age for marriage. Traumatized after a sexual encounter with a man, she's developed an intense phobia of being seen in a sexual light. One day, when she's put on a team of elite brokers, she meets a new boss who teaches her what it means to feel untameable passion. Emboldened by this encounter, Mio resolves to face her true sexual self that she had locked away in her heart, but it won't be easy...*
+
+---
+<img src="https://i1.inkr.com/p/image/3f63caff4d70cb7671d004f9ce3e21af.png/347.webp/thumbnail-spring-storm.webp" alt="cover-image" width="200"/>
+
+- [Spring Storm](https://mangadex.org/title/dc826620-c3ab-4383-bf2b-abd9c747dedb/spring-storm) [<sup>INKR</sup>](https://comics.inkr.com/title/1503-sexual-liberation-to-each-their-own-form-of-love?ref=genre_detail_ik-genre-30)
+
+    >*Being a teenage girl is not easy. Mari, a high school girl, struggles to find her place amongst the common sociological beliefs. Stigma, prejudice, and discrimination has seeded doubt and stress in Mari as her identity is being challenged.This story is created in support of LGBT teens who face social challenges and negative attitudes from society, the innate struggles of adolescence are further complicated leading to the potential development of mental health concerns. Now - Mari is trying to overcome the stigma.*
+
+---
+<img src="https://i1.inkr.com/p/image/aa5adb9f9cf8d6ddbfca2657af9dd322.png/347.webp/thumbnail-soulmate.webp" alt="cover-image" width="200"/>
+
+- [Soulmate](https://mangadex.org/title/04f2b88a-e167-410e-ac38-4fd4777f4e0f/soulmate) [<sup>INKR</sup>](https://comics.inkr.com/title/1503-sexual-liberation-to-each-their-own-form-of-love?ref=genre_detail_ik-genre-30)
+
+    >*Yu Qi suddenly wakes up several years in the past when she was still a high school student*
+    >
+    >*In the future, the younger Yu Qi wakes up confused, finding herself in her 27-year-old body*
+    >
+    >*One has to buy more time for Yuanzi and the other the responsibility of being the current girlfriend*
+
+---
+<img src="https://i1.inkr.com/p/image/03f9c958101410f3b5531cd86d1e8a68.png/347.webp/thumbnail-longing-for-your-rouge.webp" alt="cover-image" width="200"/>
+
+- [Longing For Your Rouge](https://mangadex.org/title/5bab8318-52e4-46ae-bc7f-6fc0f594c4b2/longing-for-your-rouge) [<sup>INKR</sup>](https://comics.inkr.com/title/1503-sexual-liberation-to-each-their-own-form-of-love?ref=genre_detail_ik-genre-30)
+
+    >*“Is this me...?” Tsukushi Ono thought to herself, still horny after happening across a romance drama on her commute to work. Though she longed for it, she felt romance just wasn't in the cards. It wasn't until a coworker brought up the subject of makeup that Tsukushi began comparing herself to the other women at the office. Her disappointment, however, didn't stop her from exploring the nearest department store, leading to a chance encounter with a beautiful cosmetics clerk... And before she knew it, Tsukushi was learning to apply her own makeup. Despite her lack of fashion sense, she gradually found herself falling for this woman... This is an innocent love story between a boring office lady and an attractive cosmetics clerk.*
+
+---
 
 **Renta**
 
-- Mr. Right Turned Out To Be A Younger Woman!?
-- Black Lily and White Lily
-- Patterns of Yuri at the Girls' School
-- South Pacific Girlfriend -The Ocean, the Sun, and You...-
+---
+<img src="https://img.ebookrenta.com/lc/sc/item/cover/9-892212-c400.jpg" alt="cover-image" width="200"/>
+
+- [Mr. Right Turned Out To Be A Younger Woman!?](https://mangadex.org/title/1a84531f-a38a-468a-972d-f98e58ecca4c/the-marriage-partner-of-my-dreams-turned-out-to-be-my-female-junior-at-work) [<sup>Renta</sup>](https://www.ebookrenta.com/renta/sc/frm/item/142845)
+
+    >*Still single at age 33, Haruki Shiina is standing at the biggest crossroads of her life. While unlucky in love, she's popular among her female coworkers for her laidback and boyish personality. The only one who gives her the cold shoulder is Risa Takagai, a beautiful and capable new hire who is already climbing her way up the corporate ladder. Haruki sees her as her biggest rival and is sure that the feeling is mutual, but why does Risa always seem to be watching her...?*
+
+---
+<img src="https://img.ebookrenta.com/lc/sc/item/cover/9-674005-c400.jpg" alt="cover-image" width="200"/>
+
+- [Black Lily and White Lily](https://mangadex.org/title/0ad1c29f-1634-411d-9615-1368991048f1/black-lily-to-shirayuri-chan) [<sup>Renta</sup>](https://www.ebookrenta.com/renta/sc/frm/item/140865)
+
+    >*The all-girls' school Yuri transferred to should have been one of discipline and morals. However, when she arrives, she discovers the girls follow their own rules thanks to a conceited honors student named Lily who believes in the school's "Freedom" and other pleasures!! A comedy about girls loving girls!*
+
+---
+<img src="https://img.ebookrenta.com/lc/sc/item/cover/9-633081-c400.jpg" alt="cover-image" width="200"/>
+
+- [Patterns of Yuri at the Girls' School](https://www.ebookrenta.com/renta/sc/frm/item/140404) [<sup>Renta</sup>](https://www.ebookrenta.com/renta/sc/frm/item/140404)
+
+    >*Hikari loves her classmate Maho, who she's known since they were little. They display their affection for each other so much it draws the suspicions of everyone. But, this is all a show as Maho is actually involved with another girl... After school, classmate Ai asks Hikari, "Is it really okay if your girlfriend is flirting with another girl?" Without knowing what Ai's game is, Hikari finds herself being kissed by her... and seduced. Ai does things to her that she's always wanted to do with Maho. Despite the heartbreak, she's physically enraptured... A feeling of loss quickly takes a turn in this tale of schoolgirl discovery.*
+
+
+---
+<img src="https://img.ebookrenta.com/lc/sc/item/cover/9-614768-c400.jpg" alt="cover-image" width="200"/>
+
+- [South Pacific Girlfriend -The Ocean, the Sun, and You...-](https://mangadex.org/title/5e7df083-8819-40af-9d59-a840adbff100/umi-to-anata-to-taiyou-to)  [<sup>Renta</sup>](https://www.ebookrenta.com/renta/sc/frm/item/140192)
+
+    >*Kiara is an exotic young lady from the South Pacific who walks into the shop where Nozomi works part-time. They go out, get drunk and spend the night together...! A woman knows what makes another woman feel good! Juices flow as Kiara's slender finger and slippery tongue tend to Nozomi's sweet spot, driving her to wonderful, shuddering heights. Women only!? She's only had a few clumsy romances with men, and now Nozomi just can't get Kiara out of her mind! Daybreak sees Kiara coolly heading off to the airport and then home... with Nozomi in pursuit! And with that, Nozomi and Kiara's steamy South Pacific lifestyle begins!*
+
+---
 
 **Webcomics**
 
-- Phoebe and Selina
-- Slightly Sour Secret
-- Why Did I, the MC Of Gal Game Jump Into A World Of Yuri Comic?
-- June and Alice
-- Lime Herbal Tea 
+---
+<img src="https://imgg.mangaina.com/5b5640a95d50c10c203c67a735dc6940.webp" alt="cover-image" width="200"/>
+
+- [Slightly Sour Secret](https://mangadex.org/title/251a9021-961a-458a-b02d-6ce641cf063e/slightly-sour-secret) [<sup>Webcomics</sup>](https://www.webcomicsapp.com/comic/Slightly-Sour-Secret/5b99da3a46e67853e26279f9)
+
+    >*Have you ever been confused about love? In the end what is "true love" like? Our female lead now is standing at a fork in the road. On one side, her close childhood friend is waiting for her reply. On the other side, there stands her college friend whom she cannot just let go. Where does this love triangle lead to?*
+    
+---
+<img src="https://imgg.mangaina.com/043eb51d8fcf1c102eb926feaeb8a00f.webp" alt="cover-image" width="200"/>
+
+- [Why Did I, the MC Of Gal Game Jump Into A World Of Yuri Comic?](https://mangadex.org/title/b6e81878-47aa-4dbf-ba76-a7908a7f1fe1/how-did-i-the-main-character-of-a-gal-game-find-myself-in-a-yuri-manhua) [<sup>Webcomics</sup>](https://www.webcomicsapp.com/comic/Why-Did-I-the-MC-Of-Gal-Game-Jump-Into-A-World-Of-Yuri-Comic-/5bee82c0d5626e2a5802b110)
+
+    >*MC has lived narcissistically within a gal game, but the game suddenly embraces a yuri and yaoi theme, and he now lives as a frustrated loser.*
+    
+---
+<img src="https://imgg.mangaina.com/64735bdc83952b7b930be4d0618f26fc.webp" alt="cover-image" width="200"/>
+
+- [June and Alice](https://mangadex.org/title/cb363628-c3e0-42e1-a60e-dae7926edb32/chun-and-alice) [<sup>Webcomics</sup>](https://www.webcomicsapp.com/comic/June-and-Alice/61de842f8c252b5bc8367ee4)
+
+    >*June, an oriental girl in a foreign country, becomes the queen's dress-up doll to make a living! June wants to escape once she earns enough money, but she gets caught up in a bigger conspiracy struggle for power.*
 
 ---
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ad1f3267-14d7-4fcc-995d-7bcef52df005" alt="cover-image" width="200"/>
+<img src="https://imgg.mangaina.com/a404973ab6898d351072f6483e1d7b6e.webp" alt="cover-image" width="200"/>
+
+- [Lime Herbal Tea](https://mangadex.org/title/b7d2fec4-150e-4f73-808e-ea7b419e6601/green-plum-blossom-tea) [<sup>Webcomics</sup>](https://www.webcomicsapp.com/comic/Lime-Herbal-Tea/6246b2318c252b609f1b38a4)
+
+    >*Gu Gu, a shy girl, meets Xing Xing, an extroverted basketball girl. Xing Xing is everything Gu Gu wants to be - have lots of friends and live a happy, carefree life with dreams. Gu Gu is organized; she lists out a long to-do list for herself. But how does that help her get closer to Xing Xing? Wait, maybe Xing Xing is trying to get closer to Gu Gu too...*
+
+---
+<img src="https://imgg.mangaina.com/c1797140142b897e570045358ab18d59.webp" alt="cover-image" width="200"/>
+
+- [Devil To Healer](https://mangadex.org/title/a604f709-7f0e-462b-afc8-c123bb187079/the-devil-s-cure) [<sup>Webcomics</sup>](https://www.webcomicsapp.com/comic/Devil-To-Healer/5be65cdad5626e41fb4af852)
+
+    >*"Wanna sign a contract with me to become that detinsed one?"*
+    >
+    >*Devil Jekaterina is summoned and saved by a cultivator girl Yuchi Yue. To Yue surprise, the first thing Jekaterina wants to do when she wakes up is to ask her sign a contract with her with a kiss?*
+    >
+    >*"Kissing on the lips is the thing that can only be done between those who likes each other!", Yue shouts and refused. But it seems that Jekaterina doesn't understand what does she mean...*
+
+---
+<img src="https://imgg.mangaina.com/ec7a222a27b22e424f5a3c9fdbd1e205.webp" alt="cover-image" width="200"/>
+
+- [Isle of Farewell And Reunion](https://mangadex.org/title/4284c151-361f-48f5-b14d-676d7ddca625/isle-of-farewell-and-reunion) [<sup>Webcomics</sup>](https://www.webcomicsapp.com/comic/Isle-of-Farewell-And-Reunion/5bd053e1d5626e2e1779393e)
+
+
+    >*Giving up her top job to live alone on the island, the writer Elly meets her younger schoolmate Rhea, thus their story starts... Check out how the scheming junior courts her reserved dream lover!*
+
+---
+<img src="https://imgg.mangaina.com/d88eda9b730813df79f29ede05618be9.webp" alt="cover-image" width="200"/>
+
+- [YOVE](https://www.webcomicsapp.com/comic/YOVE/6571794c8c252b5bfa1f4976) <sup>Not on Mangadex - </sup> [<sup>Webcomics</sup>](https://www.webcomicsapp.com/comic/YOVE/6571794c8c252b5bfa1f4976)
+
+    >*A love story between a drama queen who is talented and loves to splurge and a bubbly but penny-pinching model in which they learn and grow together.*
 
 ---
 
 **Lalatoon**
 
 ---
+<img src="https://thumb-g1.lalatoon.com/upload/thumbnail/20230103165319/2023_01_16_16738595675604.jpg" alt="cover-image" width="200"/>
 
-- Rainbow House
-- The Demon's Vengeance
+- [Rainbow House](https://www.lalatoon.com/en/webtoon/ranking/genre/3970) <sup>Not on Mangadex - </sup> [<sup>Lalatoon</sup>](https://www.lalatoon.com/en/webtoon/ranking/genre/3970)
+
+    >*Dahong moves into the "Rainbow House" when she had nowhere else to go. Little did she know that the "Rainbow House" was a house for lesbians. Dahong had to lie that she was one too, to get in. What will happen to her life?*
+
+---
+<img src="https://thumb-g1.lalatoon.com/upload/thumbnail/20220415102944/2022_06_24_16560409317283.jpg" alt="cover-image" width="200"/>
+
+- [The Demon's Vengeance](https://mangadex.org/title/151a9bcd-12e5-47f0-b6dc-8d523d468dd6/wild-lilies-and-violets) [<sup>Lalatoon</sup>](https://www.lalatoon.com/en/webtoon/episode/toon/6573)
+
+    >*Mythical creatures live among us as persecuted minorities. Will the humans ever stop the massacre?*
+
+---
+<img src="https://thumb-g2.lalatoon.com/upload/thumbnail/20221108114730/2022_12_26_16720605930660.jpg" alt="cover-image" width="200"/>
+
+- [Becoming Her Bride](https://mangadex.org/title/598aafe6-3f6d-44f1-9ce1-6b664e3ac33c/become-her-bride) [<sup>Lalatoon</sup>](https://www.lalatoon.com/en/webtoon/episode/toon/6828)
+
+    >*In a world of money, fame, and secrets, Sherry finds herself being the bride of a wealthy family... However, it's far from simple.*
+
+---
+<img src="https://thumb-g2.lalatoon.com/upload/thumbnail/20230118113327/2023_02_03_16753952356983.jpg" alt="cover-image" width="200"/>
+
+- [The Sibling's Woman](https://mangadex.org/title/599de15f-4836-43c1-b788-ef2de6144a14/the-sibling-s-woman) [<sup>Lalatoon</sup>](https://www.lalatoon.com/en/webtoon/episode/toon/6944)
+
+    >*A not-so-beautiful love story between a woman and a pair of siblings caught in a complex love triangle.*
 
 ---
 
 **Webtoon Factory**
 
-- Tales of love and consequences
-- My Demon Secretary
+---
+<img src="https://www.webtoonfactory.com/assets-upload/webtoons/series-vertical/talesofloveandconsequences_vertical.jpg" alt="cover-image" width="200"/>
+
+- [Tales of love and consequences](https://mangadex.org/title/6c1bfa78-c2db-4713-ad17-506138d79bfa/tales-of-love-and-consequences) [<sup>Webtoon Factory</sup>](https://www.webtoonfactory.com/en/serie/tales-of-love-and-consequences/)
+
+    >*Sealia and Cloudy are in love. But their relationship is forbidden by their respective clans, which have been on unfriendly terms for generations due to their vastly different positions on the human race. When the two women are denounced, they are banished to Earth… a planet on a path to destruction. But that’s not factoring in the power of the love between the two women, and human ingeniousness. Are Sealia and Cloudy the only two deities down on Earth?*
+
+---
+<img src="https://www.webtoonfactory.com/assets-upload/webtoons/vertical-21/mydemonsecretary_vertical.jpg" alt="cover-image" width="200"/>
+
+- [My Demon Secretary](https://www.webtoonfactory.com/en/serie/my-demon-secretary/) [<sup>Webtoon Factory</sup>](https://www.webtoonfactory.com/en/serie/my-demon-secretary/)
+
+    >*Her tremendous success as the CEO of an internationally popular dating app hasn't made Grace Rosalia's life any brighter. Her brother's deteriorating health has her ready to take desperate measures and to do whatever it takes, no matter how risky, to save his life. Enter Luz, a sexy she-demon who offers to heal Grace's brother, but in exchange, Grace must help Luz find true love... in the space of a single week! Thus begins a race against time, and a desperate one at that... For even though Grace has designed the perfect dating app, she herself is utterly clueless when it comes to romance!*
+
+
+---
 
 **Manga Plaza**
 
-- The Evening and The Sea
-- AYAKA is in LOVE with HIROKO!
+---
+<img src="https://c.mangaplaza.com/thumbnail/0303001595/103030015950001.jpg" alt="cover-image" width="200"/>
+
+- [The Evening and The Sea](https://mangadex.org/title/1e3f142a-a89f-496c-8dbf-6791be1769be/yoru-to-umi) [<sup>Manga Plaza</sup>](https://mangaplaza.com/title/0303001595/)
+
+    >*"I never really wanted good friends. I always thought I'd rather have things I'd be okay with leaving behind." Tsukiko is the new girl in school. One day, she catches a glimpse of her classmate, Utsumi, swimming in the school's pool. She becomes fixated. Tsukiko knew they were classmates, but beyond that, the two girls had no reason to cross paths. However, one rainy day turns all of that around. An emotional story about the everyday lives of the enigmatic new girl and the girl with no filter who happens to love swimming!*
+
+---
+<img src="https://c.mangaplaza.com/thumbnail/0303001565/103030015650001.jpg" alt="cover-image" width="200"/>
+
+- [AYAKA is in LOVE with HIROKO!](https://mangadex.org/title/621e53f9-dc01-4608-b3d4-0941f83c05de/ayaka-chan-wa-hiroko-senpai-ni-koishiteru) [<sup>Manga Plaza</sup>](https://mangaplaza.com/title/0303001565/)
+
+    >*Soft and bubbly office lady Ayaka is madly in love with her senior at work, Hiroko! Two lovestruck coworkers who both think the other is straight totally crush on each other... popular Twitter artist Sal Jiang's latest office rom-com!*
+
+---
 
 **Manga Planet**
 
--
+---
+<img src="https://mangaplanet.com/storage/img/60ff99beafba4/63994c312bed1/63994c381b341/cover.webp" alt="cover-image" width="200"/>
+
+- [Lilies and Voices Born Upon the Wind](https://mangadex.org/title/c4aee523-1ee8-4997-ac39-d368d5007ad6/lilies-voice-wear-wind) [<sup>Manga Planet</sup>](https://mangaplanet.com/comic/63994c312bed1)
+
+    >*Matoi Nonoshita is a country girl with big-city dreams, and if that means that others think she can't quite understand the importance of love and companionship, so be it. She's going to Tokyo to pursue her dream of being a TV announcer; after all - she's perfectly fine with being alone! But when one chance encounter leads to her meeting Yuriko, a young woman with a motorcycle, suddenly Matoi feels as if everything she knew about herself has begun to change...*
+
+---
 
 **Webtoons**
 
@@ -1560,19 +1760,42 @@ https://www.mangaupdates.com/poll.html?act=old_polls
 
     >*Ayeka is a talented, but hot-headed agent for the Deep Garden, a secret organization tasked with exorcising spectral entities known as "Spiders". But when more powerful Spiders start to appear, Ayeka's recklessness will both help and harm her, as she embarks on a journey to discover the secrets of the mysterious Black Compass project. Will she lose herself in her findings? Or will she gain the power to send the Spiders back to Hell?*
 
-
+---
 
 **Tapas**
 
-*\~Published by Tapas\~*
+---
+<img src="https://us-a.tapas.io/sa/08/397fc6c3-c735-45ad-bc79-b1a4dcd8f1da_z.jpg" alt="cover-image" width="200"/>
 
-*\~Early Access\~*
+- [What does the fox say?](https://mangadex.org/title/658662c8-bee6-442c-91c4-cb94681810b5/what-does-the-fox-say) <sup>Used to be Complete on Tappytoon? - </sup> [<sup>Tapas</sup>](https://tapas.io/series/what-does-the-fox-say-comic/info)
 
-*These are not exclusive.*
+    >*Even with no experience in life or love, Seongji must still face the corporate world in all its grueling monotony just like the rest of us. Yet no matter how busy she gets, she can’t stop herself from fawning over her aloof new boss, Sumin. This could have been the start of a perfect love affair if not for the looming presence of Sumin’s ex, Saeju. Can Seongji still find love with her beautiful boss, or will these third-party interferences prove too much for her to bear?*
+    
+- [Relationship Guidelines](https://mangadex.org/title/1a35050d-3b44-4b61-9471-e140dc4329ef/relationship-guidelines) [<sup>Tapas</sup>](https://tapas.io/series/relationship-guidelines/info)
 
-**Webcomics**
+    >*“Ugh! Life’s been miserable ever since that one stupid kiss! I NEVER should've done that! 'You wanna try?' she asked—It’s all her fault, and now she’s ignoring me! I can’t stop thinking about her!!!" Poor, unfortunate Jiwon, stuck in a hormonal, teen game of cat and mouse. Kissed by her best friend, she’s left to her own devices to figure out what the hell is going on. Watch as cat turns to mouse, mouse to cat, and see how two childhood friends tiptoe the boundaries of their relationship.*
+    
 
-**Renta**
+---
+<img src="https://us-a.tapas.io/sa/36/a515d698-aa91-4a9a-ba9f-e4aa20a7c294_z.jpg" alt="cover-image" width="200"/>
+
+- [Master of the Fox Bead](https://mangadex.org/title/238fa850-3c09-4ee4-bcfa-ab67dc91cf38/master-of-the-fox-bead) [<sup>Tapas</sup>](https://tapas.io/series/master-of-the-fox-bead/info)
+
+    >*Lee Jinhwa lived an ordinary life until she swallowed a fox bead gifted by a mysterious peddler, mistaking it for a wish-fulfilling marble. Little did Jinhwa know that her actions would lead her to be haunted by Koo Miho, an infamous nine-tailed fox who wishes to retrieve the bead. To add fuel to the fire, Jinhwa soon discovers that she's also become a target for various spirits and demons, and the only way to extract the cause of the issue is for Miho to kill her... or kiss her!*
+    
+---
+<img src="https://us-a.tapas.io/sa/68/a2278fd3-8de7-45c3-8044-d92f382824b5_z.jpg" alt="cover-image" width="200"/>
+
+- [Ghosts of Greywoods](https://mangadex.org/title/45e775a8-b9b8-4554-9ad3-e5135a602cda/ghosts-of-greywoods) [<sup>Tapas</sup>](https://tapas.io/series/ghosts-of-greywoods/info)
+
+    >*Welcome to Greywoods, a beautiful mansion isolated deep in the countryside. Its main inhabitants? The Viscount Rose, his daughter Lady Eileen, the housekeeper, the butler, and... a new maid, Marie. As Lady Eileen and her newest (and only) companion begin to open up to each other, do their hearts follow close behind? Now, don’t mind any lingering ghosts still haunting the grounds, they’re not real! Nor are there any enduring secrets, deep-rooted betrayals, or an air of mystery... just trust me.*
+    
+---
+<img src="https://us-a.tapas.io/sa/a6/c5d3a9fe-c5e0-4cb9-9ed3-94b2721fd630_z.jpg" alt="cover-image" width="200"/>
+
+- [Dormant Desires](https://mangadex.org/title/6f9ced73-2058-4022-8316-58fa56592f83/dormant-desires) [<sup>Tapas</sup>](https://tapas.io/series/dormant-desires/info)
+
+    >*Eve’s a police officer trained to investigate and catch the most hardened criminals, but she can’t figure out why she has these dreams with the same sexy dominatrix night after night! Until... one day she happens upon a doppelgänger of her seductress, a Ms. Sammi Shi, in the interrogation room. Who is she? The sexual tension between the two is evident. Eve is drawn to Sammi, pulled tighter and tighter by the chemistry between them. She needs to find out more!... so much more...*
 
 **---UNLICENSED-ENG---**
 
