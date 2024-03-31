@@ -715,7 +715,30 @@
 
 **Abrams Books**
 
-- Tell No Tales
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/e5eac016-58f5-46cd-8e52-2f4393346201" alt="cover-image" width="200"/>
+
+- [Tell No Tales](https://store.abramsbooks.com/products/tell-no-tales)
+
+    >*Anne Bonny had it all—her own ship, a pirate crew, and a fearsome reputation—but a new enemy has her on the run and it’ll take all of Anne’s courage to stay afloat.*
+    >
+    >*The night before a major heist, Anne has an unsettling dream, and come morning, the robbery is thwarted by Woodes Rogers, a zealot who has sworn to eliminate piracy. With no plan to escape, Anne must persuade her crew to seek the meaning of her dream—or perish.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/bb238806-e356-4a17-8dfe-b0e603d5bd81" alt="cover-image" width="200"/>
+
+- [Pixels of You](https://www.abramsbooks.com/product/pixels-of-you_9781419752810/)
+
+    >*In a near future, augmentation and AI changed everything and nothing. Indira is a human girl who has been cybernetically augmented after a tragic accident, and Fawn is one of the first human-presenting AI. They have the same internship at a gallery, but neither thinks much of the other’s photography. After a huge public blowout, their mentor gives them an ultimatum: work together on a project or leave her gallery forever. Grudgingly, the two begin to collaborate, and what comes out of it is astounding and revealing for both of them.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/9d996f8f-bee1-4141-9323-a5d86f67d8c7" alt="cover-image" width="200"/>
+
+- [Flung out of Space](https://www.abramsbooks.com/product/flung-out-of-space_9781419744334/)
+
+    >*New York Times bestselling author Grace Ellis and illustrator Hannah Templer have teamed up to tell Patricia Highsmith’s story through her eyes—reimagining the events that inspired her to write The Price of Salt, the book that would become a foundational piece of queer literature. Flung Out of Space opens with Pat begrudgingly writing low-brow comics. A drinker, a smoker, and a hater of life, Pat knows she can do better. Her brain churns with images of the great novel she could and should be writing, what will eventually be Strangers on a Train, which would later be adapted into a classic film by Alfred Hitchcock in 1951.*
+    >
+    >*At the same time, Pat, a lesbian consumed with self-loathing, is in and out of conversion therapy, leaving a trail of sexual conquests and broken hearts in her wake. However, one of those very affairs—and a chance encounter in a department store—give Pat the idea for her soon-to-be beloved tale of homosexual love that was the first of its kind: It gave the lesbian protagonists a happy ending.*
 
 ---
 
@@ -762,6 +785,8 @@
 - Harley Quinn
 - Poison Ivy
 - I am not Starfire
+- Madame Xanadu
+
 ---
 
 **Fantagraphics**
@@ -769,7 +794,20 @@
 - I Am Not Okay With This
 - Stone Fruit
 - The Heavy Bright
-- Men I Trust 
+- Men I Trust
+
+---
+
+**First Second**
+
+- On a Sunbeam
+- Spinning
+- Bunt
+- Belle of the Ball
+- The Well
+- Are You Listening
+- Snapdragon
+- Laura Dean Keeps Breaking up With Me 
 
 ---
 
@@ -788,14 +826,22 @@
 
 **Image Comics**
 
-- Isola
-- Paris
-- Snotgirl
-- Paper Girls
-- Motor Crush
-- Moonstruck
-- Rain
-- Bingo Love
+- [Isola](https://imagecomics.com/comics/series/isola)
+- [Paris](https://imagecomics.com/comics/series/paris)
+- [Snotgirl](https://imagecomics.com/comics/series/snotgirl)
+- [Paper Girls](https://imagecomics.com/comics/series/paper-girls)
+- [Motor Crush](https://imagecomics.com/comics/series/motor-crush)
+- [Moonstruck](https://imagecomics.com/comics/series/moonstruck)
+- [Rain](https://imagecomics.com/comics/series/rain)
+- [Bingo Love](https://imagecomics.com/comics/series/bingo-love)
+- [Glory](https://imagecomics.com/comics/series/glory)
+- [Bolero (2022)](https://imagecomics.com/comics/series/bolero)
+- Sunstone
+- Clementine
+- Crowded
+- The Old Guard
+- Hack/Slash
+- Monstress
 
 ---
 
@@ -847,9 +893,62 @@
 - [Princess Princess Ever After](https://oni-press.myshopify.com/collections/queer-comics/products/princess-princess-ever-after)
 
     >*When the heroic princess Amira rescues the kind-hearted princess Sadie from her tower prison, neither expects to find a true friend in the bargain. Yet as they adventure across the kingdom, they discover that they bring out the very best in the other person. They’ll need to join forces and use all the know-how, kindness, and bravery they have in order to defeat their greatest foe yet: a jealous sorceress, who wants to get rid of Sadie once and for all. Join Sadie and Amira, two very different princesses with very different strengths, on their journey to figure out what “happily ever after” really means—and how they can find it with each other.*
+    
+
+- Wet Moon
+- Archival Quality
+- Space Battle Lunchtime (2016)
+- Kim Reaper 
 ---
 
 **Penguin Random House**
+
+---
+<img src="https://images2.penguinrandomhouse.com/cover/9780593403228" alt="cover-image" width="200"/>
+
+- [If You'll Have Me](https://www.penguinrandomhouse.com/books/673628/if-youll-have-me-by-eunnie/)
+
+    >*Momo Gardner is the kind of friend who’s always ready to lend a helping hand. She’s introverted, sensitive, and maybe a little too trusting, but she likes to believe the best in people. PG, on the other hand, is a bit of a lone wolf, despite her reputation for being a flirt and a player. Underneath all that cool mystery, she’s actually quick to smile, and when she falls for someone, she falls hard. An unexpected meet-cute brings the two together, kicking off the beginning of an awkward yet endearing courtship—but with their drastically different personalities, Momo’s overprotective friend, and PG’s past coming back to haunt her, Momo and PG’s romance is put to the test.*
+
+---
+<img src="https://images3.penguinrandomhouse.com/cover/9780593119990" alt="cover-image" width="200"/>
+
+- [Witchlight](https://www.penguinrandomhouse.com/books/609274/witchlight-by-jessi-zabarsky/)
+
+    >*Lelek is a witch.*
+    >
+    >*That’s all Sanja knows when she meets Lelek in the marketplace. But Lelek is hiding something — and as her life begins to intersect with Sanja’s, all that she’s kept to herself starts to come to light.*
+    >
+    >*Secrets, friendship, and magic all come together as Lelek gets closer and closer to uncovering the truth about her past.*
+
+---
+<img src="https://images3.penguinrandomhouse.com/cover/9780593112168" alt="cover-image" width="200"/>
+
+- [Coven](https://www.penguinrandomhouse.com/books/645699/coven-by-jennifer-dugan-illustrated-by-kit-seaton/)
+
+    >*Emsy has always lived in sunny California, and she’d much rather spend her days surfing with her friends or hanging out with her girlfriend than honing her powers as a fire elemental. But when members of her family’s coven back east are murdered under mysterious circumstances that can only be the result of powerful witchcraft, her family must suddenly return to dreary upstate New York. There, Emsy will have to master her neglected craft in order to find the killer . . . before her family becomes their next target.*
+
+---
+<img src="https://images3.penguinrandomhouse.com/cover/9780593125434" alt="cover-image" width="200"/>
+
+- [Coming Back](https://www.penguinrandomhouse.com/books/609275/coming-back-by-jessi-zabarsky/)
+
+    >*Preet is magic.*
+    >
+    >*Valissa is not.*
+    >
+    >*Everyone in their village has magic in their bones, and Preet is the strongest of them all. Without any power of her own, how can Valissa ever be worthy of Preet’s love? When their home is attacked, Valissa has a chance to prove herself, but that means leaving Preet behind. On her own for the first time, Preet breaks the village’s most sacred laws and is rejected from the only home she’s ever known and sent into a new world.*
+    >
+    >*Divided by different paths, insecurities, and distance, will Valissa and Preet be able to find their way back to each other?*
+
+---
+<img src="https://images4.penguinrandomhouse.com/cover/9780525554882" alt="cover-image" width="200"/>
+
+- [The Legend of Auntie Po](https://www.penguinrandomhouse.com/books/601780/the-legend-of-auntie-po-by-shing-yin-khor/)
+
+    >*Aware of the racial tumult in the years after the passage of the Chinese Exclusion Act, Mei tries to remain blissfully focused on her job, her close friendship with the camp foreman’s daughter, and telling stories about Paul Bunyan–reinvented as Po Pan Yin (Auntie Po), an elderly Chinese matriarch.*
+    >
+    >*Anchoring herself with stories of Auntie Po, Mei navigates the difficulty and politics of lumber camp work and her growing romantic feelings for her friend Bee. The Legend of Auntie Po is about who gets to own a myth, and about immigrant families and communities holding on to rituals and traditions while staking out their own place in the United States.*
 
 ---
 
