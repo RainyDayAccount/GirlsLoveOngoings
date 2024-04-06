@@ -742,78 +742,305 @@
 
 ---
 
+**Action Lab Comics**
+
+---
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ab76d3f7-fa85-4e13-bee7-aeeffadcc066" alt="cover-image" width="200"/>
+
+- [Raven: the Pirate Princess](https://www.goodreads.com/series/172504-raven-the-pirate-princess-collected-editions)
+
+    >*Raven is ready to set out on her quest for revenge against her brothers. They’ve stolen everything that should be hers and now she’s going to get it back. But first, she needs a crew. Share the laughs, action, and adventure as Raven assembles the fearless crew of awesome ladies who will help her get her revenge.*
+
+---
+
 **BOOM! Studios**
 
-- The Spire
-- Welcome Back
-- Abbott 1973
-- Bury the Lede
-- Cognetic
-- Specter Inspectors
-- Hollow (2022)
-- Mamo (2022)
-- Eat the Rich (2021)
-- Juliet Takes a Breath (2020)
-- Joyride (2016)
-- Jonesy (2016)
-- Lumberjanes
-- Goldie Vance
-- Steven Universe
-- Save Yourself! 
+*I think there's an issue with their website, listing amazon links for now.*
+
+---
+<img src="](https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/e9e18348-8a3d-44b9-bac4-75801beaf43e" alt="cover-image" width="200"/>
+
+- [The Spire](https://www.amazon.com/Spire-Simon-Spurrier/dp/160886913X)
+
+    >*The Spire is a mountain of metal and stone, a vast city that rises out of the middle of the radioactive desert. Filled with twisting tunnels, grinding elevators, and ancient machinery, it is home to over a million human and non-human residents. Sha, the last of the species known as the Medusi, is responsible for keeping the hodgepodge of forgotten technology and new biology safe as Commander of the City Watch. But when a string of grisly murders are committed just as a new Baroness of the Spire is about to be sworn in, Sha will have to find the killer and bring that individual to justice. With the new Baroness housing a deep hatred of non-humans, Sha will have more than one enemy at her back as a mystery buried in the history of the Spire unravels around her.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/93dfda84-b44d-4640-8e4f-393a81d8c829" alt="cover-image" width="200"/>
+
+- [Welcome Back](https://www.amazon.com/dp/B07JKG4KD7?binding=paperback&ref=dbs_dp_rwt_sb_pc_tpbk)
+
+    >*Mali and Tessa have lived hundreds of different lives throughout time, caught up in an eternal cycle as they take part in a war so old that neither side remembers what they're fighting for anymore. As Mali wakes up in her newest life, she suddenly becomes self-aware and starts to question everything, especially why she continues to fight. But elsewhere, Tessa is already on the hunt?*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/cf1dd72a-3a04-4032-8050-f41ac84b0f51" alt="cover-image" width="200"/>
+
+- [Abbott 1973](https://www.amazon.com/gp/product/B09FRLF7WK)
+
+    >*A WAR FOR THE SOUL OF DETROIT. Elena Abbott is one of Detroit's toughest reporters -- and after defeating the dark forces that murdered her husband, she's focused on the most important election in the city's history. But when someone uses dark magic to sabotage the campaign of the prospective first Black mayor of Detroit, it becomes clear to Abbott that the supernatural conspiracy in her city is even greater than she ever imagined. Now Abbott must exhaust all her abilities as a reporter and a supernatural savior to rescue Detroit -- but at what cost to her own life?*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/07fe4b0e-f0af-41fa-8965-41d84f62cfc6" alt="cover-image" width="200"/>
+
+- [Bury the Lede](https://www.amazon.com/Bury-Lede-Gaby-Dunn-ebook/dp/B07WNS25QQ)
+
+    >*Cub reporter Madison Jackson is young, scrappy, and hungry to prove that she deserves her coveted college internship at the premiere newspaper in town, The Boston Lede, so when her police scanner mentions a brutal murder tied to the prominent Boston Kennedys, Madison races to the crime scene, looking for the scoop of the century. What she finds instead is the woman who'll change her life forever: Dahlia Kennedy, celebrity socialite, now widow, covered in gore and the prime suspect in the murder of her husband and child. When Dahlia refuses to talk to anyone but Madison, they begin a dangerous game of cat and mouse that leads the young journalist down a twisted path.*
+
+---
+<img src="https://m.media-amazon.com/images/I/91Z3ki9xcbL._SL1500_.jpg" alt="cover-image" width="200"/>
+
+- [Cognetic](https://www.amazon.com/Cognetic-James-Tynion-IV-ebook/dp/B01L2WGIRI/)
+
+    >*Cognetic is the story of a powerful psychic being that once controlled one-third of the world's population as a part of its hivemind, and his return to humanity in modern-day New York City. It's also the story of a young woman, the assistant to the director of the FBI, who might be the only one who can save humanity, but at a terrible, terrible cost.*
+    
+---
+<img src="https://m.media-amazon.com/images/I/91wCTAoGXUL._SL1500_.jpg" alt="cover-image" width="200"/>
+
+- [Specter Inspectors](https://www.amazon.com/Specter-Inspectors-2-Bowen-McCurdy-ebook/dp/B08XN112Z3)
+
+    >*After encountering a real (after) life demon while looking for ghosts in the most haunted town in America, Noa, Ko, Gus, and Astrid are on the hunt for this particular devil's true name, to try and free Astrid from its demonic influence.*
+    >
+    >*But they might just uncover more about the dark truth about idyllic Cape Grace, and the secrets surrounding its famous founding Mayor while they're at it...*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d872ff00-ffba-4682-94c6-53611f60965b" alt="cover-image" width="200"/>
+
+- [Hollow](https://www.amazon.com/gp/product/B0B9R8CLYJ)
+
+    >*Isabel "Izzy" Crane and her family just moved to the infamous Sleepy Hollow, but as a slick skeptic from the city, she's too busy adjusting to the change of scenery for ghost stories -- they're not real, after all. Then she meets Vicky Van Tassel (yes, THAT Van Tassel) and the loveable prankster Croc Byun. Vicky's weariness with the legend turns to terror when the Horseman himself shows up, along with a curse set on destroying the Van Tassel line. Now, they have only until Halloween night to break the curse. What an inconvenient time for Izzy to develop a massive crush on Vicky! Can Izzy and her new friends uncover the mystery of the Headless Horseman before it's too late?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d872ff00-ffba-4682-94c6-53611f60965b" alt="cover-image" width="200"/>
+
+- [Mamo](https://www.amazon.com/Mamo-Sas-Milledge-ebook/dp/B09T2Y3ZLN)
+
+    >*Orla O'Reilly, the youngest in a long line of hedge witches, is compelled to return home after the death of her grandmother, Mamo. In the wake of her Mamo's passing, seas are impossible to fish, crops have soured, even Jo Manalo's attic is taken over by a poltergeist! And to make matter worse it appears that the cause is Mamo, or her mislaid bones that is. Can Orla shoulder the responsibility of quieting her Mamo's spirit, saving her hometown, and will she have to step up as the new witch of Haresden like Mamo always wanted?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a7da8c6a-a0da-4b7e-a8fb-ea3cbea3df65" alt="cover-image" width="200"/>
+
+- [Eat the Rich](https://www.amazon.com/Eat-Rich-Sarah-Gailey-ebook/dp/B09X9613SZ)
+
+    >*With law school and her whole life ahead of her, Joey plans to spend the summer with her boyfriend Astor at his seemingly perfect family home. But beneath all the affluent perfection lies a dark, deadly rot... something all the locals live in quiet fear of.*
+    >
+    >*As summer lingers, Joey uncovers the macabre history of Crestfall Bluffs, and the ruthlessness and secrecy lying in wait behind the idyllic lives of the one percent. Who can Joey save? Who wants to be saved? And can she even survive to tell the tale?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a6cf7cec-73d1-4099-8897-ebff4ea59656" alt="cover-image" width="200"/>
+
+- [Juliet Takes a Breath](https://www.amazon.com/Juliet-Takes-Breath-Gabby-Rivera/dp/1626012512)
+
+    >*Inga Muscio, author of Cunt Juliet Milagros Palante is leaving the Bronx and headed to Portland, Oregon. She just came out to her family and isn't sure if her mom will ever speak to her again. But Juliet has a plan, sort of, one that's going to help her figure out this whole "Puerto Rican lesbian" thing. She's interning with the author of her favorite book: Harlowe Brisbane, the ultimate authority on feminism, women's bodies, and other gay-sounding stuff. Will Juliet be able to figure out her life over the course of one magical summer? Is that even possible? Or is she running away from all the problems that seem too big to handle? With more questions than answers, Juliet takes on Portland, Harlowe, and most importantly, herself.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/33facc4e-bc45-4672-9721-e94a7dd09a9a" alt="cover-image" width="200"/>
+
+- [Joyride](https://www.amazon.com/dp/B07JKM4F7Z)
+
+    >*In the future, Earth sucks. The stars have been blocked out for so long that people have forgotten there was anything else besides the dumb World Government Alliance watching over them, training children to join the militarized Allied Youth and eliminating all resistance with a giant ray gun. Uma Akkolyte is a girl who shoots first and leaps before she looks, and when she gets a strange message from outside the barricades of SafeSky, she jacks a spaceship and punches through the stratosphere with an unlikely crew of teens who are totally not ready for what they’re about to find.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/baa81e89-f1ef-4700-8bb7-e44532e15f97" alt="cover-image" width="200"/>
+
+- [Lumberjanes](https://www.amazon.com/dp/B07JGQBL77)
+
+    >*Jo, April, Mal, Molly and Ripley are five best pals determined to have an awesome summer together...and they're not gonna let any insane quest or an array of supernatural critters get in their way!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/70a2b06c-c118-476d-b5d8-72ffe768e780" alt="cover-image" width="200"/>
+
+- [Goldie Vance](https://www.amazon.com/dp/B07JKGH9KQ)
+
+    >*In a timeless story, 16-year-old Marigold "Goldie" Vance lives at a Florida resort with her dad, who manages the place. Her mom, who divorced her dad years ago, works as a live mermaid at a club downtown. Goldie has an insatiable curiosity, which explains her dream to one day become the hotel's in-house detective. When Charles, the current detective, encounters a case he can't crack, he agrees to mentor Goldie in exchange for her help solving the mystery utilizing her smarts, random skills, and connections with the hotel staff and various folks in town.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/44e71dc7-c7ac-494d-bf9c-dabcb4e20f8f" alt="cover-image" width="200"/>
+
+- [Save Yourself!](https://www.amazon.com/gp/product/B09S3FM6JV)
+
+    >*Aoe, Thel, and Gen, better known as The Lovely Trio, first burst onto the scene five years ago when they saved Earth from a surprise space monster attack.*
+    >
+    >*As a result, everyone idolizes them as super-heroic pop icon magical girls, including Gigi, whose brother died as a bystander in one of their battles. But when Gigi witnesses the Lovely Trio battling a monster firsthand, she sees something that causes her to question everything she thought she ever knew about her heroes, and the "monsters" they fight, who may not be monsters are all!*
 
 ---
 
 **Dark Horse Comics**
 
-- Us
-- Crema
-- Killer Queens
-- The Once and Future Queen
-- The Marble Queen
-- Basil and Oregano
-- Carmilla: The First Vampire (2023)
-- Spell on Wheels (2016)
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/beaf78ea-d854-4102-81cf-4e347b4bb975" alt="cover-image" width="200"/>
 
+- [Us](https://digital.darkhorse.com/books/a5915dc5de134fd2968026f14a8162c6/us)
+
+    >*Us is Sara and Diana's love story, as well as the story of Diana's gender transition. Full of humor, heartache, and the everyday triumphs and struggles of identity, this graphic memoir speaks to changing conceptions of the world as well as the self, at the same time revealing that some things don't really have to change.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/39f9f5e8-0674-4fd6-9f77-280d67cf6685" alt="cover-image" width="200"/>
+
+- [Crema](https://www.darkhorse.com/Books/3008-797/Crema-TPB)
+
+    >*Esme, a barista, feels invisible, like a ghost . . . also, when Esme drinks too much coffee she actually sees ghosts. Yara, the elegant heir to a coffee plantation, is always seen, but only has eyes for Esme. Their world is turned upside down when the strange ghost of an old-world nobleman begs Esme to take his letter from New York City to a haunted coffee farm in Brazil, to reunite him with his lost love of a century ago. Bringing sinister tidings of unrequited love.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/419a94ac-e300-417e-926e-3acfb79c4c35" alt="cover-image" width="200"/>
+
+- [Killer Queens](https://www.darkhorse.com/Books/3007-742/Killer-Queens-TPB#prettyPhoto)
+
+    >*Meet Max & Alex. Reformed intergalactic assassins-for-hire. On the run. Also super gay. Their former boss--a fluffy monkey with a jetpack--is hot on their tail to take back his stolen ship. They gotta eat (tacos preferably), so they take a mission from Alex's old flame. Your standard no-kill, casualty-free kidnapping recovery from a nearby moon. Only complication? Half the moon is ruled by a fascist dictator hostile to foreigners. They're the Killer Queens, so what could possibly go wrong?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/e60cc2d6-a30d-4fd5-b436-3a1532b087a8" alt="cover-image" width="200"/>
+
+- [The Once and Future Queen](https://www.darkhorse.com/Books/3000-023/The-Once-and-Future-Queen-TPB)
+
+    >*t's out with the old myths and in with the new as a nineteen-year-old chess prodigy pulls Excalibur from the stone and becomes queen. Now magic, romance, Fae, Merlin, and more await her! Lend her your axe as the creators of Amelia Cole start a new age of adventure!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/33ebdf01-5f48-41b9-84df-72a0eac5691c" alt="cover-image" width="200"/>
+
+- [The Marble Queen](https://www.darkhorse.com/Books/3007-454/The-Marble-Queen-TPB)
+
+    >*Princess Amelia's kingdom, Marion, is in shambles after months of their trade routes being ravaged by pirates, and now, it seems the only option left is for her to save it through a marriage alliance. When she gets an exorbitant offer from the royalty of Iliad—a country shrouded in mystery—Amelia accepts without question and leaves her home to begin a new life.*
+    >
+    >*But she lands on Iliad's shores to find that her betrothed isn't the country's prince but the recently coronated Queen Salira.*
+    >
+    >*Shocked, Amelia tries to make sense of her situation and her confused heart: Salira has awakened strange new feelings inside her, but something dark hides behind the queen's sorrowful eyes. Amelia must fight the demons of her own anxiety disorder before she can tackle her wife's, all while war looms on the horizon.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a3736d79-4840-4531-8e7f-fc6941904476" alt="cover-image" width="200"/>
+
+- [Basil and Oregano](https://www.darkhorse.com/Books/3009-200/Basil-and-Oregano-TPB)
+
+    >*Porta Bella Magiculinary Academy is the finest school for the art of cooking with magic, and Basil Eyres is determined to be the top student. On the first day of her senior year, Arabella Oregano, the daughter of a renowned chef, joins the academy for her senior year as well. The two are instantly smitten with each other, but Basil senses theres something Arabella is hiding from her. Still, the two work together to stand out from the class as the end of year culinary festival approaches. But when Arabella's secret is reveled, Basil is faced with the hardest decision of her life, which has the potential to throw her future aspirations in jeopardy.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a0836b5e-d6b3-49c9-b22f-0de760f612f9" alt="cover-image" width="200"/>
+
+- [Carmilla: The First Vampire](https://www.darkhorse.com/Books/3010-192/Carmilla-The-First-Vampire-TPB)
+
+    >*At the height of the Lunar New Year, an idealistic social worker turns detective when she discovers young, homeless LGBTQ+ women are being murdered and no one, especially the police, seems to care. A series of clues points her to Carmilla's, a mysterious nightclub in the heart of her neighborhood, Chinatown. There she falls for the next likely target, landing her at the center of a real-life horror story--and face-to-face with illusions about herself, her life, and her hidden past.*
 
 ---
 
 **DC**
 
-- Galaxy
-- Crush & Lobo
-- Batwoman
-- Harley Quinn
-- Poison Ivy
-- I am not Starfire
-- Madame Xanadu
+---
+<img src="https://static.dc.com/dc/files/default_images/GALAXY_TPS_Cv_62572336a01181.87778119.jpg?w=640" alt="cover-image" width="200"/>
+
+- [Galaxy](https://www.dc.com/graphic-novels/galaxy-the-prettiest-star)
+
+    >*Taylor Barzelay has the perfect life. Good looks, good grades, a starting position on the basketball team, a loving family, even an adorable corgi. Every day in Taylor's life is perfect. And every day is torture.*
+    >
+    >*Taylor is actually the Galaxy Crowned, an alien princess from the planet Cyandii, and one of the few survivors of an intergalactic war. For six long, painful years, Taylor has accepted her duty to remain in hiding as a boy on Earth.*
+    >
+    >*That all changes when Taylor meets Metropolis girl Katherine “call me Kat” Silverberg, whose confidence is electrifying. Suddenly, Taylor no longer wants to hide, even if exposing her true identity could attract her greatest enemies. From the charming and brilliant mind behind the popular podcast The Voice of Free Planet X, Jadzia Axelrod, and with stunningly colorful artwork by Jess Taylor comes the story of a girl in hiding who must face her fears to see herself as others see her: the prettiest star.*
+
+---
+<img src="https://static.dc.com/dc/files/default_images/CRUSH_LOBO%2520%2528Cover%2529_629120c2513eb2.48000676.jpg?w=640" alt="cover-image" width="200"/>
+
+- [Crush & Lobo](https://www.dc.com/graphic-novels/crush-and-lobo)
+
+    >*In case anyone was wondering, Crush is doing just fine, actually. Sure, she effectively quit being a Teen Titan. And okay, her relationship with her girlfriend, Katie, is kind of on the rocks, if you want to get all technical about it. Oh, and she recently found out her dad, Lobo, is in space jail. But that's cool, because he's the worst. Okay, so maybe Crush has some stuff. But that doesn't mean she's gonna do anything about it, like run away from all her problems by going to space to confront her dad…right? Collects Crush & Lobo #1-8.*
+
+---
+<img src="https://static.dc.com/dc/files/default_images/BW_ELEGY_194-001_HD_5ba1380a1c1172.47375978.jpg?w=640" alt="cover-image" width="200"/>
+
+
+- [Batwoman: Elegy](https://www.dc.com/graphic-novels/detective-comics-1937/batwoman-elegy)
+
+    >*In these tales from DETECTIVE COMICS #854-860, now available in trade paperback, Batwoman battles a madwoman known only as Alice, inspired by Alice in Wonderland, who sees her life as a fairy tale and everyone around her as expendable extras! Batwoman must stop Alice from unleashing a toxic death cloud over all of Gotham City — but Alice has more up her sleeve than just poison, and Batwoman's life will never be the same again.*
+
+---
+<img src="https://static.dc.com/dc/files/default_images/batwoman_vol6_unknowns_5b0351e05c1bf6.11931476.jpg?w=640" alt="cover-image" width="200"/>
+
+- [Batwoman(New 52)](https://www.dc.com/graphic-novels/batwoman-2011/batwoman-vol-1-hydrology)
+
+    >*As a part of the acclaimed DC Comics – The New 52, Batwoman's new series begins from the team of J.H. Williams III and W. Haden Blackman with this title collecting issues #0-5!Who or what is stealing children from the barrio, and for what vile purpose? Will Kate train her cousin, Bette Kane (a.k.a. Flamebird), as her sidekick? How will she handle unsettling revelations about her father, Colonel Jacob Kane? And why is a certain government agency suddenly taking an interest in her? These are some of the questions that will be answered in these spectacular stories!*
+
+---
+<img src="https://static.dc.com/dc/files/default_images/BWv3_FHK_168-001_HD_5c33e6273528f3.61754911.jpg?w=640" alt="cover-image" width="200"/>
+
+- [Batwoman: Rebirth](https://www.dc.com/graphic-novels/batwoman-2017/batwoman-vol-1-the-many-arms-of-death)
+
+    >*The newest chapter of Batwoman's crime-fighting career begins here! Monster Venom is the hottest new bioweapon on the market...and to break up the syndicate spreading it around the world, Batwoman's going to have to return to the place where she spent some of her darkest hours!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/615ca350-c077-4d3d-b7d8-cb8e4bed525c" alt="cover-image" width="200"/>
+
+- [Harley Quinn: The Animated Series - The Eat. BANG! Kill Tour](https://www.dcuniverseinfinite.com/comics/book/harley-quinn-the-animated-series-the-eat-bang-kill-tour-1/9ec8e5e3-74e5-4a1c-b274-9f5a0c8a3d20/c)
+
+    >*Picking up directly from the cliffhanger ending of Harley Quinn: The Animated Series, Harley and Ivy are on the run after narrowly escaping Ivy's ill-fated wedding to Kite Man. But who is chasing them, and where will this Thelma-and-Louise journey end? It all starts here!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/479d727e-cb95-4d37-924b-d826025847f0" alt="cover-image" width="200"/>
+
+- [Harley Quinn: The Animated Series - Legion of Bats!](https://www.dcuniverseinfinite.com/comics/book/harley-quinn-the-animated-series-legion-of-bats-1/3f13ad6f-5c7d-44ad-a85b-cea9de101f23/c)
+
+    >*When last we checked in with Harley Quinn, she ate, she banged, and she killed—but now it’stime for something a little different. Fresh out of the events of Harley Quinn: The Animated Seriesseason 3, Harley has found herself a part of a highly unlikely team—the Bat-Family! Meanwhile, Poison Ivy has found herself prepping for her new job—leader of the Legion of Doom! But while Harley and Ivy adjust to their respective new roles, a ghost from Ivy’s past enters the fray and threatens the relationship between everyone’s favorite clown/plant couple!*
+
+---
+<img src="https://static.dc.com/dc/files/default_images/IAmNotStarfire.Cv_5fce76d07e10d1.45911283.jpg?w=640" alt="cover-image" width="200"/>
+
+- [I Am Not Starfire](https://www.dc.com/graphic-novels/i-am-not-starfire)
+
+    >*Seventeen-year-old Mandy, daughter of Starfire, is NOT like her mother. Starfire is gorgeous, tall, sparkly, and a hero. Mandy is NOT a sparkly superhero. Mandy has no powers, is a kid who dyes her hair black and hates everyone but her best friend Lincoln. To Starfire, who is from another planet, Mandy seems like an alien, like some distant angry light years away moon.*
+    >
+    >*And it's possible Mandy is even more distant lately, ever since she walked out on her S.A.T.s. Which, yeah, her mom doesn't know.*
+    >
+    >*Everyone thinks Mandy needs to go to college and become whoever you become at college, but Mandy has other plans. Mandy's big plan is that she's going to move to France and...do whatever people do in France. But then everything changes when she gets partnered with Claire for a school project. Mandy likes Claire (even if she denies it, heartily and intensely). A lot.*
+    >
+    >*How do you become the person you're supposed to be when you don't know what that is? How do you become the person you're supposed to be when the only thing you're sure of is what you're not?*
+
+---
+<img src="https://static.dc.com/dc/files/default_images/13871_900x1350.jpg?w=640" alt="cover-image" width="200"/>
+
+- [Madame Xanadu Vol. 2: Exodus Noir](https://www.dc.com/graphic-novels/madame-xanadu-2008/madame-xanadu-exodus-noir-vol-2)
+
+    >*Weaving a mystery that jumps from the Spanish Inquisition to 1940s New York City, long-buried secrets are revealed as Madame Xanadu investigates a murder 500 years in the making. Collected from issues #11-15 of the hit Vertigo series.*
 
 ---
 
 **Fantagraphics**
 
-- I Am Not Okay With This
-- Stone Fruit
-- The Heavy Bright
-- Men I Trust
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/bbdf699e-42e2-4959-a344-a42c8c7d6d6d" alt="cover-image" width="200"/>
+
+- [I Am Not Okay With This](https://www.fantagraphics.com/products/i-am-not-okay-with-this-expanded-edition)
+
+    >*Sydney seems like a normal 15-year-old freshman. She hangs out underneath the bleachers, listens to music in her friend's car, and gets into arguments with her annoying little brother — but she also has a few secrets she's only shared in her diary. Like how she's in love with her best friend, Dina; the bizarreness of her father's death; and last but not least, there's those painful telekinetic powers that keep popping up at the most inopportune times. Forsman expertly channels teenage ethos and ennui in a style that evokes classic comic strips while telling a powerful story about the intense, and sometimes violent, tug of war between trauma and control.*
+
+---
+<img src="https://images-na.ssl-images-amazon.com/images/S/compressed.photo.goodreads.com/books/1623463559i/55678434.jpg" alt="cover-image" width="200"/>
+
+- [Stone Fruit](https://www.fantagraphics.com/products/stone-fruit)
+
+    >*Bron and Ray are a queer couple who enjoy their role as the fun weirdo aunties to Ray's niece, six-year-old Nessie. Their playdates are little oases of wildness, joy, and ease in all three of their lives, which ping-pong between familial tensions and deep-seeded personal stumbling blocks. As their emotional intimacy erodes, Ray and Bron isolate from each other and attempt to repair their broken family ties — Ray with her overworked, resentful single-mother sister and Bron with her religious teenage sister who doesn't fully grasp the complexities of gender identity. Taking a leap of faith, each opens up and learns they have more in common with their siblings than they ever knew.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4f7b4bb4-32e9-415c-bc61-e3bc7d9c6415" alt="cover-image" width="200"/>
+
+- [The Heavy Bright](https://www.fantagraphics.com/products/stone-fruit)
+
+    >*Once, the world lived in harmony. People trusted and aided each other, dreamed freely, and communed with their ancestors. And then one day the eggs appeared. One thousand black eggs, heavy as pure lead, which by some mystical property, provoked greed and violence in all who came in contact with them. A family of brutish men managed to hoard the eggs and build a misogynistic dynasty that held all of the land in an iron grip. Years later, Arna, an orphaned young woman immune to the beguiling power of the eggs, is charged with a monumental mission: hunt down these formidable men, pilfer their eggs, and release the bright from the heavy. Along the way, she falls for the enchanting Sela, who shows her how beautiful the world can be.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/81b27fa6-8b64-41a7-8ce7-bac7e6f4f345" alt="cover-image" width="200"/>
+
+- [Men I Trust](https://www.fantagraphics.com/products/men-i-trust)
+
+    >*Eliza is a thirtysomething struggling single mother and poet. Sasha, a twentysomething yearning for direction in life, just moved back in with her parents and dabbles as a sex worker. The two strike up an unlikely friendship that, as it veers toward something more, becomes a deeply resonant exploration of how far people are wil­ling to go to find intimacy in a society that is increasingly not conducive to it.*
 
 ---
 
-**First Second**
-
-- On a Sunbeam
-- Spinning
-- Bunt
-- Belle of the Ball
-- The Well
-- Are You Listening
-- Snapdragon
-- Laura Dean Keeps Breaking up With Me 
+**Harper**
 
 ---
 
-**Graphix**
-
-- The Girl and the Sea
+- Squad
+- The Fox Maidens
+- The Hills of Estrella Roja
+- Firebird
+- ParaNorthern 
 
 ---
 
@@ -835,13 +1062,28 @@
 - [Rain](https://imagecomics.com/comics/series/rain)
 - [Bingo Love](https://imagecomics.com/comics/series/bingo-love)
 - [Glory](https://imagecomics.com/comics/series/glory)
-- [Bolero (2022)](https://imagecomics.com/comics/series/bolero)
-- Sunstone
-- Clementine
-- Crowded
-- The Old Guard
-- Hack/Slash
-- Monstress
+- [Sunstone](https://imagecomics.com/comics/series/sunstone)
+- [Clementine](https://imagecomics.com/comics/series/clementine)
+- [Crowded](https://imagecomics.com/comics/series/crowded)
+- [The Old Guard](https://imagecomics.com/comics/series/the-old-guard)
+- [Hack/Slash](https://imagecomics.com/comics/series/hack-slash)
+- [Monstress](https://imagecomics.com/comics/series/monstress)
+- Radiant Pink
+- Drain
+
+
+---
+
+**Macmillian**
+
+- [On a Sunbeam](https://www.onasunbeam.com/)
+- Spinning
+- Bunt
+- Belle of the Ball
+- The Well
+- Are You Listening
+- Snapdragon
+- Laura Dean Keeps Breaking up With Me 
 
 ---
 
@@ -852,6 +1094,7 @@
 - Runaways
 - America (2017)
 - Angela: Queen of Hel (2015)
+- Doctor Aphra
 
 ---
 
@@ -895,10 +1138,31 @@
     >*When the heroic princess Amira rescues the kind-hearted princess Sadie from her tower prison, neither expects to find a true friend in the bargain. Yet as they adventure across the kingdom, they discover that they bring out the very best in the other person. They’ll need to join forces and use all the know-how, kindness, and bravery they have in order to defeat their greatest foe yet: a jealous sorceress, who wants to get rid of Sadie once and for all. Join Sadie and Amira, two very different princesses with very different strengths, on their journey to figure out what “happily ever after” really means—and how they can find it with each other.*
     
 
-- Wet Moon
-- Archival Quality
-- Space Battle Lunchtime (2016)
-- Kim Reaper 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c605d3fc-e11a-4d2c-84b1-11d977286882" alt="cover-image" width="200"/>
+
+- [Wet Moon](https://www.amazon.com/gp/product/B01G2O6YI4) <sup>Not Listed on Oni Press</sup>
+
+    >*As Cleo Lovedrop heads off for college at the local art school, she’s haunted by her melancholic past: a lost love, a lost child. Friends and enemies live their lives around her, as trouble and dissent brews amongst them: an unseen social assailant spreads slander about Cleo, she is forced to deal with her two brusque roommates, and discovers unsolved mysteries about the girl who lived in her room previously. Elsewhere, Trilby deals with unsettled emotional and sexual issues, and keeping her secret habits hidden from everyone. And Audrey comes to the realization that, despite all her efforts, she always causes her friends distress, while Fern, a peculiar, deformed girl who lives in an isolated mansion in the bayous, begins to notice Cleo and her friends. As the moon grows full and lunar rays shine down, lunacy and moon-calves run free.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/dc624def-e4d5-430a-b377-158e15a30fb1" alt="cover-image" width="200"/>
+
+- [Space Battle Lunchtime](https://www.amazon.com/dp/B01LYXEJ6V?ref_=cmx_l_ur_u_u_bs) <sup>Not Listed on Oni Press</sup>
+
+    >*Space Battle Lunchtime is a hit show broadcast all over the universe, and the new season is about to start! When one of the competing chefs drops out at the last minute, an aspiring baker from earth, Peony, gets the opportunity of a lifetime (and a chance at a 20,000 Solarbuck prize!). But is she ready for the cutthroat world of intergalactic cooking?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/596c420b-9f92-4347-93dc-f760c00e31bf" alt="cover-image" width="200"/>
+
+- [Kim Reaper](https://www.amazon.com/Kim-Reaper-Vol-Grim-Beginnings/dp/1620104555) <sup>Not Listed on Oni Press</sup>
+
+    >*Like most university students, Kim works a part-time job to make ends meet. UNLIKE most university students, Kim’s job is pretty dang cool: she’s a grim reaper, tasked with guiding souls into the afterlife.*
+    >
+    >*Like most university students, Becka has a super intense unrequited crush. UNLIKE most university students, Becka’s crush is on a beautiful gothic angel that frequents the underworld. Of course, she doesn’t know that.*
+    >
+    >*Unaware of the ghoulish drama she’s about to step into, Becka finally gathers up the courage to ask Kim on a date! But when she falls into a ghostly portal and interrupts Kim at her job, she sets off a chain of events that will pit the two of them against angry cat-dads, vengeful zombies, and perhaps even the underworld itself. But if they work together, they just might make it… and maybe even get a kiss in the bargain.*
+
 ---
 
 **Penguin Random House**
@@ -952,6 +1216,10 @@
 
 ---
 
+**Scholastic**
+
+---
+
 **Titan**
 
 ---
@@ -960,6 +1228,15 @@
 - [The Cold Ever After](https://titan-comics.com/c/1997-the-cold-ever-after/)
 
     >*“She lost everything when she fell in love with her Queen. Now she has a week to find a missing princess, or she’ll lose it all again… along with her head.”   Ten years after her disgrace and exile, Sir Noelani Mahi’ai – former Royal Champion of the kingdom of Patria Lupi and Queen’s protector – has been hiding under a rock at the bottom of a bottle and hasn’t lifted a sword in all that time. Until one day, the Queen summons Noelani to find her daughter who has mysteriously disappeared the night before her wedding.   Given one week to recover the princess, Noelani is forced to confront a baffling mystery, a terrifying adversary and her own past to save the kingdom. But not everything is as it seems in Patria Lupi, and in seven days she may not have a life to get back on track.*
+
+---
+
+**Vault**
+
+---
+
+- Heathen
+- Submerged
 
 ---
 
