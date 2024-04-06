@@ -103,14 +103,14 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/14f07603-da35-49b6-983d-6a3224bc4ff4" alt="cover-image" width="200"/>
 
-- [How Do I Turn My Best Friend Into My Girlfriend?](https://mangadex.org/title/4de70c96-566b-4cdb-88f4-6c7fd5184991/doushitara-osananajimi-no-kanojo-ni-naremasu-ka) [<sup>Seven Seas - Releasing Mar 19, 2024</sup>](https://sevenseasentertainment.com/series/how-do-i-turn-my-best-friend-into-my-girlfriend/) <sup> - Same Creator as </sup> [<sup>Monologue Woven For You</sup>](https://sevenseasentertainment.com/series/monologue-woven-for-you/)
+- [How Do I Turn My Best Friend Into My Girlfriend?](https://mangadex.org/title/4de70c96-566b-4cdb-88f4-6c7fd5184991/doushitara-osananajimi-no-kanojo-ni-naremasu-ka) [<sup>Seven Seas - New Release on Aug 20, 2024</sup>](https://sevenseasentertainment.com/series/how-do-i-turn-my-best-friend-into-my-girlfriend/) <sup> - Same Creator as </sup> [<sup>Monologue Woven For You</sup>](https://sevenseasentertainment.com/series/monologue-woven-for-you/)
 
     >*Minami and Yuzu have been besties since…well, forever! Or at least that’s what Minami thought. But when some rando confesses to Yuzu, Minami realizes that her feelings might not be what you’d typically call “friendship” anymore. It doesn’t take long for Minami to realize she wants to change their relationship status, but will she be able to muster the courage to confess? Or will she simply be happy being by Yuzu’s side?*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/31a6fe6a-301d-4ab8-a264-4131c769e5ae" alt="cover-image" width="200"/>
 
-- [Miss Kobayashi’s Dragon Maid](https://mangadex.org/title/67b35ba4-9c53-4957-91e7-4f7884e4b412/kobayashi-san-chi-no-maid-dragon) [<sup>Seven Seas - New Release on Mar 26, 2024</sup>](https://sevenseasentertainment.com/series/miss-kobayashis-dragon-maid/)
+- [Miss Kobayashi’s Dragon Maid](https://mangadex.org/title/67b35ba4-9c53-4957-91e7-4f7884e4b412/kobayashi-san-chi-no-maid-dragon) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/miss-kobayashis-dragon-maid/)
 
     >*Miss Kobayashi is your average office worker who lives a boring life, alone in her small apartment–until she saves the life of a female dragon in distress. The dragon, named Tohru, has the ability to magically transform into an adorable human girl (albeit with horns and a long tail!), who will do anything to pay off her debt of gratitude, whether Miss Kobayashi likes it or not. With a very persistent and amorous dragon as a roommate, nothing comes easy, and Miss Kobayashi’s normal life is about to go off the deep end!*
 
@@ -131,7 +131,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ed176334-1620-4ffc-91b5-bc27fa40f38a" alt="cover-image" width="200"/>
 
-- [The Demon Girl Next Door](https://mangadex.org/title/d4ff7502-b5d4-4fd2-845f-c8754b14dd8d/machikado-mazoku) [<sup>Seven Seas - New Release on Jan 28, 2024 - Not Listed as GL</sup>](https://sevenseasentertainment.com/series/the-demon-girl-next-door/)
+- [The Demon Girl Next Door](https://mangadex.org/title/d4ff7502-b5d4-4fd2-845f-c8754b14dd8d/machikado-mazoku) [<sup>Seven Seas - New Release on Jul 29, 2025 - Not Listed as GL</sup>](https://sevenseasentertainment.com/series/the-demon-girl-next-door/)
 
     >*Awakening her dormant abilities as a demon one day, Yoshida Yuko aka Shadow Mistress Yuko, is entrusted with the mission to defeat the Light clan's priestess, a magical girl, by her ancestor Lilith. Yuko meets magical girl Chiyoda Momo through her classmate Sata Anri, and challenges her to a duel, but loses quickly due to her lack of strength.*
 
@@ -211,7 +211,7 @@
 ---
 <img src="https://images.yenpress.com/imgs/9781975379148.jpg?w=408&h=612&type=books&s=03a20715d10b3f6b761ab1d829efb006" alt="cover-image" width="200"/>
 
-- [Murcielago](https://mangadex.org/title/cd355881-6f89-4917-9a57-fc9f75377293/murcielago) [<sup>Yen Press</sup>](https://yenpress.com/series/murcielago)
+- [Murcielago](https://mangadex.org/title/cd355881-6f89-4917-9a57-fc9f75377293/murcielago) [<sup>Yen Press - New Release on Sep 17, 2024</sup>](https://yenpress.com/series/murcielago)
 
     >*Mass murderers may not have much by way of careeer skills, but Kuroko Koumori seems to have landed her dream job as a hitwoman for the Tokyo police! A license to kill other killers? That's some serious job satisfaction, right there!*
 
@@ -232,14 +232,14 @@
 ---
 <img src="https://images.yenpress.com/imgs/9781975375492.jpg?w=408&h=612&type=books&s=b1f98ddfa30525aeb6726da8b07ad780" alt="cover-image" width="200"/>
 
-- [The Executioner and Her Way of Life](https://mangadex.org/title/bed89b51-15d3-44a5-b27a-a13a2f9a6dd8/shokei-shoujo-no-ikiru-michi) [<sup>Yen Press</sup>](https://yenpress.com/series/the-executioner-and-her-way-of-life-manga)
+- [The Executioner and Her Way of Life](https://mangadex.org/title/bed89b51-15d3-44a5-b27a-a13a2f9a6dd8/shokei-shoujo-no-ikiru-michi) [<sup>Yen Press - New Release on Sep 17, 2024</sup>](https://yenpress.com/series/the-executioner-and-her-way-of-life-manga)
 
     >*The Lost Ones are strangers from another world, hailing from a place no one has ever heard of called “Japan.” These wanderers have been associated with catastrophes since many years ago and the solemn duty of exterminating them without remorse falls to Menou, a young Executioner. But when her mission is complicated by a Japanese girl named Akari who refuses to die, Menou embarks on a peculiar journey to find something that can slay even an immortal who insists on traveling with her would-be-killer!*
 
 ---
 <img src="https://images.yenpress.com/imgs/9781975380359.jpg?w=408&h=612&type=books&s=ee0b2078471ae6fd47563ad8466ded9c" alt="cover-image" width="200"/>
 
-- [The Magical Revolution of the Reincarnated Princess and the Genius Young Lady](https://mangadex.org/title/46596dea-95de-40e8-b2b8-4e63aa6acd1a/the-magical-revolution-of-the-reincarnated-princess-and-the-genius-young-lady) [<sup>Yen Press - New Release on Mar 19, 2024</sup>](https://yenpress.com/series/the-magical-revolution-of-the-reincarnated-princess-and-the-genius-young-lady-manga)
+- [The Magical Revolution of the Reincarnated Princess and the Genius Young Lady](https://mangadex.org/title/46596dea-95de-40e8-b2b8-4e63aa6acd1a/the-magical-revolution-of-the-reincarnated-princess-and-the-genius-young-lady) [<sup>Yen Press</sup>](https://yenpress.com/series/the-magical-revolution-of-the-reincarnated-princess-and-the-genius-young-lady-manga)
 
     >*Princess Anisphia may not be able to use magic, but she didn’t let that stop her from developing “magicology,” a unique theory based on memories from her past life. While testing out her new flying broom, she happens across Euphyllia, a magical genius, having her engagement unjustly and publicly broken off. Seeing the tears in Euphyllia’s eyes, Anisphia takes the obvious course of action—kidnapping the girl for herself!*
 
@@ -272,7 +272,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c5ce3de2-af05-4dbd-ba69-86c82cb2a08e" alt="cover-image" width="200"/>
 
-- [Whispering You a Love Song](https://mangadex.org/title/0e8fac17-979e-4e37-8f45-2c334b25d6dd/whisper-me-a-love-song) [<sup>Kodansha - New Release on Mar 26, 2024</sup>](https://kodansha.us/series/whisper-me-a-love-song)
+- [Whispering You a Love Song](https://mangadex.org/title/0e8fac17-979e-4e37-8f45-2c334b25d6dd/whisper-me-a-love-song) [<sup>Kodansha</sup>](https://kodansha.us/series/whisper-me-a-love-song)
 
     >*An adorable new yuri manga for fans of Kase-san and Yamada and Bloom Into You. One day, high school girl Himari sees a girl, Yori, sing in a band, and it awakens feelings she doesn’t understand… but Yori does!*
 
@@ -286,7 +286,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/2b95308f-a5bd-45e5-9feb-b1edc6eabb0d" alt="cover-image" width="200"/>
 
-- [The Moon on a Rainy Night](https://mangadex.org/title/c8a0426d-539b-4f6a-9537-fbccf4962529/the-moon-on-a-rainy-night) [<sup>Kodansha - New Release on Mar 26, 2024</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/) <sup> - Same Creator as </sup> [<sup>Living With My Brother's Wife</sup>](https://global.manga-up.com/manga/33)
+- [The Moon on a Rainy Night](https://mangadex.org/title/c8a0426d-539b-4f6a-9537-fbccf4962529/the-moon-on-a-rainy-night) [<sup>Kodansha</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/) <sup> - Same Creator as </sup> [<sup>Living With My Brother's Wife</sup>](https://global.manga-up.com/manga/33)
 
     >*One rainy night, Saki is rushing to a piano lesson when she crashes into a beautiful, long-haired girl, dropping her sheet music in the process. Saki stutters an apology, but the girl simply hands back her sheet music and leaves without a word. Saki begins her first day of high school the following morning, only to find the stranger from the night before sitting at the desk next to hers. She learns that the girl’s name is Kanon and that she is not quite completely deaf, but very hard of hearing. Though Kanon needs to be close to people to read their lips, she tends to push people away with her icy demeanor. Through one kind gesture, Saki slowly begins breaking down the walls around Kanon, even as she feels something new blossoming within her.*
 
@@ -389,7 +389,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d06198d5-73c9-4ae6-882e-d1ee4b78da40" alt="cover-image" width="200"/>
 
-- [Alter Ego](https://mangadex.org/title/3f7fb508-be22-453a-ba33-2631345b529f/alter-ego) [<sup>Tokyopop - New Release on June 25, 2024</sup>](https://www.amazon.com/Alter-Ego-2-Noel-June/dp/1427876630)
+- [Alter Ego](https://mangadex.org/title/3f7fb508-be22-453a-ba33-2631345b529f/alter-ego) [<sup>Tokyopop - New Release on June 25, 2024</sup>](https://tokyopop.com/collections/alphabetical/products/9781427876638_alter-ego-2-noel-and-june)
 
     >*Noel has always been in love with her best friend Elena, but she's never been able to find the courage to confess her feelings. Then, when her friend starts dating a boy, Noel’s world collapses as she sees her chance at love slipping away.*
 
@@ -402,7 +402,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/2153f4cc-ea5c-4e35-8f23-132cc57e5b1f" alt="cover-image" width="200"/>
 
-- [Grand Slam Romance](https://www.abramsbooks.com/product/grand-slam-romance-grand-slam-romance-book-1_9781419758010/) [<sup>New Release on May 14, 2024</sup>](https://store.abramsbooks.com/products/grand-slam-romance-major-league-hotties-grand-slam-romance-book-2)
+- [Grand Slam Romance](https://www.abramsbooks.com/product/grand-slam-romance-grand-slam-romance-book-1_9781419758010/) [<sup>Abrams Books - New Release on May 14, 2024</sup>](https://store.abramsbooks.com/products/grand-slam-romance-major-league-hotties-grand-slam-romance-book-2)
 
     >*Mickey Monsoon is the hotshot pitcher for the Belle City Broads, and their team is poised to sweep the league this season. But Mickey is thrown off their game when Astra Maxima shows up to catch for the Gaiety Gals, the Broads’ fiercest rival. Years ago, Mickey and Astra were best friends . . . and maybe more. That was until Astra unceremoniously dumped Mickey to become a softball wunderkind at a private girl’s school in Switzerland. Now, Astra is flirty, arrogant, and reckless on the field—everything the rule-abiding Mickey hates.*
     >
@@ -500,7 +500,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/dda1f95f-fe98-49fb-a35f-0ab67ef3d42a" alt="cover-image" width="200"/>
 
-- [Tegan and Sara](https://us.macmillan.com/series/teganandsara)
+- [Tegan and Sara](https://us.macmillan.com/series/teganandsara)  [<sup>Macmillan Publishers - New Release on Oct 01, 2024</sup>](https://us.macmillan.com/series/teganandsara)
 
     >*Before Tegan and Sara took the music world by storm, the Quins were just two identical twins trying to find their place in a new home and new school. From first crushes to the perils of puberty, surviving junior high is something the sisters plan to face side by side, just like they've always faced things. But growing up also means growing apart, as Tegan and Sara make different friends and take separate paths to understanding their queerness. For the first time ever, they ask who one sister is without the other.*
     >
