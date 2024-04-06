@@ -397,6 +397,19 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
 ---
 
+**Abrams Books**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/2153f4cc-ea5c-4e35-8f23-132cc57e5b1f" alt="cover-image" width="200"/>
+
+- [Grand Slam Romance](https://www.abramsbooks.com/product/grand-slam-romance-grand-slam-romance-book-1_9781419758010/) [<sup>New Release on May 14, 2024</sup>](https://store.abramsbooks.com/products/grand-slam-romance-major-league-hotties-grand-slam-romance-book-2)
+
+    >*Mickey Monsoon is the hotshot pitcher for the Belle City Broads, and their team is poised to sweep the league this season. But Mickey is thrown off their game when Astra Maxima shows up to catch for the Gaiety Gals, the Broads’ fiercest rival. Years ago, Mickey and Astra were best friends . . . and maybe more. That was until Astra unceremoniously dumped Mickey to become a softball wunderkind at a private girl’s school in Switzerland. Now, Astra is flirty, arrogant, and reckless on the field—everything the rule-abiding Mickey hates.*
+    >
+    >*Astra thinks Mickey’s cute and wants to fool around, despite their rocky history and the trail of jilted softballers that Astra leaves in her wake. Too bad the only thing Mickey wants is vengeance for their broken heart and wounded pride! But even they have to admit—Astra is a certified babe. And that’s not all: Astra isn’t just a softball superstar, she’s a full-fledged magical girl.*
+
+---
+
 **Dark Horse Comics**
 
 ---
@@ -409,7 +422,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/016b2842-94ea-4d12-819c-009724d7edc7" alt="cover-image" width="200"/>
 
-- [The Legend of Korra](https://digital.darkhorse.com/series/450/the-legend-of-korra) [<sup>Next Release - Sep 4, 2024</sup>](https://leagueofcomicgeeks.com/comics/series/171781/the-legend-of-korra-mystery-of-penquan-island)
+- [The Legend of Korra](https://digital.darkhorse.com/series/450/the-legend-of-korra) [<sup>New Release on Sep 4, 2024</sup>](https://leagueofcomicgeeks.com/comics/series/171781/the-legend-of-korra-mystery-of-penquan-island)
 
     >*Mystery of Penquan Island is an upcoming, standalone graphic novel that will focus on Mako.*
 
@@ -431,6 +444,67 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 <img src="https://static.dc.com/2023-11/OTSDRS_Cv1_00111_DIGITAL.jpg?w=640" alt="cover-image" width="200"/>
 
 - [OUTSIDERS](https://www.dc.com/comics/outsiders-2023/outsiders-5) <sup>Batwoman Broke Up With Her Girlfriend</sup>
+
+---
+
+**IDW**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/479ad82d-d703-4d98-80f8-beaf9d1e855a" alt="cover-image" width="200"/>
+
+- [Cosmoknights](https://www.cosmoknights.space/) [<sup>Published by IDW, but Distributed by Penguin now, I think?</sup>](https://prhcomics.com/series-landing-page/?seriesCode=KNI&seriesName=Cosmoknights)
+
+    >*Pan's life used to be very small. Work in her dad's body shop, sneak out with her friend Tara to go dancing, and watch the skies for freighter ships. It didn't even matter that Tara was a princess... until one day it very much did matter, and Pan had to say goodbye forever. Years later, when a charismatic pair of off-world gladiators show up on her doorstep, she finds that life may not be as small as she thought. On the run and off the galactic grid, Pan discovers the astonishing secrets of her neo-medieval world... and the intoxicating possibility of burning it all down.*
+
+- [Cooking With Monsters](https://www.penguinrandomhouse.com/books/731219/cooking-with-monsters-book-one-the-beginners-guide-to-culinary-combat-by-alsaqa-jordan/) [<sup>Published by IDW, but Distributed by Penguin now, I think?</sup>](https://www.penguinrandomhouse.com/books/731219/cooking-with-monsters-book-one-the-beginners-guide-to-culinary-combat-by-alsaqa-jordan) <sup> - </sup> [<sup>New Release on Oct 22, 2024</sup>](https://www.penguinrandomhouse.com/books/746745/cooking-with-monsters-book-2-harm-to-table-by-jordan-alsaqa/)
+
+    >*Hana Ozawa is the newest face at the Gourmand Academy of Culinary Combat, a school that will teach her how to fight monsters AND how to turn them into delicious meals. Hana is a natural, but so are her classmates, and she struggles to keep up—she’s gotta stand out, especially if she wants to impress the warrior chef who saved her life as a child. Throw in a crush on a formidable lady rival and a dash of multicultural cuisine, and this unique and hilarious story is sure to hit the spot!*
+
+---
+
+**Image Comics**
+
+*Warning: Image Schedule*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3206f818-cf9d-4535-b8d4-e94a87b273aa" alt="cover-image" width="200"/>
+
+- [Clementine](https://imagecomics.com/comics/series/clementine)
+
+    >*The trilogy marks the graphic novel debut of Clementine, star of the massively successful Telltale Games video game. In Book One, Clementine discovers new allies, new rivals, and new love. But as the group tries to build a walker-free settlement in an abandoned ski resort, they soon discover that the biggest threat to their survival...is each other.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/40e40ef1-4391-432d-82df-32f0c22bf452" alt="cover-image" width="200"/>
+
+- [Crowded](https://imagecomics.com/comics/series/crowded)
+
+    >*Ten minutes in the future, the world runs on an economy of job shares and apps, including Reapr: a crowdfunding platform to fund assassinations. Charlie Ellison leads a quiet, normal life until she's suddenly targeted by a million-dollar Reapr campaign. Hunted by all of Los Angeles, Charlie hires Vita, the lowest-rated bodyguard on the Dfend app. As the campaign picks up speed, they'll have to figure out who wants Charlie dead before the campaign's 30 days-or their lives-are over.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/5278f82a-94b8-4dff-97ca-71b80645274b" alt="cover-image" width="200"/>
+
+- [The Old Guard](https://imagecomics.com/comics/series/the-old-guard)
+
+    >*Trapped in an immortality without explanation, Andromache of Scythia - 'Andy' - and her comrades ply their trade for those who can find-and afford-their services. But in the 21st century, immortality is a hard secret to keep, and when you live long enough, you learn that there are many fates worse than death.*
+
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c5504593-0049-4dde-a320-9b1408c7c8df" alt="cover-image" width="200"/>
+
+- [Monstress](https://imagecomics.com/comics/series/monstress)
+
+    >*Steampunk meets Kaiju in this original fantasy epic for mature readers, as young Maika risks everything to control her psychic link with a monster of tremendous power, placing her in the center of a devastating war between human and otherworldly forces.*
+
+---
+
+**Macmillan Publishers**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/dda1f95f-fe98-49fb-a35f-0ab67ef3d42a" alt="cover-image" width="200"/>
+
+- [Tegan and Sara](https://us.macmillan.com/series/teganandsara)
+
+    >*Before Tegan and Sara took the music world by storm, the Quins were just two identical twins trying to find their place in a new home and new school. From first crushes to the perils of puberty, surviving junior high is something the sisters plan to face side by side, just like they've always faced things. But growing up also means growing apart, as Tegan and Sara make different friends and take separate paths to understanding their queerness. For the first time ever, they ask who one sister is without the other.*
+    >
+    >*Set in the present day, this effervescent blend of fiction and autobiography, with artwork from Eisner Award–winner Tillie Walden, offers a glimpse at the twin sisters before they became indie-pop icons, exploring their shifting relationship, their own experiences coming out, and the first steps of their musical journey.*
 
 ---
 
