@@ -456,6 +456,9 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*Pan's life used to be very small. Work in her dad's body shop, sneak out with her friend Tara to go dancing, and watch the skies for freighter ships. It didn't even matter that Tara was a princess... until one day it very much did matter, and Pan had to say goodbye forever. Years later, when a charismatic pair of off-world gladiators show up on her doorstep, she finds that life may not be as small as she thought. On the run and off the galactic grid, Pan discovers the astonishing secrets of her neo-medieval world... and the intoxicating possibility of burning it all down.*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/dab60cd7-3257-4019-9efa-beb42585f8f8" alt="cover-image" width="200"/>
+
 - [Cooking With Monsters](https://www.penguinrandomhouse.com/books/731219/cooking-with-monsters-book-one-the-beginners-guide-to-culinary-combat-by-alsaqa-jordan/) [<sup>Published by IDW, but Distributed by Penguin now, I think?</sup>](https://www.penguinrandomhouse.com/books/731219/cooking-with-monsters-book-one-the-beginners-guide-to-culinary-combat-by-alsaqa-jordan) <sup> - </sup> [<sup>New Release on Oct 22, 2024</sup>](https://www.penguinrandomhouse.com/books/746745/cooking-with-monsters-book-2-harm-to-table-by-jordan-alsaqa/)
 
     >*Hana Ozawa is the newest face at the Gourmand Academy of Culinary Combat, a school that will teach her how to fight monsters AND how to turn them into delicious meals. Hana is a natural, but so are her classmates, and she struggles to keep up—she’s gotta stand out, especially if she wants to impress the warrior chef who saved her life as a child. Throw in a crush on a formidable lady rival and a dash of multicultural cuisine, and this unique and hilarious story is sure to hit the spot!*
@@ -487,6 +490,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
     >*Trapped in an immortality without explanation, Andromache of Scythia - 'Andy' - and her comrades ply their trade for those who can find-and afford-their services. But in the 21st century, immortality is a hard secret to keep, and when you live long enough, you learn that there are many fates worse than death.*
 
+---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c5504593-0049-4dde-a320-9b1408c7c8df" alt="cover-image" width="200"/>
 
 - [Monstress](https://imagecomics.com/comics/series/monstress)
