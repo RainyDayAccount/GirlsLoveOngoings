@@ -760,7 +760,7 @@
 *I think there's an issue with their website, listing amazon links for now.*
 
 ---
-<img src="](https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/e9e18348-8a3d-44b9-bac4-75801beaf43e" alt="cover-image" width="200"/>
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/e9e18348-8a3d-44b9-bac4-75801beaf43e" alt="cover-image" width="200"/>
 
 - [The Spire](https://www.amazon.com/Spire-Simon-Spurrier/dp/160886913X)
 
@@ -865,7 +865,7 @@
 
 ---
 
-** Comics**
+**Dark Horse Comics**
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/beaf78ea-d854-4102-81cf-4e347b4bb975" alt="cover-image" width="200"/>
@@ -1183,27 +1183,6 @@
 - [Sunstone](https://imagecomics.com/comics/series/sunstone)
 
     >*Two women deal with modern themes of sex, relationships, and fetishism in this erotic romantic comedy. So beware all who enter, because, to quote a few hundred thousand readers on DeviantArt: "I'm not into BDSM...but this story...I get it."*
-
----
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3206f818-cf9d-4535-b8d4-e94a87b273aa" alt="cover-image" width="200"/>
-
-- [Clementine](https://imagecomics.com/comics/series/clementine)
-
-    >*The trilogy marks the graphic novel debut of Clementine, star of the massively successful Telltale Games video game. In Book One, Clementine discovers new allies, new rivals, and new love. But as the group tries to build a walker-free settlement in an abandoned ski resort, they soon discover that the biggest threat to their survival...is each other.*
-
----
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/40e40ef1-4391-432d-82df-32f0c22bf452" alt="cover-image" width="200"/>
-
-- [Crowded](https://imagecomics.com/comics/series/crowded)
-
-    >*Ten minutes in the future, the world runs on an economy of job shares and apps, including Reapr: a crowdfunding platform to fund assassinations. Charlie Ellison leads a quiet, normal life until she's suddenly targeted by a million-dollar Reapr campaign. Hunted by all of Los Angeles, Charlie hires Vita, the lowest-rated bodyguard on the Dfend app. As the campaign picks up speed, they'll have to figure out who wants Charlie dead before the campaign's 30 days-or their lives-are over.*
-
----
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/5278f82a-94b8-4dff-97ca-71b80645274b" alt="cover-image" width="200"/>
-
-- [The Old Guard](https://imagecomics.com/comics/series/the-old-guard)
-
-    >*Trapped in an immortality without explanation, Andromache of Scythia - 'Andy' - and her comrades ply their trade for those who can find-and afford-their services. But in the 21st century, immortality is a hard secret to keep, and when you live long enough, you learn that there are many fates worse than death.*
     
 - [Radiant Pink](https://imagecomics.com/comics/series/radiant-pink)
 - [Drain](https://www.amazon.com/Drain-v-C-B-Cebulski/dp/1582407525)
