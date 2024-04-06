@@ -865,7 +865,7 @@
 
 ---
 
-**Dark Horse Comics**
+** Comics**
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/beaf78ea-d854-4102-81cf-4e347b4bb975" alt="cover-image" width="200"/>
@@ -953,7 +953,7 @@
 ---
 <img src="https://static.dc.com/dc/files/default_images/batwoman_vol6_unknowns_5b0351e05c1bf6.11931476.jpg?w=640" alt="cover-image" width="200"/>
 
-- [Batwoman(New 52)](https://www.dc.com/graphic-novels/batwoman-2011/batwoman-vol-1-hydrology)
+- [Batwoman](https://www.dc.com/graphic-novels/batwoman-2011/batwoman-vol-1-hydrology)
 
     >*As a part of the acclaimed DC Comics – The New 52, Batwoman's new series begins from the team of J.H. Williams III and W. Haden Blackman with this title collecting issues #0-5!Who or what is stealing children from the barrio, and for what vile purpose? Will Kate train her cousin, Bette Kane (a.k.a. Flamebird), as her sidekick? How will she handle unsettling revelations about her father, Colonel Jacob Kane? And why is a certain government agency suddenly taking an interest in her? These are some of the questions that will be answered in these spectacular stories!*
 
@@ -1035,41 +1035,178 @@
 **Harper**
 
 ---
+<img src="https://www.harpercollins.com/cdn/shop/files/9780062943149.jpg?v=1712416967&width=350" alt="cover-image" width="200"/>
 
-- Squad
-- The Fox Maidens
-- The Hills of Estrella Roja
-- Firebird
-- ParaNorthern 
+- [Squad](https://www.harpercollins.com/products/squad-maggie-tokuda-hall?variant=33051647508514)
+
+    >*When Becca transfers to a high school in an elite San Francisco suburb, she’s worried she’s not going to fit in. To her surprise, she’s immediately adopted by the most popular girls in school. At first glance, Marley, Arianna, and Mandy are perfect. But at a party under a full moon, Becca learns that they also have a big secret.*
+    >
+    >*Becca’s new friends are werewolves. Their prey? Slimy boys who take advantage of unsuspecting girls. Eager to be accepted, Becca allows her friends to turn her into a werewolf, and finally, for the first time in her life, she feels like she truly belongs.*
+    >
+    >*But then things get complicated. As their pack begins to buckle under the pressure, their moral high ground gets muddier and muddier—and Becca realizes that she might have feelings for one of her new best friends.*
+
+---
+<img src="https://www.harpercollins.com/cdn/shop/files/9780062685124.jpg?v=1712404683&width=350" alt="cover-image" width="200"/>
+
+- [The Fox Maidens](https://www.harpercollins.com/products/the-fox-maidens-robin-ha)
+
+    >*Kai Song dreams of being a warrior. She wants to follow in the footsteps of her beloved father, the commander of the Royal Legion. But while her father believes in Kai and trains her in martial arts, their society isn’t ready for a girl warrior.*
+    >
+    >*Still, Kai is determined. But she is plagued by rumors that she is the granddaughter of Gumiho, the infamous nine-tailed fox demon who was killed by her father years before.*
+    >
+    >*Everything comes crashing down the day Kai learns the deadly secret about her mother’s past. Now she must come to terms with the truth about her identity and take her destiny into her own hands. As Kai desperately searches for a way to escape her fate, she comes to find compassion, and even love, in the most unexpected places.*
+
+---
+<img src="https://www.harpercollins.com/cdn/shop/files/9780358567028.jpg?v=1712405452&width=350" alt="cover-image" width="200"/>
+
+- [The Hills of Estrella Roja](https://www.harpercollins.com/products/the-hills-of-estrella-roja-ashley-robin-franklin?variant=40765912875042)
+
+    >*When college freshman Kat Fields receives a mysterious email urging her to visit a relatively unknown Texas town with a history of witchcraft, strange sightings, and “devil lights”—glowing red stars that appear above the town’s hills every night—she ditches her plans for spring break and takes a solo road trip to Estrella Roja to investigate for her podcast, Paranormal Texas, catchphrase: “Y’all stay spooky!”*
+    >
+    >*Meanwhile, Marisol “Mari” Castillo is also headed for Estrella Roja, to attend the funeral for her abuela whom she hasn’t seen since childhood, when her mom cut ties with the family and left town. Feeling lost and bored, she decides to help Kat after a chance meeting at the local diner—and, okay, it doesn’t hurt that Kat is super cute.*
+    >
+    >*As the two girls grow closer not only to each other but to uncovering the dark legacy that the town was built on, they discover that something hungry lurks beneath the strange stars and that in the hills of Estrella Roja, some secrets should stay buried.*
+
+---
+<img src="https://www.harpercollins.com/cdn/shop/files/9780062981516_a58ec197-cee7-4c36-ba33-20c462664698.jpg?v=1712405334&width=350" alt="cover-image" width="200"/>
+
+- [Firebird](https://www.harpercollins.com/products/firebird-sunmi)
+
+    >*Caroline Kim is feeling the weight of sophomore year. When she starts tutoring infamous senior Kimberly Park-Ocampo—a charismatic lesbian, friend to rich kids and punks alike—Caroline is flustered . . . but intrigued*
+    >
+    >*Their friendship kindles and before they know it, the two are sneaking out for late-night drives, bonding beneath the stars over music, dreams, and a shared desire of getting away from it all.*
+    >
+    >*A connection begins to smolder . . . but will feelings of guilt and the mounting pressure of life outside of these adventures extinguish their spark before it catches fire?*
+
+---
+<img src="https://www.harpercollins.com/cdn/shop/files/9780358169000.jpg?v=1712405318&width=350350" alt="cover-image" width="200"/>
+
+- [ParaNorthern](https://www.harpercollins.com/products/paranorthern-stephanie-cooke?variant=39936044892194)
+
+    >*It’s fall break in the supernatural town of North Haven, and young witch Abby’s plans include pitching in at her mom’s magical coffee shop, practicing her potion making, and playing board games with her best friends—a pumpkinhead, a wolf-girl, and a ghost. But when Abby finds her younger sister being picked on by some speed demons, she lets out a burst of magic so strong, it opens a portal to a realm of chaos bunnies. And while these bunnies may look cute, they’re about to bring the a-hop-ocalypse  (and get Abby in a cauldronful of trouble) unless she figures out a way to reverse the powerful magic she unwittingly released. What’s a witch to do?*
 
 ---
 
 **IDW**
 
-- Satellite Falling
-- The Infinite Loop 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a7c4fd3c-3f90-4a69-a6e6-0e557b86422f" alt="cover-image" width="200"/>
+
+- [Satellite Falling](https://www.amazon.com/Satellite-Falling-Steve-Horton/dp/1631408038) [<sup>Being Adapterd to TV</sup>](https://idwpublishing.com/blogs/news/idw-sets-six-for-television-series-development)
+
+    >*She's the only human on an alien world...and that's the least of her problems. A sci-fi series filled with grit and wit.*
+    >
+    >*She fled a fallen Earth, her lover dead. Now, Lilly makes her way as a cabbie by day and a bounty hunter by night as the sole human on SATELLITE. When Lilly's past catches up with her, it's going to take her and an unlikely band of weird aliens to set things right. What has Lilly gotten herself into?*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a7c4fd3c-3f90-4a69-a6e6-0e557b86422f" alt="cover-image" width="200"/>
+
+- [The Infinite Loop](https://www.amazon.com/Infinite-Loop-Pierrick-Colinet/dp/1631404369)
+
+    >*A science-fiction series that asks the age-old question, “What would you risk for a chance at true love?” Meet Teddy, a young woman who lives in a faraway future where time traveling is a common practice and her job is to maintain the status quo by correcting time paradoxes. But when she meets Ano, “a time paradox” and the girl of her dreams, Teddy must decide between fixing the time stream or the love of her life, both of which have unique consequences.*
 
 ---
 
 **Image Comics**
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/daa08e3f-fb6b-4108-b069-abe12bc81658" alt="cover-image" width="200"/>
+
 - [Isola](https://imagecomics.com/comics/series/isola)
+
+    >*The captain of the Royal Guard has fled the capital city with the Queen of Maar, suffering under the effects of an evil spell. Captain Rook's only hope of returning Queen Olwyn to her throne and saving the kingdom from impending war lies on an island half a world away-a place known in myth as Isola, land of the dead.*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d33d13c2-0412-4167-88d8-7bfcb97235aa" alt="cover-image" width="200"/>
+
 - [Paris](https://imagecomics.com/comics/series/paris)
+
+    >*Juliet, a penniless American art student, travels to the city of light to study painting. To pay her way, she paints portraits of wealthy debutantes. One of her subjects is Deborah, a young English woman suffocated by the narrow expectations of her aristocratic family. Juliet is equally confined by the rigid academic structure of her art education and finds an unlikely kindred spirit in Deborah.Juliet and Deborah’s love for art brings them together, even as their friends and family try to drive them apart.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4b7af993-a50a-4cd6-8432-dbbef8b0f911" alt="cover-image" width="200"/>
+
 - [Snotgirl](https://imagecomics.com/comics/series/snotgirl)
+
+    >*WHO IS LOTTIE PERSON? Is she a gorgeous, fun-loving social media star with a perfect life or a gross, allergy-ridden mess? Enter a world of snot, blood, and tears.*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4080ee39-2fd0-431c-be5d-23102ca52547" alt="cover-image" width="200"/>
+
 - [Paper Girls](https://imagecomics.com/comics/series/paper-girls)
+
+    >*In the early hours after Halloween of 1988, four 12-year-old newspaper delivery girls uncover the most important story of all time.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/41a96f36-9b1d-46ea-b6c9-c027d8709dd9" alt="cover-image" width="200"/>
+
 - [Motor Crush](https://imagecomics.com/comics/series/motor-crush)
+
+    >*By day, Domino Swift competes for fame and fortune in a worldwide motorcycle racing league. By night, she cracks heads of rival gangs in brutal bike wars to gain possession of a rare, valuable contraband: an engine-boosting "machine narcotic" known as Crush.*
+    
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/988fd709-393f-49f9-abee-84b6acf39d30" alt="cover-image" width="200"/>
+
 - [Moonstruck](https://imagecomics.com/comics/series/moonstruck)
+
+    >*Fantasy creatures are living typical, unremarkable lives alongside humans, and barista Julie strives to be the most unremarkable of all. Normal job, normal almost-girlfriend, normal...werewolf transformations that happen when she gets upset*
+    >
+    >*Yikes*
+    >
+    >*But all bets are off when she and her centaur best friend Chet find themselves in the middle of a magical conspiracy. Will Julie and Chet be able to save their friends? Is Julie's dogged determination to be normal a lost cause? Who's going to watch the coffee shop while our heroes are out saving the world??*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/6fb522dc-e9f6-432c-96b9-0e6ade9a4d3f" alt="cover-image" width="200"/>
+
 - [Rain](https://imagecomics.com/comics/series/rain)
+
+    >*On a seemingly normal August day in Boulder, Colorado, the skies are clear, and Honeysuckle Speck couldn't be happier. She's finally moving in with her girlfriend Yolanda. But their world is literally torn apart when dark clouds roll in and release a downpour of nails-splinters of bright crystal that shred the skin of anyone not safely under cover. RAIN makes vivid this escalating apocalyptic event, as the deluge of nails spreads across the country and around the world, threatening everything young lovers Honeysuckle and Yolanda hold dear.*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ba5834f7-d8d2-4455-b495-dad943ab1242" alt="cover-image" width="200"/>
+
 - [Bingo Love](https://imagecomics.com/comics/series/bingo-love)
+
+    >*When Hazel Johnson and Mari McCray met at church bingo in 1963, it was love at first sight. Forced apart by their families and society, Hazel and Mari reunite decades later at a church bingo hall—and what these grandmothers do next takes absolute strength and courage.*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/caafb921-57e6-46c4-b252-de6cdada5115" alt="cover-image" width="200"/>
+
 - [Glory](https://imagecomics.com/comics/series/glory)
+
+    >*After missing for almost a decade, Glory's whereabouts are uncovered by a lone reporter, but the globe-spanning conspiracy keeping her hidden from humanity could make her return more dangerous than anyone ever anticipated!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/e5d96913-940a-45cb-9a5d-629279330b0e" alt="cover-image" width="200"/>
+
 - [Sunstone](https://imagecomics.com/comics/series/sunstone)
+
+    >*Two women deal with modern themes of sex, relationships, and fetishism in this erotic romantic comedy. So beware all who enter, because, to quote a few hundred thousand readers on DeviantArt: "I'm not into BDSM...but this story...I get it."*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3206f818-cf9d-4535-b8d4-e94a87b273aa" alt="cover-image" width="200"/>
+
 - [Clementine](https://imagecomics.com/comics/series/clementine)
+
+    >*The trilogy marks the graphic novel debut of Clementine, star of the massively successful Telltale Games video game. In Book One, Clementine discovers new allies, new rivals, and new love. But as the group tries to build a walker-free settlement in an abandoned ski resort, they soon discover that the biggest threat to their survival...is each other.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/40e40ef1-4391-432d-82df-32f0c22bf452" alt="cover-image" width="200"/>
+
 - [Crowded](https://imagecomics.com/comics/series/crowded)
+
+    >*Ten minutes in the future, the world runs on an economy of job shares and apps, including Reapr: a crowdfunding platform to fund assassinations. Charlie Ellison leads a quiet, normal life until she's suddenly targeted by a million-dollar Reapr campaign. Hunted by all of Los Angeles, Charlie hires Vita, the lowest-rated bodyguard on the Dfend app. As the campaign picks up speed, they'll have to figure out who wants Charlie dead before the campaign's 30 days-or their lives-are over.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/5278f82a-94b8-4dff-97ca-71b80645274b" alt="cover-image" width="200"/>
+
 - [The Old Guard](https://imagecomics.com/comics/series/the-old-guard)
-- [Hack/Slash](https://imagecomics.com/comics/series/hack-slash)
-- [Monstress](https://imagecomics.com/comics/series/monstress)
-- Radiant Pink
-- Drain
+
+    >*Trapped in an immortality without explanation, Andromache of Scythia - 'Andy' - and her comrades ply their trade for those who can find-and afford-their services. But in the 21st century, immortality is a hard secret to keep, and when you live long enough, you learn that there are many fates worse than death.*
+    
+- [Radiant Pink](https://imagecomics.com/comics/series/radiant-pink)
+- [Drain](https://www.amazon.com/Drain-v-C-B-Cebulski/dp/1582407525)
 
 
 ---
