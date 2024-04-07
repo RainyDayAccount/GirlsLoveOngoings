@@ -1098,7 +1098,7 @@
     >*She fled a fallen Earth, her lover dead. Now, Lilly makes her way as a cabbie by day and a bounty hunter by night as the sole human on SATELLITE. When Lilly's past catches up with her, it's going to take her and an unlikely band of weird aliens to set things right. What has Lilly gotten herself into?*
     
 ---
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a7c4fd3c-3f90-4a69-a6e6-0e557b86422f" alt="cover-image" width="200"/>
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/bf725a73-1e27-41f9-974f-b2f1f67e33f7" alt="cover-image" width="200"/>
 
 - [The Infinite Loop](https://www.amazon.com/Infinite-Loop-Pierrick-Colinet/dp/1631404369)
 
