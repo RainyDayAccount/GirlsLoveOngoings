@@ -746,7 +746,6 @@
 
 ---
 
----
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ab76d3f7-fa85-4e13-bee7-aeeffadcc066" alt="cover-image" width="200"/>
 
 - [Raven: the Pirate Princess](https://www.goodreads.com/series/172504-raven-the-pirate-princess-collected-editions)
@@ -811,7 +810,7 @@
     >*Isabel "Izzy" Crane and her family just moved to the infamous Sleepy Hollow, but as a slick skeptic from the city, she's too busy adjusting to the change of scenery for ghost stories -- they're not real, after all. Then she meets Vicky Van Tassel (yes, THAT Van Tassel) and the loveable prankster Croc Byun. Vicky's weariness with the legend turns to terror when the Horseman himself shows up, along with a curse set on destroying the Van Tassel line. Now, they have only until Halloween night to break the curse. What an inconvenient time for Izzy to develop a massive crush on Vicky! Can Izzy and her new friends uncover the mystery of the Headless Horseman before it's too late?*
 
 ---
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d872ff00-ffba-4682-94c6-53611f60965b" alt="cover-image" width="200"/>
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ca33a639-900a-41c4-8093-7207931b2539" alt="cover-image" width="200"/>
 
 - [Mamo](https://www.amazon.com/Mamo-Sas-Milledge-ebook/dp/B09T2Y3ZLN)
 
@@ -1092,7 +1091,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a7c4fd3c-3f90-4a69-a6e6-0e557b86422f" alt="cover-image" width="200"/>
 
-- [Satellite Falling](https://www.amazon.com/Satellite-Falling-Steve-Horton/dp/1631408038) [<sup>Being Adapterd to TV</sup>](https://idwpublishing.com/blogs/news/idw-sets-six-for-television-series-development)
+- [Satellite Falling](https://www.amazon.com/Satellite-Falling-Steve-Horton/dp/1631408038) [<sup>Being Adapted to TV</sup>](https://idwpublishing.com/blogs/news/idw-sets-six-for-television-series-development)
 
     >*She's the only human on an alien world...and that's the least of her problems. A sci-fi series filled with grit and wit.*
     >
@@ -1183,35 +1182,130 @@
 - [Sunstone](https://imagecomics.com/comics/series/sunstone)
 
     >*Two women deal with modern themes of sex, relationships, and fetishism in this erotic romantic comedy. So beware all who enter, because, to quote a few hundred thousand readers on DeviantArt: "I'm not into BDSM...but this story...I get it."*
-    
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/b9df3a03-4d37-45f3-91ba-1f16649880a9" alt="cover-image" width="200"/>
+
 - [Radiant Pink](https://imagecomics.com/comics/series/radiant-pink)
+
+    >*When video game streamer and secret superhero Eva is invited to the biggest charity stream event of the year she sees her chance to use her platform for good. But when a surprise attack sends her hurtling across dimensions Eva will have to rely on everything she has to make it home in one piece.*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a73b0378-b016-4a42-9711-4bfaed38c18f" alt="cover-image" width="200"/>
+    
 - [Drain](https://www.amazon.com/Drain-v-C-B-Cebulski/dp/1582407525)
+
+    >*Her clan destroyed, her family murdered by vampires, Chinatsu, a once-proud female ninja, had nothing left to live for ― save revenge! In this centuries-spanning tale of bloodlust and betrayal, Chinatsu, now a vampire herself, tracks the dark lord that turned her all those long years ago. Immortality has only made her need for vengeance stronger as she hunts him across the globe, through myriad time periods, battling the undead minions that rise up to stop her!*
 
 
 ---
 
-**Macmillian**
+**Macmillan Publishers**
 
-- [On a Sunbeam](https://www.onasunbeam.com/)
-- Spinning
-- Bunt
-- Belle of the Ball
-- The Well
-- Are You Listening
-- Snapdragon
-- Laura Dean Keeps Breaking up With Me 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/e07dafda-e473-45c9-8795-ad634225575a" alt="cover-image" width="200"/>
+
+- [On a Sunbeam](https://www.onasunbeam.com/)  [<sup>Macmillan Publishers</sup>](https://us.macmillan.com/books/9781250178138/on-a-sunbeam)
+
+    >*A ragtag crew travels to the deepest reaches of space, rebuilding beautiful, broken structures to piece the past together.*
+    >
+    >*Two girls meet in boarding school and fall deeply in love—only to learn the pain of loss.*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/51be2aec-d364-48cf-81fb-b8a24faf8071" alt="cover-image" width="200"/>
+
+- [Spinning](https://us.macmillan.com/books/9781626729407/spinning)
+
+    >*It was the same every morning. Wake up, grab the ice skates, and head to the rink while the world was still dark.*
+    >
+    >*Weekends were spent in glitter and tights at competitions. Perform. Smile. And do it again.*
+    >
+    >*She was good. She won. And she hated it.*
+    >
+    >*For ten years, figure skating was Tillie Walden’s life. She woke before dawn for morning lessons, went straight to group practice after school, and spent weekends competing at ice rinks across the state. Skating was a central piece of her identity, her safe haven from the stress of school, bullies, and family. But as she switched schools, got into art, and fell in love with her first girlfriend, she began to question how the close-minded world of figure skating fit in with the rest of her life, and whether all the work was worth it given the reality: that she, and her friends on the team, were nowhere close to Olympic hopefuls. The more Tillie thought about it, the more Tillie realized she’d outgrown her passion—and she finally needed to find her own voice.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/9ccae8fc-9c36-4fb0-9971-6b7a469d575a" alt="cover-image" width="200"/>
+
+- [Bunt! Striking Out on Financial Aid](https://us.macmillan.com/books/9781250193513/bunt)
+
+    >*Molly Bauer's first year of college is not the picture-perfect piece of art she'd always envisioned. On day one at PICA, Molly discovers that—through some horrible twist of fate—her full-ride scholarship has vanished! But the ancient texts (PICA's dusty financial aid documents) reveal a loophole. If Molly and 9 other art students win a single game of softball, they'll receive a massive athletic scholarship. Can Molly's crew of ragtag artists succeed in softball without dropping the ball?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ef848553-6413-44ac-bdd2-a28fa407279c" alt="cover-image" width="200"/>
+
+- [Belle of the Ball](https://us.macmillan.com/books/9781250784124/belleoftheball)
+
+    >*High-school senior and notorious wallflower Hawkins finally works up the courage to remove her mascot mask and ask out her longtime crush: Regina Moreno, head cheerleader, academic overachiever, and all-around popular girl. There’s only one teensy little problem: Regina is already dating Chloe Kitagawa, athletic all-star…and middling English student. Regina sees a perfectly self-serving opportunity here, and asks the smitten Hawkins to tutor Chloe free of charge, knowing Hawkins will do anything to get closer to her.*
+    >
+    >*And while Regina’s plan works at first, she doesn’t realize that Hawkins and Chloe knew each other as kids, when Hawkins went by Belle and wore princess dresses to school every single day. Before long, romance does start to blossom…but not between who you might expect. With Belle of the Ball, cartoonist Mariana Costa has reinvigorated satisfying, reliable tropes into your new favorite teen romantic comedy.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/316e6372-e63f-484c-bf5f-48bc767e74e9" alt="cover-image" width="200"/>
+
+- [The Well](https://us.macmillan.com/books/9781626724143/thewell)
+
+    >*Li-Zhen’s life on the archipelago is simple. Known to friends and family as Lizzy, she takes care of her grandfather and their goats, she flirts with the woman who helps row the ferry, and she stays away from the fog that comes in the night—and the monsters hiding within it.*
+    >
+    >*But Lizzy’s life comes apart when she steals a handful of coins from a sacred well to cover a debt. The well requires repayment, but it doesn’t deal in coins. It needs wishes, and its minions will drown Lizzy in its depths if she doesn’t grant them. Lizzy finds herself on a quest to uncover hidden memories, bestow great wealth, and face the magical secrets that nearly destroyed her family—and are now returning to threaten everything she has ever known.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/be879ded-b545-4611-8971-b0fb245c7c64" alt="cover-image" width="200"/>
+
+- [Snapdragon](https://us.macmillan.com/books/9781250171122/snapdragon)
+
+    >*Snap's town had a witch.*
+    >
+    >*At least, that’s how the rumor goes. But in reality, Jacks is just a crocks-wearing, internet-savvy old lady who sells roadkill skeletons online—after doing a little ritual to put their spirits to rest. It’s creepy, sure, but Snap thinks it’s kind of cool, too.*
+    >
+    >*They make a deal: Jacks will teach Snap how to take care of the baby opossums that Snap rescued, and Snap will help Jacks with her work. But as Snap starts to get to know Jacks, she realizes that Jacks may in fact have real magic—and a connection with Snap’s family’s past.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/f206dcf5-c79b-4cde-a03f-3f8588de1c65" alt="cover-image" width="200"/>
+
+- [Laura Dean Keeps Breaking up With Me](https://us.macmillan.com/books/9781626722590/lauradeankeepsbreakingupwithme)
+
+    >*Laura Dean, the most popular girl in high school, was Frederica Riley's dream girl: charming, confident, and SO cute. There's just one problem: Laura Dean is maybe not the greatest girlfriend.*
+    >
+    >*Reeling from her latest break up, Freddy's best friend, Doodle, introduces her to the Seek-Her, a mysterious medium, who leaves Freddy some cryptic parting words: break up with her. But Laura Dean keeps coming back, and as their relationship spirals further out of her control, Freddy has to wonder if it's really Laura Dean that's the problem. Maybe it's Freddy, who is rapidly losing her friends, including Doodle, who needs her now more than ever.*
+    >
+    >*Fortunately for Freddy, there are new friends, and the insight of advice columnists like Anna Vice to help her through being a teenager in love.*
 
 ---
 
 **Marvel**
 
-- New Mutants: Lethal Legion (2023)
-- Betsy Braddock: Captain Britain (2023)
-- Runaways
-- America (2017)
-- Angela: Queen of Hel (2015)
-- Doctor Aphra
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/e314d33f-5ee8-4f62-bb40-3aec393920c5" alt="cover-image" width="200"/>
 
+- [Betsy Braddock: Captain Britain](https://www.marvel.com/comics/series/36483/betsy_braddock_captain_britain_2023)
+
+    >*THE CAPTAIN COMES HOME! And she's got a whole new mission! With Otherworld settled, Braddock Manor restored, and her brother Captain Avalon at her side, you'd think things look pretty good for Betsy Braddock. Only it turns out, good ole Britain doesn't want her back. No one wants a mutant menace carrying the shield of Captain Britain, and Betsy's made more than a few enemies along her way. Quest-less and country-less, Betsy must define a role for herself.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/834ead5c-7373-4634-b86f-17ceb65a4264" alt="cover-image" width="200"/>
+
+- [Runaways](https://www.marvel.com/comics/series/23461/runaways_2017_-_2021)
+
+    >*GET READY TO RUN! The ""IT"" book of the early 2000s with the original cast is back - Nico! Karolina! Molly! Chase! Old Lace! And, could it be? GERT?! The heart of the Runaways died years ago, but you won't believe how she returns! Superstar author Rainbow Rowell (Eleanor & Park, Carry On) makes her Marvel debut with fan-favorite artist Kris Anka (ALL-NEW X-MEN, CAPTAIN MARVEL) in the series that will shock you and break your heart!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/998e12ec-f141-4d65-9e67-dc2c28f0a3f6" alt="cover-image" width="200"/>
+
+- [America Chavez: Made in the USA](https://www.marvel.com/comics/series/29493/america_chavez_made_in_the_usa_2021) <sup>Ameroca Chavez Broke up with her girlfriend.</sup>
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8eb74ab7-562c-48e9-bc1d-27106f41668d" alt="cover-image" width="200"/>
+
+- [Angela: Queen of Hel](https://www.marvel.com/comics/series/20696/angela_queen_of_hel_2015_-_2016)
+
+    >*HEL HATH A NEW FURY. Stolen from ASGARD, exiled from HEVEN, and robbed of SERA, her greatest companion - ANGELA plunges into the depths of blackest HEL to save her friend...and once there, the lost princess of Asgard will carve out a realm of her very own. All hail ANGELA, THE NEW QUEEN OF HEL!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/9ea8092f-5089-45a3-9da7-391fd3a59df3" alt="cover-image" width="200"/>
+
+- [Doctor Aphra](https://www.marvel.com/comics/series/29161/star_wars_doctor_aphra_2020_-_present)
+
+    >*NEW CREW, NEW MISSION! With the Rebel Alliance back on the run after their defeat at the Battle of Hoth, it’s never been a more dangerous time for outlaws, scoundrels and the errant rogue archaeologist to make their way in the galaxy. But after a string of bad luck and near escapes, DOCTOR APHRA is back on the job! She’s been keeping a low profile – jobs are scarce and credits scarcer. But the promise of the score of a lifetime is a chance too good for her to pass up. And to find the cursed RINGS OF VAALE, Aphra will need a crew of treasure hunters the likes of which the galaxy has never seen before! But RONEN TAGGE, heir to the powerful Tagge family, also has his eyes on the prize. Do Aphra and her team stand a chance at fortune and glory?*
 ---
 
 **Oni Press**
@@ -1335,6 +1429,17 @@
 **Scholastic**
 
 ---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/45791f15-ee6b-4663-821b-fd71c9bff30c" alt="cover-image" width="200"/>
+
+- [The Girl from the Sea](https://shop.scholastic.com/parent-ecommerce/books/the-girl-from-the-sea-9781338540574.html)
+
+    >*Fifteen-year-old Morgan has a secret: She can't wait to escape the perfect little island where she lives. She's desperate to finish high school and escape her sad divorced mom, her volatile little brother, and worst of all, her great group of friends...who don't understand Morgan at all. Because really, Morgan's biggest secret is that she has a lot of secrets, including the one about wanting to kiss another girl.*
+    >
+    >*Then one night, Morgan is saved from drowning by a mysterious girl named Keltie. The two become friends and suddenly life on the island doesn't seem so stifling anymore.*
+    >
+    >*But Keltie has some secrets of her own. And as the girls start to fall in love, everything they're each trying to hide will find its way to the surface...whether Morgan is ready or not.*
+
+---
 
 **Titan**
 
@@ -1350,9 +1455,18 @@
 **Vault**
 
 ---
+<img src="https://vaultcomics.com/cdn/shop/products/jkutoOVgvbOZom7RK1dai6AAPRwhy2-R-ojKOjcavI_1000x.jpg?v=1673618066" alt="cover-image" width="200"/>
 
-- Heathen
-- Submerged
+- [Heathen](https://vaultcomics.com/products/heathen-cs#variant=Paperback%20+%20eBook)
+
+    >*WOMAN. WARRIOR. VIKING. HEATHEN. OUTCAST. THE GODS MUST PAY… Born into a time of warfare, suffering, and subjugation of women, and exiled from her village for kissing another woman, the lesbian Viking warrior, Aydis, sets out to destroy the god-king Odin and end his oppressive reign.*
+    
+---
+<img src="https://vaultcomics.com/cdn/shop/products/Nr8iSzYHNdDJy2WpCy8L9nDqMgjVDs1ISMTGrIKQOy8_1000x.jpg?v=1673618306" alt="cover-image" width="200"/>    
+ 
+- [Submerged](https://vaultcomics.com/products/submerged-cs)
+
+    >*As the biggest storm in history hits New York, Elysia Puente estranged brother calls from the subway begging for help. As the flood waters rise, Elysia descends deeper and deeper into a mysterious and haunting underground in search of Angel.*
 
 ---
 
