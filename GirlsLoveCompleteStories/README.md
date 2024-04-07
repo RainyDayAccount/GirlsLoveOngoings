@@ -752,6 +752,30 @@
 
     >*Raven is ready to set out on her quest for revenge against her brothers. They’ve stolen everything that should be hers and now she’s going to get it back. But first, she needs a crew. Share the laughs, action, and adventure as Raven assembles the fearless crew of awesome ladies who will help her get her revenge.*
 
+
+---
+
+**House of Anansi / Groundwood Books**
+
+---
+<img src="https://houseofanansi.com/cdn/shop/products/BNCImageAPI_ee3a739f-3a29-49db-a051-6bbc1a98b389_1024x1024.jpg?v=1649579527" alt="cover-image" width="200"/>
+
+- [Skim](https://houseofanansi.com/products/skim)
+
+    >*Skim is Kimberly Keiko Cameron, a not-slim, would-be Wiccan goth stuck in a private girls' school in Toronto. When a classmate's boyfriend kills himself because he was rumoured to be gay, the school goes into mourning overdrive, each clique trying to find something to hold on to and something to believe in. It's a weird time to fall in love, but that's high school, and that's what happens to Skim when she starts to meet in secret with her neo-hippie English teacher, Ms. Archer. But when Ms. Archer abruptly leaves, Skim struggles to cope with her confusion and isolation, armed with her trusty journal and a desire to shed old friendships while cautiously approaching new ones.*
+
+---
+
+**Arsenal Pulp Press**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3781bfb4-8a87-4a4f-923f-caa6abcc0335" alt="cover-image" width="200"/>
+
+- [Blue is the Warmest Color](https://arsenalpulp.com/Books/B/Blue-Is-the-Warmest-Color)
+
+    >*Clementine is a junior in high school who seems average enough: she has friends, family, and the romantic attention of the boys in her school. When her openly gay best friend takes her out on the town, she wanders into a lesbian bar where she encounters Emma: a punkish, confident girl with blue hair. Their attraction is instant and electric, and Clementine find herself in a relationship that will test her friends, parents, and her own ideas about herself and her identity.*
+
+
 ---
 
 **BOOM! Studios**
@@ -1306,6 +1330,18 @@
 - [Doctor Aphra](https://www.marvel.com/comics/series/29161/star_wars_doctor_aphra_2020_-_present)
 
     >*NEW CREW, NEW MISSION! With the Rebel Alliance back on the run after their defeat at the Battle of Hoth, it’s never been a more dangerous time for outlaws, scoundrels and the errant rogue archaeologist to make their way in the galaxy. But after a string of bad luck and near escapes, DOCTOR APHRA is back on the job! She’s been keeping a low profile – jobs are scarce and credits scarcer. But the promise of the score of a lifetime is a chance too good for her to pass up. And to find the cursed RINGS OF VAALE, Aphra will need a crew of treasure hunters the likes of which the galaxy has never seen before! But RONEN TAGGE, heir to the powerful Tagge family, also has his eyes on the prize. Do Aphra and her team stand a chance at fortune and glory?*
+
+---
+
+**Northwest Comics**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d780da07-12f7-4b68-950d-b751068df016" alt="cover-image" width="200"/>
+
+- [The Legend of Bold Riley](https://northwestpress.com/shop/the-legend-of-bold-riley/)
+
+    >*“Who is Bold Riley?” you might ask. She has hunted the wildest game and dallied with countless beautiful girls, but still longs to know the world beyond the city walls. Princess Rilavashana SanParite, called Bold Riley, leaves behind her station and sets out to travel through distant lands and find forgotten ruins, fearsome enemies, inscrutable gods and tragic love.*
+    
 ---
 
 **Oni Press**
