@@ -777,6 +777,18 @@
 
 ---
 
+**Avery Hill Publishing**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3781bfb4-8a87-4a4f-923f-caa6abcc0335" alt="cover-image" width="200"/>
+
+- [The Impending Blindness of Billie Scott](https://averyhillpublishing.bigcartel.com/product/the-impending-blindness-of-billie-scott-by-zoe-thorogood-new-edition)
+
+    >*Clementine is a junior in high school who seems average enough: she has friends, family, and the romantic attention of the boys in her school. When her openly gay best friend takes her out on the town, she wanders into a lesbian bar where she encounters Emma: a punkish, confident girl with blue hair. Their attraction is instant and electric, and Clementine find herself in a relationship that will test her friends, parents, and her own ideas about herself and her identity.*
+
+
+---
+
 **Black Mask Studios**
 
 ---
@@ -1043,6 +1055,17 @@
 - [Harley Quinn: The Animated Series - Legion of Bats!](https://www.dcuniverseinfinite.com/comics/book/harley-quinn-the-animated-series-legion-of-bats-1/3f13ad6f-5c7d-44ad-a85b-cea9de101f23/c)
 
     >*When last we checked in with Harley Quinn, she ate, she banged, and she killed—but now it’stime for something a little different. Fresh out of the events of Harley Quinn: The Animated Seriesseason 3, Harley has found herself a part of a highly unlikely team—the Bat-Family! Meanwhile, Poison Ivy has found herself prepping for her new job—leader of the Legion of Doom! But while Harley and Ivy adjust to their respective new roles, a ghost from Ivy’s past enters the fray and threatens the relationship between everyone’s favorite clown/plant couple!*
+    
+---
+<img src="https://static.dc.com/dc/files/default_images/PoisonIvyThorns.Cv-1_6021f90f7fd6e3.91043247.jpg?w=640" alt="cover-image" width="200"/>
+    
+- [Poison Ivy: Thorns](https://www.dc.com/graphic-novels/poison-ivy-thorns)
+
+    >*There's something unusual about Pamela Isley--the girl who hides behind her bright red hair. The girl who won't let anyone inside to see what's lurking behind the curtains. The girl who goes to extreme lengths to care for a few plants. Pamela Isley doesn't trust other people, especially men. They always want something from her. Something she's not willing to give.*
+    >
+    >*When cute goth girl Alice Oh comes into Pamela's life after an accident at the local park, she makes her feel like pulling back the curtains and letting the sunshine in. But there are dark secrets deep within the Isley house. Secrets Pamela's father has warned must remain hidden. Secrets that could turn deadly and destroy the one person who ever cared about Pamela, or as her mom preferred to call her...Ivy.*
+    >
+    >*Will Pamela open herself up to the possibilities of love, or will she forever be transformed by the thorny vines of revenge?*
 
 ---
 <img src="https://static.dc.com/dc/files/default_images/IAmNotStarfire.Cv_5fce76d07e10d1.45911283.jpg?w=640" alt="cover-image" width="200"/>
@@ -1359,6 +1382,32 @@
 
 ---
 
+**Levine Querido**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/cfa24c9b-a90c-43cd-9e90-db9f8b388c6f" alt="cover-image" width="200"/>
+
+- [Brooms](https://www.levinequerido.com/brooms)
+
+    >*It’s 1930s Mississippi. Magic is permitted only in certain circumstances, and by certain people. Unsanctioned broom racing is banned. But for those who need the money, or the thrills...it's there to be found.*
+    >
+    >*Meet Billie Mae, captain of the Night Storms racing team, and Loretta, her best friend and second-in-command. They’re determined to make enough money to move out west to a state that allows Black folks to legally use magic and take part in national races.*
+    >
+    >*Cheng-Kwan – doing her best to handle the delicate and dangerous double act of being the perfect “son” to her parents, and being true to herself while racing.*
+    >
+    >*Mattie and Emma – Choctaw and Black – the youngest of the group and trying to dodge government officials who want to send them and their newly-surfaced powers away to boarding school.*
+    >
+    >*And Luella, in love with Billie Mae. Her powers were sealed away years ago after she fought back against the government. She’ll do anything to prevent the same fate for her cousins.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d805119f-c86d-4a75-b772-7d8693e0da4b" alt="cover-image" width="200"/>
+
+- [Pardalita](https://www.levinequerido.com/pardalita)
+
+    >*16-year-old Raquel lives in a small town in Portugal, the kind of place where everyone knows everyone else’s business. Her parents are divorced and she’s just been suspended for cursing out a school aide asking about her father’s new marriage. She has two best friends, Luísa and Fred, but wants something more. Then, from afar, she sees Pardalita, a senior and a gifted artist who’s moving to Lisbon to study in the fall. The two girls get to know each other while working on a play. And Raquel falls in love.*
+
+---
+
 **Macmillan Publishers**
 
 ---
@@ -1369,6 +1418,17 @@
     >*A ragtag crew travels to the deepest reaches of space, rebuilding beautiful, broken structures to piece the past together.*
     >
     >*Two girls meet in boarding school and fall deeply in love—only to learn the pain of loss.*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/62b64ce9-e595-4f9c-a650-412e495f3152" alt="cover-image" width="200"/>
+
+- [Are You Listening?](https://us.macmillan.com/books/9781250207562)
+
+    >*Bea is on the run. And then, she runs into Lou.*
+    >
+    >*This chance encounter sends them on a journey through West Texas, where strange things follow them wherever they go. The landscape morphs into an unsettling world, a mysterious cat joins them, and they are haunted by a group of threatening men. To stay safe, Bea and Lou must trust each other as they are driven to confront buried truths. The two women share their stories of loss and heartbreak—and a startling revelation about sexual assault—culminating in an exquisite example of human connection.*
+    >
+    >*This magical realistic adventure from the celebrated comics creator of Spinning and On a Sunbeam will stay with readers long after the final gorgeously illustrated page.*
     
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/51be2aec-d364-48cf-81fb-b8a24faf8071" alt="cover-image" width="200"/>
