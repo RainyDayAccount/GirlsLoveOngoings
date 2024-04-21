@@ -2484,6 +2484,9 @@ https://www.mangaupdates.com/poll.html?act=old_polls
 - [Taste My Sweet Jelly Body](https://mangadex.org/title/9bf6c067-7345-4ca7-9677-f1b6d2745ca6/taste-my-sweet-jelly-body) [<sup>Coolmic</sup>](https://coolmic.me/titles/462)
 
     >*"The First Prize Semi Grand Prix Winner of the Monk Manga" With her jelly body, she twists around Kurono sweetly... and the pleasure that spreads throughout Kurono's body has deprived her from her freedom…*
+    
+---
+<img src="https://en-img.coolmic.me/titles/000/000000/000000436/000000436_large_vertical.jpg.webp" alt="cover-image" width="200"/>
 
 - [Queen of the Idealiree](https://coolmic.me/titles/436) <sup>Not on Mangadex - </sup> [<sup>Coolmic</sup>](https://coolmic.me/titles/436)
 
