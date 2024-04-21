@@ -775,7 +775,50 @@
 
     >*Clementine is a junior in high school who seems average enough: she has friends, family, and the romantic attention of the boys in her school. When her openly gay best friend takes her out on the town, she wanders into a lesbian bar where she encounters Emma: a punkish, confident girl with blue hair. Their attraction is instant and electric, and Clementine find herself in a relationship that will test her friends, parents, and her own ideas about herself and her identity.*
 
+---
 
+**Black Mask Studios**
+
+---
+<img src="https://blackmaskstore.com/cdn/shop/products/ALICE-TP-01_pg001_cv1_1200x.jpg?v=1641237836" alt="cover-image" width="200"/>
+
+- [Alice In Leatherland](https://blackmaskstore.com/collections/alice-in-leatherland)
+
+    >*Alice, a young writer of children's story books, is hurtled out of her fairytale-like life when she discovers her girlfriend has been cheating on her!*
+    >
+    >*Charmingly defiant, she leaves her small forest town and leaps into a new adventure to seek love (and find herself) in the fast life of San Francisco. There, her concept of pure, magical love will be completely overturned--her biggest challenge won't be reckoning with other people's sexual drive, it'll be getting a grip on her own!*
+    
+---
+<img src="https://blackmaskstore.com/cdn/shop/products/BeautifulCanvas-Vol1-TP_RGB1000px_1000x.jpg?v=1533774269" alt="cover-image" width="200"/>
+
+- [Beautiful Canvas](https://blackmaskstore.com/collections/beautiful-canvas)
+
+    >*Beautiful Canvas is 2017's smash hit warped crime miniseries about Lon Eisley discovering the similarities and differences between her job as a hitwoman and her new role as a mother-to-be when she finds out her girlfriend is pregnant.*
+    >
+    >*Going from destroyer to creator/protector is a major swerve, but parents still have plenty of violent and brutal moments to contend with, especially when the world is full of pyrokinetic sleeper agents, animal/hybrid muscle-squads, and one hell of a nasty boss pulling your strings.*
+    
+---
+<img src="https://blackmaskstore.com/cdn/shop/products/DevilWithin_TP-01_001_1200x.jpg?v=1597868021" alt="cover-image" width="200"/>
+
+- [Devil Within](https://blackmaskstore.com/collections/devil-within)
+
+    >*Paranormal entities. Demonic possessions. Or is it madness? When newly engaged Michelle and Samantha move into an old house, Michelle starts experiencing disturbing events... rogue reflections in mirrors, strange apparitions, and an eerie voice only she can hear. Samantha doesn't believe in ghosts, but the alternative might be even more terrifying in this hauntingly paranoid thriller from writer Stephanie Phillips (Butcher of Paris) and artist Mann House (Witchblade).*
+    
+---
+<img src="https://blackmaskstore.com/cdn/shop/products/TheWilds_TP-01_001_1200x.jpg?v=1573164208" alt="cover-image" width="200"/>
+
+- [The Wilds](https://blackmaskstore.com/collections/the-wilds)
+
+    >*Daisy Walker is a Runner for The Compound, a mix of post-apocalyptic postal service and black market salvaging operation. Out beyond the settlement walls are innumerable dangers, but, after a decade of surviving, Daisy isn't phased by any of it - until her lover, another Runner named Heather, goes missing on a job. From writer Vita Ayala (Bitch Planet: Triple Feature, Wonder Woman Annual) and artist Emily Pearson (upcoming Snap Flash Hustle) comes this bold tale of surviving in bleak times.*
+    
+---
+<img src="https://i.kickstarter.com/assets/038/073/080/3723cae271d72158192a8012df6d04e3_original.jpg?fit=scale-down&origin=ugc&q=92&width=680&sig=%2FL7dolwkTEfzMqJwWKloG0rdqxXEg%2BZf7q1ChrZ71BM%3D" alt="cover-image" width="200"/>
+
+- [Destiny, NY](https://blackmaskstore.com/collections/destiny-ny)
+
+    >*Daisy Walker is a Runner for The Compound, a mix of post-apocalyptic postal service and black market salvaging operation. Out beyond the settlement walls are innumerable dangers, but, after a decade of surviving, Daisy isn't phased by any of it - until her lover, another Runner named Heather, goes missing on a job. From writer Vita Ayala (Bitch Planet: Triple Feature, Wonder Woman Annual) and artist Emily Pearson (upcoming Snap Flash Hustle) comes this bold tale of surviving in bleak times.*
+    
+    
 ---
 
 **BOOM! Studios**
@@ -1055,10 +1098,45 @@
 
 ---
 
+**Hachette Book Group**
+
+---
+<img src="https://www.hachettebookgroup.com/wp-content/uploads/2023/05/9780316538725.jpg?resize=768,1152" alt="cover-image" width="200"/>
+
+- [The Princess and the Grilled Cheese Sandwich](https://www.hachettebookgroup.com/titles/deya-muniz/the-princess-and-the-grilled-cheese-sandwich-a-graphic-novel/9780316538725/)
+
+    >*Lady Camembert wants to live life on her own terms, without marriage. Well, without marrying a man, that is. But the law of the land is that women cannot inherit. So when her father passes away, she does the only thing she can: She disguises herself as a man and moves to the capital city of the Kingdom of Fromage to start over as Count Camembert.*
+    >
+    >*But it’s hard to keep a low profile when the beautiful Princess Brie, with her fierce activism and great sense of fashion, catches her attention. Camembert can’t resist getting to know the princess, but as the two grow closer, will she able to keep her secret?*
+    
+---
+<img src="https://www.hachettebookgroup.com/wp-content/uploads/2021/09/9780316522885-1.jpg?resize=768,1102" alt="cover-image" width="200"/>
+
+- [Meg, Jo, Beth, and Amy](https://www.hachettebookgroup.com/titles/rey-terciero/meg-jo-beth-and-amy/9780316522885/?lens=little-brown-ink)
+
+    >*Meg, Jo, Beth, and Amy are having a really tough year: with their father serving in the military overseas, they must work overtime to make ends meet…and each girl is struggling in her own way. Whether it’s school woes, health issues, boy troubles, or simply feeling lost, the March sisters all need the same thing: support from each other. Only by coming together–and sharing lots of laughs and tears–will these four young women find the courage to discover who they truly are as individuals…and as a family.*
+    >
+    >*Meg is the eldest March, and she has a taste for the finer things in life. She dreams of marrying rich, enjoying fabulous clothes and parties, and leaving her five-floor walk-up apartment behind.*
+    >
+    >*Jo pushes her siblings to be true to themselves, yet feels like no one will accept her for who she truly is. Her passion for writing gives her an outlet to feel worthy in the eyes of her friends and family.*
+    >
+    >*Beth is the shy sister with a voice begging to be heard. But with a guitar in hand, she finds a courage that inspires her siblings to seize the day and not take life for granted.*
+    >
+    >*Amy may be the baby of the family, but she has the biggest personality. Though she loves to fight with her sisters, her tough exterior protects a vulnerable heart that worries about her family’s future.*
+    
+---
+<img src="https://www.hachettebookgroup.com/wp-content/uploads/2022/03/9780316459778.jpg?resize=768,1102" alt="cover-image" width="200"/>
+
+- [Anne of West Philly](https://www.hachettebookgroup.com/titles/ivy-noelle-weir/anne-of-west-philly/9780316459778/)
+
+    >*When Marilla and Matthew Cuthbert decide to foster a teenage girl for the first time, their lives are changed forever. Their redheaded foster daughter, Anne Shirley, is in search of an exciting life and has decided that West Philly is where she's going to find it. Armed with a big personality and unstoppable creativity, Anne takes her new home by storm as she joins the robotics club, makes new friends in Diana and Gilbert, experiences first love, and turns the ordinary into the extraordinary. But as Anne starts to get comfortable, she discovers one thing she wasn't looking for: a family.*
+    
+---
+
 **Harper**
 
 ---
-<img src="https://www.harpercollins.com/cdn/shop/files/9780062943149.jpg?v=1712416967&width=350" alt="cover-image" width="200"/>
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/1b9537fe-766c-40fa-8b65-828ae31312c0" alt="cover-image" width="200"/>
 
 - [Squad](https://www.harpercollins.com/products/squad-maggie-tokuda-hall?variant=33051647508514)
 
@@ -1091,7 +1169,7 @@
     >*As the two girls grow closer not only to each other but to uncovering the dark legacy that the town was built on, they discover that something hungry lurks beneath the strange stars and that in the hills of Estrella Roja, some secrets should stay buried.*
 
 ---
-<img src="https://www.harpercollins.com/cdn/shop/files/9780062981516_a58ec197-cee7-4c36-ba33-20c462664698.jpg?v=1712405334&width=350" alt="cover-image" width="200"/>
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c8596f5b-50b9-458f-b00e-c59d05a89f8b" alt="cover-image" width="200"/>
 
 - [Firebird](https://www.harpercollins.com/products/firebird-sunmi)
 
@@ -1107,6 +1185,24 @@
 - [ParaNorthern](https://www.harpercollins.com/products/paranorthern-stephanie-cooke?variant=39936044892194)
 
     >*It’s fall break in the supernatural town of North Haven, and young witch Abby’s plans include pitching in at her mom’s magical coffee shop, practicing her potion making, and playing board games with her best friends—a pumpkinhead, a wolf-girl, and a ghost. But when Abby finds her younger sister being picked on by some speed demons, she lets out a burst of magic so strong, it opens a portal to a realm of chaos bunnies. And while these bunnies may look cute, they’re about to bring the a-hop-ocalypse  (and get Abby in a cauldronful of trouble) unless she figures out a way to reverse the powerful magic she unwittingly released. What’s a witch to do?*
+
+---
+
+**Hivemill**
+
+---
+<img src="https://hivemill.com/cdn/shop/products/KIGCarouselfirstpagepreview.png?v=1655866164&width=713" alt="cover-image" width="200"/>
+
+- [Kiss it Goodbye](https://hivemill.com/products/kiss-it-goodbye-complete-edition)
+
+    >*Kiss it Goodbye is a “Girls Love” Comic (GL) about Aruka and Yukimi, childhood friends living in Kyoto, Japan. The two of them, now adults in a long-term relationship, recount the story of how they became distant friends to lovers. As their teen selves grow up and come to terms with their sexuality and their feelings for each other, the budding couple faces external and internal challenges.*
+
+---
+<img src="https://hivemill.com/cdn/shop/products/chimaka_frontcover.jpg?v=1527299503&width=713" alt="cover-image" width="200"/>
+
+- [Magical Woman Chimaka](https://hivemill.com/products/mahou-josei-chimaka-magical-woman-chimaka)
+
+    >*Fifteen years ago, magical girl Shimmer Shimmer Sky Patcher Chimaka lost her final battle against her greatest foe, broke up with her “destined” boyfriend, and practically flunked out of school. Now a chemical engineer, Chimaka is older, wiser, and a lot more bitter. But when her ancient enemy grows restless again, it’s up to Chimaka and her best friend Pippa to reignite Chimaka’s old magic…and save the world!*
 
 ---
 
@@ -1221,6 +1317,45 @@
 
     >*Her clan destroyed, her family murdered by vampires, Chinatsu, a once-proud female ninja, had nothing left to live for ― save revenge! In this centuries-spanning tale of bloodlust and betrayal, Chinatsu, now a vampire herself, tracks the dark lord that turned her all those long years ago. Immortality has only made her need for vengeance stronger as she hunts him across the globe, through myriad time periods, battling the undead minions that rise up to stop her!*
 
+---
+
+**Iron Circus Comics**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4f337a8e-1eaf-481b-8d94-02fcceef8500" alt="cover-image" width="200"/>
+    
+- [The Sea in You](https://tapas.io/series/theseainyou/info) [<sup>Iron Circus Comics</sup>](https://ironcircus.com/product/the-sea-in-you/)
+
+    >*15-year-old Corinth was just trying to clean up the beach; she never expected to meet a mermaid, let alone be nearly drowned by one. But a storm is brewing—both at sea, and in Corinth's increasingly dangerous relationship with her obsessively jealous boyfriend—and a magical bargain may be the only thing that can save her . . . at a tremendous cost.*
+    >
+    >*After Skylla, the deadly fanged mermaid, mysteriously lets Corinth live, they grow closer through a cautious exchange of stories, gifts, jokes, and sign language. Bewitched by Corinth and their growing bond, Skylla learns about all the best things in life on land: books, burgers, donuts . . . and this strange, chattering human sound called laughter.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/dca047cc-876d-445c-9434-3e831cd46d2c" alt="cover-image" width="200"/>
+    
+- [Patience & Esther: An Edwardian Romance](https://ironcircus.com/product/patience-esther-an-edwardian-romance/)
+
+    >*Patience, a kindhearted country girl, ekes out a living in Edwardian England, as tremors of social change rock the world around her. But when she begins her employment in formal service on the grounds of an opulent country manor, she has no idea that her own personal revolution is about to begin.*
+    >
+    >*Selfless, dutiful, and just a touch naive, she takes to both her place as a parlor maid and to her new roommate, the bookish and progressive lady's maid, Esther.*
+    >
+    >*In another time, the two women would have been happy to quietly keep in one another's company forever in their little attic bedroom, living out their days in the employ of a lord. But it's the dawn of a new age. The expanding empire has brought their country not only plundered wealth, but worldliness and new ideas.*
+    >
+    >*Patience and Esther come to realize the world is wider and full of more adventure and opportunity than they ever imagined . . . so long as they find the will to seize it.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/cf819724-9493-4278-ac2c-d43adbe5d381" alt="cover-image" width="200"/>
+    
+- [The Chancellor and the Citadel](https://ironcircus.com/product/the-chancellor-and-the-citadel/)
+
+    >*The world is over. All that remains is the Citadel, and the Chancellor who protects it from the hostility beyond its walls. But what can she do when a fearful and angry mob is convinced she brought the world to ruin in the first place, and are determined to make her pay for it by destroying the one bastion of hope the world has left?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/438a2134-a755-4001-9b75-368439ce83e6" alt="cover-image" width="200"/>
+
+- [Meal](https://ironcircus.com/product/meal/)
+
+    >*Yarrow is a young chef determined to make her mark on the cutting edge of cookery with her insect-based creations. Though her enthusiasm is infectious, it rubs some of her fellow cooks the wrong way, especially Chanda Flores, Yarrow's personal hero and head chef of an exciting new restaurant. Her people have been eating bugs for centuries, and she's deeply suspicious of this newbie's attempt to turn her traditions into the next foodie trend. While Chanda and her scrappy team of talented devotees struggle to open on time, Yarrow must win over Chanda—and Milani, the neighbor she's been crushing on for weeks—or lose this once-in-a-lifetime opportunity to achieve her dreams.*
 
 ---
 
@@ -1315,7 +1450,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/998e12ec-f141-4d65-9e67-dc2c28f0a3f6" alt="cover-image" width="200"/>
 
-- [America Chavez: Made in the USA](https://www.marvel.com/comics/series/29493/america_chavez_made_in_the_usa_2021) <sup>Ameroca Chavez Broke up with her girlfriend.</sup>
+- [America Chavez: Made in the USA](https://www.marvel.com/comics/series/29493/america_chavez_made_in_the_usa_2021) <sup>America Chavez Broke up with her girlfriend.</sup>
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8eb74ab7-562c-48e9-bc1d-27106f41668d" alt="cover-image" width="200"/>
@@ -1330,6 +1465,17 @@
 - [Doctor Aphra](https://www.marvel.com/comics/series/29161/star_wars_doctor_aphra_2020_-_present)
 
     >*NEW CREW, NEW MISSION! With the Rebel Alliance back on the run after their defeat at the Battle of Hoth, it’s never been a more dangerous time for outlaws, scoundrels and the errant rogue archaeologist to make their way in the galaxy. But after a string of bad luck and near escapes, DOCTOR APHRA is back on the job! She’s been keeping a low profile – jobs are scarce and credits scarcer. But the promise of the score of a lifetime is a chance too good for her to pass up. And to find the cursed RINGS OF VAALE, Aphra will need a crew of treasure hunters the likes of which the galaxy has never seen before! But RONEN TAGGE, heir to the powerful Tagge family, also has his eyes on the prize. Do Aphra and her team stand a chance at fortune and glory?*
+
+---
+
+**Nobrow**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/5f805d83-3ad0-4133-b06b-e6ce25f27803" alt="cover-image" width="200"/>
+
+- [Thieves](https://nobrow.net/book/thieves/)
+
+    >*Ella can’t seem to remember a single thing from the party the night before at a mysterious stranger’s mansion, and she sure as heck doesn’t know why she’s woken up in her bed surrounded by a magpie’s nest of objects that aren’t her own. And she can’t stop thinking about her huge crush on Madeleine, who she definitely can’t tell about her sudden penchant for kleptomania… But does Maddy have secrets of her own? Can they piece together that night between them and fix the mess of their chaotic personal lives in time to form a normal, teenage relationship? That would be nice.*
 
 ---
 
@@ -1383,6 +1529,12 @@
 
     >*When the heroic princess Amira rescues the kind-hearted princess Sadie from her tower prison, neither expects to find a true friend in the bargain. Yet as they adventure across the kingdom, they discover that they bring out the very best in the other person. They’ll need to join forces and use all the know-how, kindness, and bravery they have in order to defeat their greatest foe yet: a jealous sorceress, who wants to get rid of Sadie once and for all. Join Sadie and Amira, two very different princesses with very different strengths, on their journey to figure out what “happily ever after” really means—and how they can find it with each other.*
     
+---
+<img src="https://oni-press.myshopify.com/cdn/shop/products/81qrbo16jQL_1080x.jpg?v=1662527776" alt="cover-image" width="200"/>
+
+- [Space Trash](https://oni-press.myshopify.com/products/space)
+
+    >*In 2115, Earth has been abandoned as a lost cause, and humankind has moved on to space colonization. At a decrepit high school on the moon for underprivileged youth, Stab, Yuki, and Una are three teenagers who try to keep their boredom and resentment at bay by fighting rival gangs and cliques, hanging out, and sleeping their way through class, all while trying to avoid punishment from the student council. Fights over turf, respect, and snacks lead to unearthing an exciting secret, but is their friendship strong enough to forge a new future?*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c605d3fc-e11a-4d2c-84b1-11d977286882" alt="cover-image" width="200"/>
@@ -1474,6 +1626,64 @@
     >*Then one night, Morgan is saved from drowning by a mysterious girl named Keltie. The two become friends and suddenly life on the island doesn't seem so stifling anymore.*
     >
     >*But Keltie has some secrets of her own. And as the girls start to fall in love, everything they're each trying to hide will find its way to the surface...whether Morgan is ready or not.*
+
+---
+
+**Silver Sprocket**
+
+---
+<img src="http://store.silversprocket.net/cdn/shop/products/ThatFullMoonFeeling-RGB-SCB.jpg?v=1610758447&width=1946" alt="cover-image" width="200"/>
+
+- [That Full Moon Feeling](https://store.silversprocket.net/products/that-full-moon-feeling-by-ashley-robin-franklin)
+
+    >*A witch and a werewolf go on three disastrous dates in this magical queer romcom. Follow along with Suzy & Jada as they navigate online dating awkwardness, hungry monsters, jealous exes, rude skeletons, boring movies, feelings (!!!) & more!*
+    
+
+---
+<img src="https://store.silversprocket.net/cdn/shop/products/cover_post2.jpg?v=1653538695&width=1946" alt="cover-image" width="200"/>
+
+- [Magical Beatdown](https://store.silversprocket.net/products/magical-beatdown-vol-1-by-jenn-woodall-comic)
+
+    >*Hyper violent street harassment revenge fantasy in the style of Sailor Moon about about an average video-game loving schoolgirl who transforms into a foul-mouthed and rage-fueled Magical Girl when provoked. Watch in awe as she swiftly disposes of street harassers and mutant creeps with her impressive array of magical weapons.*
+    
+---
+<img src="https://store.silversprocket.net/cdn/shop/files/WhenIArrived_Cover.jpg" alt="cover-image" width="200"/>
+
+- [When I Arrived at the Castle](https://store.silversprocket.net/products/when-i-arrived-at-the-castle-by-emily-carroll-1)
+
+    >*Like many before her that have never come back, she’s made it to the Countess’ castle determined to snuff out the horror… but she could never be prepared for what hides within its turrets, what unfurls under its fluttering flags. E.M. Carroll has fashioned a rich gothic horror charged with eroticism that doesn’t just make your skin crawl — it crawls into it.*
+    
+---
+<img src="https://store.silversprocket.net/cdn/shop/files/Influenca_Cover_1.jpg" alt="cover-image" width="200"/>
+
+- [Influenca](https://store.silversprocket.net/products/influenca-by-jade-lft-peters)
+
+    >*Two years ago, the apocalypse started for the seventh time. As the number of zombies rise, so do the ranks of influencas: professional zombie hunters who post their lives online. When Dodie and Beatriz, the accidental founders of the movement, are trapped in their bunker by a persistent horde, what else is there to do but take a romantic vacation?*
+    
+---
+<img src="https://store.silversprocket.net/cdn/shop/products/LSBN_Cover.jpg" alt="cover-image" width="200"/>
+
+- [LSBN](https://store.silversprocket.net/products/lsbn-by-emma-jayne)
+
+    >*After many grueling years of defending against colossal, violent creatures, the machine that will turn the conflict in humanity's favor is nearing completion...until the war unexpectedly comes to a sudden, peaceful resolution.*
+    >
+    >*The world rejoices. However, two women fall into crisis as their life's work becomes obsolete.*
+    >
+    >*Commander Sugimoto and her lead engineer Mischa Polyakov have spent nearly every waking moment together since the project's inception, but without the pretense of their careers and world-ending calamity, do they have a reason to stay in one another's lives?*
+
+---
+<img src="https://store.silversprocket.net/cdn/shop/products/onemilliontinyfires.jpg" alt="cover-image" width="200"/>
+
+- [One Million Tiny Fires](https://store.silversprocket.net/products/one-million-tiny-fires-by-ashley-robin-franklin)
+
+    >*Fusing sexual intimacy with cosmic dread, this queer horror tale follows Briana and Cassie, a couple in an isolated Texas farmhouse, whose rural fantasy has soured into a tense nightmare. After discovering an unknown object that had crash landed from the sky, Briana begins to suspect that something uncanny  is happening to her partner.*
+
+---
+<img src="https://store.silversprocket.net/cdn/shop/products/FuckOffSquad_Cover.jpg" alt="cover-image" width="200"/>
+
+- [Fuck Off Squad](https://store.silversprocket.net/products/fuck-off-squad-by-nicole-goux-and-dave-baker)
+
+    >*Fuck Off Squad by Nicole Goux (Shadow of the Batgirl, Everyone Is Tulip) and Dave Baker (Everyone Is Tulip, Night Hunters) follows three would-be miscreants as they attempt to navigate the trials and tribulations of growing up in Los Angeles. Needless to say, it’s the greatest comic about Instagram, skating, and low-key trying to date someone while you’re still in a relationship ever made.*
 
 ---
 
