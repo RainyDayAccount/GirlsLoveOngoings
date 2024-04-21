@@ -780,12 +780,36 @@
 **Avery Hill Publishing**
 
 ---
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3781bfb4-8a87-4a4f-923f-caa6abcc0335" alt="cover-image" width="200"/>
+<img src="https://assets.bigcartel.com/product_images/297058206/The+Impending+Blindness+of+Billie+Scott+WEB.jpg?auto=format&fit=max&w=1200" alt="cover-image" width="200"/>
 
 - [The Impending Blindness of Billie Scott](https://averyhillpublishing.bigcartel.com/product/the-impending-blindness-of-billie-scott-by-zoe-thorogood-new-edition)
 
-    >*Clementine is a junior in high school who seems average enough: she has friends, family, and the romantic attention of the boys in her school. When her openly gay best friend takes her out on the town, she wanders into a lesbian bar where she encounters Emma: a punkish, confident girl with blue hair. Their attraction is instant and electric, and Clementine find herself in a relationship that will test her friends, parents, and her own ideas about herself and her identity.*
+    >*Billie Scott is an artist.*
+    >
+    >*Her debut gallery exhibition opens in a few months.*
+    >
+    >*Within a fortnight she'll be completely blind.*
+    >
+    >*As Billie struggles to deal with her impending blindness, she sets off on a journey from Middlesbrough to London; into a world of post-austerity Britain and the problems facing those left behind. Her quest is to find ten people to paint for her exhibition, as well as the inspiration to continue with her art, and the strength to move on with her life.*
 
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/dda198a8-da19-4692-a234-090e923a24d8" alt="cover-image" width="200"/>
+
+- [I Love This Part](https://averyhillpublishing.com/articles/i-love-this-part-by-tillie-walden/)
+
+    >*Two girls in a small town in the USA kill time together as they try to get through their days at school.*
+    >
+    >*They watch videos, share earbuds as they play each other songs and exchange their stories. In the process they form a deep connection and an unexpected relationship begins to develop.*
+
+---
+<img src="https://assets.bigcartel.com/product_images/221370508/A+City+Inside+Hardcover.jpg?auto=format&fit=max&w=1200" alt="cover-image" width="200"/>
+
+- [A City Inside](https://averyhillpublishing.bigcartel.com/product/a-city-inside-by-tillie-walden-hardcover-edition)
+
+    >*Shifting between the everyday and the surreal, A City Inside recounts one woman’s life from childhood home, to the first love that she will never forget, to the creation of the idea of herself that she can grow old with and the home that she can grow old in.*
+    >
+    >*Walden’s follow up to the lyrical I Love This Part is a poetic exploration of the process of growing older; the journey towards finding out who you are and building a life for yourself.*
 
 ---
 
@@ -1773,6 +1797,23 @@
 - [Submerged](https://vaultcomics.com/products/submerged-cs)
 
     >*As the biggest storm in history hits New York, Elysia Puente estranged brother calls from the subway begging for help. As the flood waters rise, Elysia descends deeper and deeper into a mysterious and haunting underground in search of Angel.*
+
+---
+
+**West Margin Press**
+
+---
+<img src="https://images-us.bookshop.org/ingram/9781513128757.jpg?height=500&v=v2-ac98b030efd43db0b1d7283c21d66ecb" alt="cover-image" width="200"/>    
+ 
+- [Submerged](https://bookshop.org/p/books/space-story-fiona-ostby/17837038?aid=159&ean=9781513128757&listref=comics-graphic-novels-e1b57630-8104-4b96-84c0-cf766e1dbf07&)
+
+    >*Two women fall in love and start a family on a dying Earth.*
+    >
+    >*Only one escapes to space.*
+    >
+    >*Her family is still on the planet.*
+    >
+    >*They won't give up until they find each other again.*
 
 ---
 
