@@ -848,14 +848,6 @@
     >*Daisy Walker is a Runner for The Compound, a mix of post-apocalyptic postal service and black market salvaging operation. Out beyond the settlement walls are innumerable dangers, but, after a decade of surviving, Daisy isn't phased by any of it - until her lover, another Runner named Heather, goes missing on a job. From writer Vita Ayala (Bitch Planet: Triple Feature, Wonder Woman Annual) and artist Emily Pearson (upcoming Snap Flash Hustle) comes this bold tale of surviving in bleak times.*
     
 ---
-<img src="https://i.kickstarter.com/assets/038/073/080/3723cae271d72158192a8012df6d04e3_original.jpg?fit=scale-down&origin=ugc&q=92&width=680&sig=%2FL7dolwkTEfzMqJwWKloG0rdqxXEg%2BZf7q1ChrZ71BM%3D" alt="cover-image" width="200"/>
-
-- [Destiny, NY](https://blackmaskstore.com/collections/destiny-ny)
-
-    >*Daisy Walker is a Runner for The Compound, a mix of post-apocalyptic postal service and black market salvaging operation. Out beyond the settlement walls are innumerable dangers, but, after a decade of surviving, Daisy isn't phased by any of it - until her lover, another Runner named Heather, goes missing on a job. From writer Vita Ayala (Bitch Planet: Triple Feature, Wonder Woman Annual) and artist Emily Pearson (upcoming Snap Flash Hustle) comes this bold tale of surviving in bleak times.*
-    
-    
----
 
 **BOOM! Studios**
 
@@ -1378,6 +1370,13 @@
 - [A Thing Called Truth](https://imagecomics.com/comics/series/a-thing-called-truth)
 
     >*"A chaotic LGBTQ+ road trip - A workaholic scientist who wants to save the world and a woman who fears nothing but discovering her own destiny find themselves mixed up in a chaotic, on-the-road adventure through Europe.Will they manage to find a middle ground between their opposing ways of life-at least for long enough to complete their mission? And could this trip lead to an unexpected romance?"*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/40e40ef1-4391-432d-82df-32f0c22bf452" alt="cover-image" width="200"/>
+
+- [Crowded](https://imagecomics.com/comics/series/crowded)
+
+    >*Ten minutes in the future, the world runs on an economy of job shares and apps, including Reapr: a crowdfunding platform to fund assassinations. Charlie Ellison leads a quiet, normal life until she's suddenly targeted by a million-dollar Reapr campaign. Hunted by all of Los Angeles, Charlie hires Vita, the lowest-rated bodyguard on the Dfend app. As the campaign picks up speed, they'll have to figure out who wants Charlie dead before the campaign's 30 days-or their lives-are over.*
 
 ---
 
