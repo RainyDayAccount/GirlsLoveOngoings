@@ -1363,6 +1363,21 @@
 - [Drain](https://www.amazon.com/Drain-v-C-B-Cebulski/dp/1582407525)
 
     >*Her clan destroyed, her family murdered by vampires, Chinatsu, a once-proud female ninja, had nothing left to live for ― save revenge! In this centuries-spanning tale of bloodlust and betrayal, Chinatsu, now a vampire herself, tracks the dark lord that turned her all those long years ago. Immortality has only made her need for vengeance stronger as she hunts him across the globe, through myriad time periods, battling the undead minions that rise up to stop her!*
+    
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/dae77d72-dca2-42e8-a82b-13dfc5f07381" alt="cover-image" width="200"/>
+
+- [The Dead Lucky](https://imagecomics.com/comics/series/the-dead-lucky)
+
+    >*San Francisco is changing. Tech consortium Morrow is building the city of the future with "peacekeeper" robots looming on every corner-and wherever Morrow isn't, the Salvation gang is. Bibiana Lopez-Yang is changing too. She came back from Afghanistan with PTSD and the ability to control electrical currents. If she can hold it together, she might be the hero San Francisco needs. But against an enemy this big, it isn't enough to be good. She'll have to be lucky.*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/427689b0-62ae-4ec9-b729-d3870640b400" alt="cover-image" width="200"/>
+
+- [A Thing Called Truth](https://imagecomics.com/comics/series/a-thing-called-truth)
+
+    >*"A chaotic LGBTQ+ road trip - A workaholic scientist who wants to save the world and a woman who fears nothing but discovering her own destiny find themselves mixed up in a chaotic, on-the-road adventure through Europe.Will they manage to find a middle ground between their opposing ways of life-at least for long enough to complete their mission? And could this trip lead to an unexpected romance?"*
 
 ---
 
@@ -1513,6 +1528,28 @@
     >*Reeling from her latest break up, Freddy's best friend, Doodle, introduces her to the Seek-Her, a mysterious medium, who leaves Freddy some cryptic parting words: break up with her. But Laura Dean keeps coming back, and as their relationship spirals further out of her control, Freddy has to wonder if it's really Laura Dean that's the problem. Maybe it's Freddy, who is rapidly losing her friends, including Doodle, who needs her now more than ever.*
     >
     >*Fortunately for Freddy, there are new friends, and the insight of advice columnists like Anna Vice to help her through being a teenager in love.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/83ea45ac-f92a-4fd8-955d-bb219137b145" alt="cover-image" width="200"/>
+
+- [Where Black Stars Rise](https://us.macmillan.com/books/9781250750174/whereblackstarsrise)
+
+    >*Dr. Amal Robardin, a Lebanese immigrant and a therapist in training, finds herself out of her depth when her first client, Yasmin, a schizophrenic, is visited by a nightly malevolent presence that seems all too real.*
+    >
+    >*Yasmin becomes obsessed with Robert Chambers’ classic horror story collection The King in Yellow. Messages she finds in the book lead Yasmin to disappear, seeking answers she can’t find in therapy.*
+    >
+    >*Amal attempts to retrace her patient’s last steps—and accidentally slips through dimensions, ending up in Carcosa, realm of the King in Yellow. Determined to find her way out, Amal enlists the help of a mysterious guide.*
+    >
+    >*Can Amal save Yasmin? Or are they both trapped forever?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/b5955fe8-5b5d-4804-9afa-8f23463f3b68" alt="cover-image" width="200"/>
+
+- [Shadow Life](https://us.macmillan.com/books/9781626723566/shadowlife)
+
+    >*When Kumiko’s well-meaning adult daughters place her in an assisted living home, the seventy-six-year-old widow gives it a try, but it’s not where she wants to be. She goes on the lam and finds a cozy bachelor apartment, keeping the location secret even while communicating online with her eldest daughter. Kumiko revels in the small, daily pleasures: decorating as she pleases, eating what she wants, and swimming in the community pool. But something has followed her from her former residence—Death’s shadow.*
+    >
+    >*Kumiko’s sweet life is shattered when Death’s shadow swoops in to collect her. With her quick mind and sense of humor, Kumiko, with the help of friends new and old, is prepared for the fight of her life. But how long can an old woman thwart fate?*
 
 ---
 
