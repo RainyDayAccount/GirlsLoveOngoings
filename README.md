@@ -344,7 +344,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 - [The Vexations of a Shut-in Vampire Princess](https://mangadex.org/title/c288b108-5162-4065-aa3a-5857ec38c8d9/hikikomari-kyuuketsuki-no-monmon) [<sup>Square Enix - Not Listed as GL</sup>](https://global.manga-up.com/manga/336)
 
     >*Though she was born into a prestigious vampire family, Terakomari Gandesblood, or Komari, is unable to use magic because she refuses to drink blood. After having chosen the life of a professional shut-in, a maid named Villhaze suddenly appears and informs Komari that she has been chosen as the newest General of the Moolnight Empire’s Seventh Battalion (comprising solely of mutinous ruffians)!*
-
+    >
     >*Follow the slapstick struggles of a heroine who takes full advantage of her dumb luck to get out dire situations! Based on the light novel series of the same name.*
 
 ---
@@ -392,7 +392,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 - [Alter Ego](https://mangadex.org/title/3f7fb508-be22-453a-ba33-2631345b529f/alter-ego) [<sup>Tokyopop - New Release on June 25, 2024</sup>](https://tokyopop.com/collections/alphabetical/products/9781427876638_alter-ego-2-noel-and-june)
 
     >*Noel has always been in love with her best friend Elena, but she's never been able to find the courage to confess her feelings. Then, when her friend starts dating a boy, Noel’s world collapses as she sees her chance at love slipping away.*
-
+    >
     >*One night, in a moment of desperation, Noel ends up confessing her feelings for Elena to a complete stranger — but as fate would have it, this stranger turns out to be a girl named June, Elena's other best friend... and Noel's rival in love! Worst of all, now June knows Noel's secret. With everything suddenly going wrong, how can Noel ever win the girl of her dreams?*
 
 ---
@@ -726,9 +726,9 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 - [Lost Youth](https://mangadex.org/title/a4f39f0a-9218-4c88-865f-168078e5d1d0/lost-youth) [<sup>Azuki</sup>](https://www.azuki.co/series/lost-youth) <sup> - Dropped By  [<sup>Comikey</sup>](https://comikey.com/comics/lost-youth-manga/593/)
 
     >*Aine Misabashi, a cheerful second high school grader, has a massive crush towards her popular childhood friend, Riku Shirota. She also has a beautiful best friend, whom she calls as "Princess" that always listen to her insecurity.*
-
+    >
     >*Everything seems like an ordinary innocent youth drama until Aine saw Riku kissing another girl even though he always said that Aine is the only one he has. Moreover, the girl that he kissed is...*
-
+    >
     >*Is there any purity in this tangled friendship and romantic relationship? What will Aine do when another important person to her also has a feeling towards her...*
 
 ---
@@ -928,7 +928,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 - [The Goddess](https://tapas.io/series/TheEnvoysGoddess/info)
 
     >*Fantasy Slow Burn GL*
-
+    >
     >*Story about lousy guards kidnapping a goddess.*
 
 ---
@@ -1002,7 +1002,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
     >*A polite and lethargic boy was reincarnated in another world as a vampire bishoujo. In this world of swords and magic, this protagonist who was reborn replete with all kinds of cheat powers was searching for one thing??!*
 
     >*"Three meals a day, snacks and an afternoon nap, I guess."*
-
+    >
     >*Are you really the protagonist!? And thus begins the fantasy comedy of a vampire looking for the ideal moocher lifestyle.*
 
 ---
@@ -1025,16 +1025,16 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 - [Liar Satsuki Can See Death](https://mangadex.org/title/fac1870c-2ca1-439c-bd97-020dbbd732f0/usotsuki-satsuki-wa-shi-ga-mieru) <sup>GL Subtext on Mangaupdates</sup>
 
     >*"Hey... Tomorrow, you're going to die."*
-
+    >
     >*Minazuki Satsuki, 16 years old. By all accounts your average 2nd year high schooler, apart from being a social misfit always declaring her classmates' impending deaths.
 They've nicknamed her Usotsuki (Liar).*
-
+    >
     >*But her eyes alone are special. What she sees with them are...*
-
+    >
     >*The grand return of Ryoko-sensei, author of Shi ni Aruki!*
-
+    >
     >*A horror-suspense manga fighting backwards against fate.*
-
+    >
     >*--For every death(question), there must be a reason(solution)--*
 
 ---
@@ -1059,7 +1059,7 @@ They've nicknamed her Usotsuki (Liar).*
     >*Vilified by others as a "witch", Evris, the youngest daughter of the House of Bradley, is engaged to Mark, the fifth prince of the Kingdom of Klengel. When he abruptly announces that their engagement is broken off, Evris is plunged into despair. However, someone reaches out to her instead... The cross-dressing crown prince (♀) of a neighboring country!?*
 
     >*This is the story of a red-haired witch who manipulates shadows and a cross-dressing crown prince (♀) who is serving as a body double for her missing older brother.*
-
+    >
     >*The curtain rises on a fantasy romantic comedy of a girl being teased by a princess!*
 
 ---
@@ -1110,7 +1110,7 @@ They've nicknamed her Usotsuki (Liar).*
 - [There's No Way I Could Date My Fave!](https://mangadex.org/title/3d287418-9bd7-4bf4-b71b-1c4512812a50/oshi-to-no-yuri-wa-arienai)
 
     >*It's a yuri manga!! It's original!!*
-
+    >
     >*A wholesome all-ages manga that isn't illegal at all! 😇😇😇*
 
 ---
@@ -1119,7 +1119,7 @@ They've nicknamed her Usotsuki (Liar).*
 - [Sexiled: My Sexist Party Leader Kicked Me Out, So I Teamed Up with a Mythical Sorceress!](https://mangadex.org/title/4aee683e-ad5f-4fdb-a803-b873a806a28c/onna-dakara-to-party-wo-tsuihou-sareta-no-de-densetsu-no-majo-to-saikyou-tag-wo-kumimashita)
 
     >*Tanya Artemisiov is a talented Mage-class adventurer who just got kicked out of her party by a sexist scumbag. So what's a girl to do? Go to the wasteland and blow stuff up of course! One small problem though: she inadvertently frees a mythical Sorceress named Laplace who was sealed away for the past 300 years...*
-
+    >
     >*Surprise! Turns out this so-called "wicked" Sorceress is actually pretty cool. Laplace wants to start a party of her own, Tanya wants revenge, and the solution is obvious: team up. It's time to kick ass, kiss girls, and dismantle the patriarchy!*
 
 ---
@@ -1263,7 +1263,7 @@ They've nicknamed her Usotsuki (Liar).*
 - [My Friend's Abnormally Cute Sister](https://mangadex.org/title/1a91719c-1009-482a-9915-389a366505e7/osananajimi-no-ijou-kawaii-imouto-chan)
 
     >*Yanagi, a second-year high school student, has a faint crush on Mizuki, the younger sister of her childhood friend Momo.*
-
+    >
     >*One day, while rummaging through Mizuki's personal belongings in her room, Yanagi discovers the truth about Mizuki...?*
 
 ---
@@ -1342,9 +1342,9 @@ They've nicknamed her Usotsuki (Liar).*
 - [How I Lose Bets With My Sadistic Gifted Childhood Friend and She Steals All of My Firsts](https://mangadex.org/title/cdf75cd8-4e87-4bde-a430-44ea174cc035/shouwaru-tensai-osananajimi-to-no-shoubu-ni-makete-hatsutaiken-o-zenbu-ubawareru-hanashi)
 
     >*A twisted girls' love story featuring: A devilish girl hiding behind the mask of an honor student x An ordinary girl who hates losing.*
-
+    >
     >*Wakaba Yoshizawa has a childhood friend named Komaki Umezono.*
-
+    >
     >*This girl wore the mask of an honor student with good morals who's blessed with both beauty and brains, but in reality she's an evil genius who looked down on people. For the sake of regaining the dignity she lost to Komaki, Wakaba challenges her to a match, but Komaki tells her "Each time I win, I will take one precious thing from you." as a condition!? Every time she loses to the girl she "hates", her true feelings get exposed.*
 
 ---
@@ -1360,7 +1360,7 @@ They've nicknamed her Usotsuki (Liar).*
 - [The Villainess Who Steals the Heroine's Heart](https://mangadex.org/title/4b4ed76c-ca51-4d44-aaa4-d2398919fe09/the-villainess-who-steals-the-heroine-s-heart)
 
     >*Akuya, the prince's fiancee, is as infamous as she is beautiful. Despite her position, she falls in love at first sight with Sei, a commoner who is becoming a rising star thanks to her talents and cuteness.*
-
+    >
     >*One day, the prince makes the stunning announcement that he is breaking off his engagement! Seeing a chance to strike while the iron is hot, Akuya decides to steal Sei away with sizzling hot and erotic words of love...*
 
 ---
@@ -1396,9 +1396,9 @@ They've nicknamed her Usotsuki (Liar).*
 - [The Princess of Sylph](https://mangadex.org/title/927617bf-a212-44d6-9ff0-3d941fbaae2a/the-princess-of-sylph)
 
     >*In the Land of Wind, in the imperial capital of Ventfleur, Princess Natalia is enthroned after the loss of her family.*
-
+    >
     >*The princess, idolized by her people as a "child of the spirits", only has her family's royal blade to assuage her grief. And in her mourning, she's approached by the cheery and elusive Sister Sara... who declares to stay at the princess' side as her duty, as a sister of the cloth. Or is she after something more...?*
-
+    >
     >*So begins the fantasy yuri adventure of a lonesome princess and meddlesome nun!*
 
 ---
@@ -1467,9 +1467,9 @@ They've nicknamed her Usotsuki (Liar).*
 - [The White Maidens' Werewolf](https://mangadex.org/title/bd0f8a88-6846-4a6f-814b-4aa97c80f78f/the-white-maidens-werewolf) <sup>Same Artist as</sup> [<sup>Failed Princesses</sup>](https://sevenseasentertainment.com/series/failed-princesses/)
 
     >*Hakurai Private Academy, a boarding school where young ladies receive a higher education in bridehood.
-    
+    >    
     >*Should the maidens lose their “purity” during the three year course, they are immediately expelled, losing any chance at their dreams of becoming brides. For the girls living at this school, it is a future they consider worse than death.*
-    
+    >
     >*One day, something happens in the dormitory of the student council! In their midst is a two-faced wolf aiming for their purity - and it is up to them to pull back the mask!*
 
 ---
@@ -1500,8 +1500,21 @@ They've nicknamed her Usotsuki (Liar).*
 - [Wanna Skip School in the Infirmary?](https://mangadex.org/title/a6246828-0577-4aaf-9478-371b52e6634d/wanna-skip-school-in-the-infirmary) <sup>Same Creator as</sup> [<sup>A Collar Only For You</sup>](https://www.pocketcomics.com/comic/7491) <sup> and </sup> [<sup>I Wanna Spoil Yoroizuka-san!</sup>](https://mangadex.org/title/69d9d31d-a435-4f5d-8fbb-3ab93fab16f9/i-wanna-spoil-yoroizuka-san)
 
     >*Miyake Mia has always worn the mask of an exemplary student. Recently, however, there is someone who draws a lot of attention to her. That's Nurse Morikubo, who is rumored to be a "delinquent" within the school....*
-
+    >
     >*A pure love story between a high school student who hides her true self and a delinquent "nurse teacher"!*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/924dd2e3-a4ae-43bb-92cd-4b36896c2014" alt="cover-image" width="200"/>
+
+- [Voice First, Face Second, Hollyhock](https://mangadex.org/title/f7f170ed-3819-4952-bd89-2de784fcef11/ichikoe-nifuri-tachiaoi) <sup>Same Creator as</sup> [<sup>Monthly in the Garden with My Landlord</sup>](https://yenpress.com/series/monthly-in-the-garden-with-my-landlord)
+
+    >*A brand new girl-meets-girl story, woven together by two people with completely opposite “looks” and “personas”!*
+    >
+    >*Cram school teacher Kataoka Aoi was born with a beautiful face. From an early age, she always garnered the affection of everyone around her, yet the countless dramas it caused made her desire a quiet, modest life instead.*
+    >
+    >*One day, she (reluctantly) accepts the principal’s request to act in their school’s commercial. But it quickly goes viral, resulting in her becoming popular inside and outside of the cram school, drawing attention wherever she goes.*
+    >
+    >*Amidst the attention, the well-known and quirky store clerk, Yamada, approaches her and then…*
 
 ---
 
