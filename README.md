@@ -410,6 +410,17 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
 ---
 
+**Black Mask Studios**
+
+---
+<img src="https://i.kickstarter.com/assets/038/073/080/3723cae271d72158192a8012df6d04e3_original.jpg?fit=scale-down&origin=ugc&q=92&width=680&sig=%2FL7dolwkTEfzMqJwWKloG0rdqxXEg%2BZf7q1ChrZ71BM%3D" alt="cover-image" width="200"/>    
+    
+- [Destiny, NY](https://blackmaskstudios.com/destiny-ny/) [<sup>Being Adapted to TV</sup>](https://deadline.com/2023/04/black-mask-graphic-novel-destiny-ny-series-adaptation-tegan-sara-sony-pictures-television-1235316979/)
+
+    >*Logan grew up in a boarding school for children with magical prophecies, but she fulfilled her destiny so young that she’s now having a midlife crisis despite being in her 20s. When she falls for the estranged daughter of a mystical crime family, Logan’s new love puts the entire school in jeopardy.*
+
+---
+
 **Dark Horse Comics**
 
 ---
@@ -475,13 +486,6 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 - [Clementine](https://imagecomics.com/comics/series/clementine)
 
     >*The trilogy marks the graphic novel debut of Clementine, star of the massively successful Telltale Games video game. In Book One, Clementine discovers new allies, new rivals, and new love. But as the group tries to build a walker-free settlement in an abandoned ski resort, they soon discover that the biggest threat to their survival...is each other.*
-
----
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/40e40ef1-4391-432d-82df-32f0c22bf452" alt="cover-image" width="200"/>
-
-- [Crowded](https://imagecomics.com/comics/series/crowded)
-
-    >*Ten minutes in the future, the world runs on an economy of job shares and apps, including Reapr: a crowdfunding platform to fund assassinations. Charlie Ellison leads a quiet, normal life until she's suddenly targeted by a million-dollar Reapr campaign. Hunted by all of Los Angeles, Charlie hires Vita, the lowest-rated bodyguard on the Dfend app. As the campaign picks up speed, they'll have to figure out who wants Charlie dead before the campaign's 30 days-or their lives-are over.*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/5278f82a-94b8-4dff-97ca-71b80645274b" alt="cover-image" width="200"/>
