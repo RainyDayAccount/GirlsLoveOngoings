@@ -5,7 +5,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/0e9400b9-4b73-46bc-9a80-a92bd62bd1ed" alt="cover-image" width="200"/>
 
-- [Kase-san and Yamada](https://mangadex.org/title/8d612ce8-2d6f-464b-8d0d-98c0352cc146/yamada-to-kase-san) [<sup>Seven Seas - New Release on Apr 16, 2024</sup>](https://sevenseasentertainment.com/series/kase-san-and/)
+- [Kase-san and Yamada](https://mangadex.org/title/8d612ce8-2d6f-464b-8d0d-98c0352cc146/yamada-to-kase-san) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/kase-san-and/)
 
     >*Yamada and Kase are now college freshmen living separately in Tokyo, and trying to sustain their loving relationship in an environment that is more open than what they're used to.*
 
@@ -33,7 +33,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3ea777db-64f6-4d6a-acd4-4acb347185e2" alt="cover-image" width="200"/>
 
-- [Does it Count if You Lose Your Virginity to an Android?](https://mangadex.org/title/143a116f-8e1d-4f9b-9794-9fb8fc8f56dc/android-wa-keiken-ninzuu-ni-hairimasu-ka) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/does-it-count-if-you-lose-your-virginity-to-an-android/)
+- [Does it Count if You Lose Your Virginity to an Android?](https://mangadex.org/title/143a116f-8e1d-4f9b-9794-9fb8fc8f56dc/android-wa-keiken-ninzuu-ni-hairimasu-ka) [<sup>Seven Seas - New Release on Sep 24, 2024</sup>](https://sevenseasentertainment.com/series/does-it-count-if-you-lose-your-virginity-to-an-android/)
 
     >*Beautiful, brainy Tsuda Akane is indispensable at the robotics manufacturer where she works, but her colleagues never saw her private side. At home, Akane’s a hot mess with an apartment that looks more like a landfill than a living space. When she drunkenly orders a maid to help her tidy up, the lady android who arrives is a horny hottie who’s about to give Akane more service than she bargained for!*
 
@@ -47,7 +47,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/49ef7387-cabe-458b-9f2f-8e5b3df4d0fe" alt="cover-image" width="200"/>
 
-- [My Girlfriend's Not Here Today](https://mangadex.org/title/215e3ced-247e-4f34-8e1a-27b60ffef8ac/my-girlfriend-s-not-here-today) [<sup>Seven Seas. Releasing May 2024.</sup>](https://sevenseasentertainment.com/2023/09/20/seven-seas-licenses-my-girlfriends-not-here-today-yuri-girls-love-manga-series/) <sup> - Same Creator as </sup> [<sup>Transparent Light Blue</sup>](https://sevenseasentertainment.com/series/transparent-light-blue/)
+- [My Girlfriend's Not Here Today](https://mangadex.org/title/215e3ced-247e-4f34-8e1a-27b60ffef8ac/my-girlfriend-s-not-here-today) [<sup>Seven Seas - Releasing May 21, 2024</sup>](https://sevenseasentertainment.com/series/my-girlfriends-not-here-today/) <sup> - Same Creator as </sup> [<sup>Transparent Light Blue</sup>](https://sevenseasentertainment.com/series/transparent-light-blue/)
 
     >*It's a secret that I'm dating the love of my life at school. There's no way I can tell anyone, especially when we're both girls. But I can't help my feelings from slipping out in the background. It's not the ideal way to be a couple, but I can put up with it because I really love her... But such loneliness has also nurtured dark thoughts in my head.*
 
@@ -138,7 +138,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/309b84f1-7980-466e-9353-37b7b7319f6f" alt="cover-image" width="200"/>
 
-- [ROLL OVER AND DIE: I Will Fight for an Ordinary Life with My Love and Cursed Sword!](https://mangadex.org/title/25e145f0-a74f-48b6-9d89-b715e28f6417/roll-over-and-die-i-will-fight-for-an-ordinary-life-with-my-love-and-cursed-sword) [<sup>Seven Seas - New Release on Apr 30, 2024 - Not Listed as GL</sup>](https://sevenseasentertainment.com/series/roll-over-and-die-i-will-fight-for-an-ordinary-life-with-my-love-and-cursed-sword-manga/)
+- [ROLL OVER AND DIE: I Will Fight for an Ordinary Life with My Love and Cursed Sword!](https://mangadex.org/title/25e145f0-a74f-48b6-9d89-b715e28f6417/roll-over-and-die-i-will-fight-for-an-ordinary-life-with-my-love-and-cursed-sword) [<sup>Seven Seas - Not Listed as GL</sup>](https://sevenseasentertainment.com/series/roll-over-and-die-i-will-fight-for-an-ordinary-life-with-my-love-and-cursed-sword-manga/)
 
     >*To vanquish the increasingly powerful Demon Lord, divine revelation ordained a party of heroes, each blessed with a unique power. That spelled trouble for Flum Apricot, a total weakling of a girl who has no idea what her power of “Reversal” even does. Betrayed and left behind with a wretched slave trader who enjoys nothing more than seeing his merchandise fight for their lives, Flum thinks all hope is lost—until she gets her hand on a massive, cursed sword. Finally, after so many years, she understands the nature of her power, and both she and her new companion Milkit are about to experience a huge “Reversal” of their fate!*
 
@@ -279,14 +279,14 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a9227e06-1ea2-4688-9cd5-13849fa8368e" alt="cover-image" width="200"/>
 
-- [Yuri is My Job!](https://mangadex.org/title/12f92897-ad75-4c54-baed-b2834a9d8082/watashi-no-yuri-wa-oshigoto-desu) [<sup>Kodansha - New Release on Apr 23, 2024</sup>](https://kodansha.us/series/yuri-is-my-job/)
+- [Yuri is My Job!](https://mangadex.org/title/12f92897-ad75-4c54-baed-b2834a9d8082/watashi-no-yuri-wa-oshigoto-desu) [<sup>Kodansha</sup>](https://kodansha.us/series/yuri-is-my-job/)
 
     >*Hime is a picture-perfect high school princess—she’s admired by all and never trips up! So when she accidentally injures a café manager named Mai, she’s willing to cover some shifts to keep her facade intact. To Hime’s surprise, the café is themed after a private school where the all-female staff always puts on their best act for their loyal customers. However, under the guidance of the most graceful girl there, Hime can’t help but blush and blunder! Beneath all the frills and laughter, Hime feels tension brewing as she finds out more about her new job and her budding feelings…*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/2b95308f-a5bd-45e5-9feb-b1edc6eabb0d" alt="cover-image" width="200"/>
 
-- [The Moon on a Rainy Night](https://mangadex.org/title/c8a0426d-539b-4f6a-9537-fbccf4962529/the-moon-on-a-rainy-night) [<sup>Kodansha</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/) <sup> - Same Creator as </sup> [<sup>Living With My Brother's Wife</sup>](https://global.manga-up.com/manga/33)
+- [The Moon on a Rainy Night](https://mangadex.org/title/c8a0426d-539b-4f6a-9537-fbccf4962529/the-moon-on-a-rainy-night) [<sup>Kodansha - New Release on Jun 11, 2024</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/) <sup> - Same Creator as </sup> [<sup>Living With My Brother's Wife</sup>](https://global.manga-up.com/manga/33)
 
     >*One rainy night, Saki is rushing to a piano lesson when she crashes into a beautiful, long-haired girl, dropping her sheet music in the process. Saki stutters an apology, but the girl simply hands back her sheet music and leaves without a word. Saki begins her first day of high school the following morning, only to find the stranger from the night before sitting at the desk next to hers. She learns that the girl’s name is Kanon and that she is not quite completely deaf, but very hard of hearing. Though Kanon needs to be close to people to read their lips, she tends to push people away with her icy demeanor. Through one kind gesture, Saki slowly begins breaking down the walls around Kanon, even as she feels something new blossoming within her.*
 
@@ -339,7 +339,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
     >*In this sci-fi/fantasy survival thriller, the dangerous and deadly realm of the Otherside--where urban legends, cryptids, and folkloric legends roam--calls to two women, both in search of something. As they set out to sate their curiosity and explore this other world, will the most earth-shattering thing they discover on the Otherside be their feelings for each other?*
 
 ---
-<img src="https://global-img.manga-up.com/r1M/en/manga_main/336.webp?h=Px20O3_5msDwXhzUXFcWyQ&e=1710979200" alt="cover-image" width="200"/>
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/f5c6c104-1813-4b14-b182-5ddd0b80b00b" alt="cover-image" width="200"/>
 
 - [The Vexations of a Shut-in Vampire Princess](https://mangadex.org/title/c288b108-5162-4065-aa3a-5857ec38c8d9/hikikomari-kyuuketsuki-no-monmon) [<sup>Square Enix - Not Listed as GL</sup>](https://global.manga-up.com/manga/336)
 
@@ -348,14 +348,14 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
     >*Follow the slapstick struggles of a heroine who takes full advantage of her dumb luck to get out dire situations! Based on the light novel series of the same name.*
 
 ---
-<img src="https://global-img.manga-up.com/WV7/en/manga_main/291.webp?h=fkpcdgnKEKTOgWVHZOiWLw&e=1710979200" alt="cover-image" width="200"/>
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/1815907d-9873-4f31-8f32-4143148da3f6" alt="cover-image" width="200"/>
 
 - [Making Magic: The Sweet Life of a Witch Who Knows an Infinite MP Loophole](https://mangadex.org/title/2f90e7e5-16b4-41f5-b717-137cf9783b5b/i-became-a-magical-cheat-witch-creative-magical-life-in-another-world?tab=comments) [<sup>Square Enix - Novel Only Listed as GL</sup>](https://global.manga-up.com/manga/291)
 
     >*Meet Chise, a young girl who is reborn in a new world with her old memories lost. A goddess grants her the gift of 'Creation Magic' under one condition - that she enjoys her new life! Together with Teto, a golem she creates, Chise embarks on an enchanting journey across the world.*
 
 ---
-<img src="https://global-img.manga-up.com/842/en/manga_main/33.webp?h=ZFrbi-QTgjFOuDF4Rip92Q&e=1710979200" alt="cover-image" width="200"/>
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d88df8a4-d35b-4d5a-8fe0-bc5f69b0d816" alt="cover-image" width="200"/>
 
 - [Living With My Brother's Wife](https://mangadex.org/title/6204ff54-c3d5-4645-b21f-f83f6fa303d0/ani-no-yome-to-kurashite-imasu) [<sup>Square Enix - Not Listed as GL</sup>](https://global.manga-up.com/manga/33) <sup> - Same Creator as </sup> [<sup>The Moon on a Rainy Night</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/)
 
@@ -722,22 +722,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 
 ---
 
-**Azuki**
-
----
-<img src="https://production.image.azuki.co/ff61b08d-d10a-41b3-be3d-8e662e1e56b8/800_2-3.webp" alt="cover-image" width="200"/>
-
-- [Lost Youth](https://mangadex.org/title/a4f39f0a-9218-4c88-865f-168078e5d1d0/lost-youth) [<sup>Azuki</sup>](https://www.azuki.co/series/lost-youth) <sup> - Dropped By  [<sup>Comikey</sup>](https://comikey.com/comics/lost-youth-manga/593/)
-
-    >*Aine Misabashi, a cheerful second high school grader, has a massive crush towards her popular childhood friend, Riku Shirota. She also has a beautiful best friend, whom she calls as "Princess" that always listen to her insecurity.*
-    >
-    >*Everything seems like an ordinary innocent youth drama until Aine saw Riku kissing another girl even though he always said that Aine is the only one he has. Moreover, the girl that he kissed is...*
-    >
-    >*Is there any purity in this tangled friendship and romantic relationship? What will Aine do when another important person to her also has a feeling towards her...*
-
----
-
-**Lilyka Manga(Active?)**
+**Lilyka**
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/7715edee-6ebd-43aa-aa8b-e3224b4f49e3" alt="cover-image" width="200"/>
@@ -871,6 +856,13 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 - [Unnie, I Like You](https://www.webtoons.com/en/canvas/unnie-i-like-you/list?title_no=652951) [<sup>Coming Soon</sup>](https://www.webtoons.com/en/creator/58998/posts/500-58998-lfm8)
 
     >*Park Chanmi is a cold-looking athletics freshman who remembers her past life. In past life, she loved the beautiful girl, but couldn't confess to her because the girl was already in love with a man and her life ended early and tragically. In this life, Chanmi thinks that everything will happen again, so she wants to protect her beloved one. But now her beloved one is a teacher at the university where Chanmi is studying.*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/cd635e33-703e-4733-8317-37e2d467916c" alt="cover-image" width="200"/>
+
+- [The Siren's Light](https://www.webtoons.com/en/canvas/the-sirens-light-gl/list?title_no=658256) [<sup>Coming Soon</sup>](https://www.webtoons.com/en/canvas/the-sirens-light-gl/announcement/viewer?title_no=658256&episode_no=104)
+
+    >*In a coastal town haunted by an ominous warning, "Never sail into the sea when your heart bears the weight of sorrow," Jaena, burdened by the pain of a recent breakup, stumbles upon a mystical encounter that changes her life forever. As the deep sea threatens to swallow her whole, an alluring beauty emerges from the depths, followed by a kiss that ignites a bond between two worlds — that of a human and an annoying, flirtatious siren.*
 
 ---
 
@@ -1022,24 +1014,6 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 - [I Won't Sleep with You for Free](https://mangadex.org/title/73962987-7e02-4126-8405-4d75c2188d7f/tada-de-wa-dakaremasen)
 
     >*Miyako Kirishima, a university student and aspiring teacher, is a poor girl who enjoys being frugal. One day, she has a meal with Yui Nakano, her friend whom she occasionally tutors. On the way home, Yui invites her to a love hotel. Miyako is reluctant, unwilling to have sex with a friend. However, Yui cuts her off, offering her 30000 yen for sex! Subsequently, Miyako ends up in more "transactions" with her other friends at her women's university!? The curtain rises on a tale of yuri, friendship, money, and sex♡.*
-
----
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/07f1828e-2a93-46f3-b839-6ba846998eee" alt="cover-image" width="200"/>
-
-- [Liar Satsuki Can See Death](https://mangadex.org/title/fac1870c-2ca1-439c-bd97-020dbbd732f0/usotsuki-satsuki-wa-shi-ga-mieru) <sup>GL Subtext on Mangaupdates</sup>
-
-    >*"Hey... Tomorrow, you're going to die."*
-    >
-    >*Minazuki Satsuki, 16 years old. By all accounts your average 2nd year high schooler, apart from being a social misfit always declaring her classmates' impending deaths.
-They've nicknamed her Usotsuki (Liar).*
-    >
-    >*But her eyes alone are special. What she sees with them are...*
-    >
-    >*The grand return of Ryoko-sensei, author of Shi ni Aruki!*
-    >
-    >*A horror-suspense manga fighting backwards against fate.*
-    >
-    >*--For every death(question), there must be a reason(solution)--*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/f972a577-89e4-413c-b8b0-352745645910" alt="cover-image" width="200"/>
@@ -1604,13 +1578,6 @@ They've nicknamed her Usotsuki (Liar).*
 - [Eldritch Darling](https://www.webtoons.com/en/canvas/eldritch-darling/list?title_no=821877)
 
     >*What if we kissed and we were both girls? And one of us was an oblivious human and the other was a dark eldritch abomination creature from beyond the stars?? [updates fridays]*
-
----
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/cd635e33-703e-4733-8317-37e2d467916c" alt="cover-image" width="200"/>
-
-- [The Siren's Light](https://www.webtoons.com/en/canvas/the-sirens-light-gl/list?title_no=658256)
-
-    >*In a coastal town haunted by an ominous warning, "Never sail into the sea when your heart bears the weight of sorrow," Jaena, burdened by the pain of a recent breakup, stumbles upon a mystical encounter that changes her life forever. As the deep sea threatens to swallow her whole, an alluring beauty emerges from the depths, followed by a kiss that ignites a bond between two worlds — that of a human and an annoying, flirtatious siren.*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/0c8171cb-d7db-448d-86d8-784ade65a249" alt="cover-image" width="200"/>
