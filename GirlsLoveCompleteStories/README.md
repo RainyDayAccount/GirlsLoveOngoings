@@ -1197,7 +1197,7 @@
     >*Everything comes crashing down the day Kai learns the deadly secret about her mother’s past. Now she must come to terms with the truth about her identity and take her destiny into her own hands. As Kai desperately searches for a way to escape her fate, she comes to find compassion, and even love, in the most unexpected places.*
 
 ---
-<img src="https://www.harpercollins.com/cdn/shop/files/9780358567028.jpg?v=1712405452&width=350" alt="cover-image" width="200"/>
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/cc93a116-e4cd-43a1-916d-8bd8f1550b76" alt="cover-image" width="200"/>
 
 - [The Hills of Estrella Roja](https://www.harpercollins.com/products/the-hills-of-estrella-roja-ashley-robin-franklin?variant=40765912875042)
 
@@ -1815,6 +1815,13 @@
 - [The Cold Ever After](https://titan-comics.com/c/1997-the-cold-ever-after/)
 
     >*“She lost everything when she fell in love with her Queen. Now she has a week to find a missing princess, or she’ll lose it all again… along with her head.”   Ten years after her disgrace and exile, Sir Noelani Mahi’ai – former Royal Champion of the kingdom of Patria Lupi and Queen’s protector – has been hiding under a rock at the bottom of a bottle and hasn’t lifted a sword in all that time. Until one day, the Queen summons Noelani to find her daughter who has mysteriously disappeared the night before her wedding.   Given one week to recover the princess, Noelani is forced to confront a baffling mystery, a terrifying adversary and her own past to save the kingdom. But not everything is as it seems in Patria Lupi, and in seven days she may not have a life to get back on track.*
+    
+---
+<img src="https://dyn.media.titan-comics.com/JZM7rXZ6C5Pp7h3op9Otz5YUzK0=/300x0/https://media.titan-comics.com/comics/issues/BurstAngelVol1.jpg" alt="cover-image" width="200"/>
+
+- [Burst Angel](https://mangadex.org/title/608ceab6-b924-4d3f-95d2-5a874f543f78/bakuretsu-tenshi-angel-s-adolescence)  [<sup>Titan</sup>](https://titan-comics.com/c/2038-burst-angel-vol1/) <sup> - Previously Available on </sup> [<sup>Tokyopop</sup>](https://www.amazon.com/Burst-Angel-MANGA-1-Gonzo/dp/1427811822)
+
+    >*Culinary student Takeru’s life takes a sudden turn when he crosses paths with Jo, an ace sharpshooter, and the kind-hearted Meg. The dynamic duo run a ‘Jack of all trades’ service, which sees them thwart criminals, recover stolen treasures, and battle formidable opponents to pay the bills. Takeru is inspired by his new friends and finds courage in the face of adversity, proving that overcoming fears can lead to unexpected heroism.*
 
 ---
 
@@ -1839,9 +1846,9 @@
 **West Margin Press**
 
 ---
-<img src="https://images-us.bookshop.org/ingram/9781513128757.jpg?height=500&v=v2-ac98b030efd43db0b1d7283c21d66ecb" alt="cover-image" width="200"/>    
- 
-- [Submerged](https://bookshop.org/p/books/space-story-fiona-ostby/17837038?aid=159&ean=9781513128757&listref=comics-graphic-novels-e1b57630-8104-4b96-84c0-cf766e1dbf07&)
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/34614aae-d25a-4f17-9f05-f5a425866376" alt="cover-image" width="200"/>    
+
+- [Space Story](https://bookshop.org/p/books/space-story-fiona-ostby/17837038?aid=159&ean=9781513128757&listref=comics-graphic-novels-e1b57630-8104-4b96-84c0-cf766e1dbf07&)
 
     >*Two women fall in love and start a family on a dying Earth.*
     >
@@ -2349,17 +2356,6 @@ https://www.mangaupdates.com/poll.html?act=old_polls
 
 ---
 
-**Titan**
-
----
-<img src="https://dyn.media.titan-comics.com/JZM7rXZ6C5Pp7h3op9Otz5YUzK0=/300x0/https://media.titan-comics.com/comics/issues/BurstAngelVol1.jpg" alt="cover-image" width="200"/>
-
-- [Burst Angel](https://mangadex.org/title/608ceab6-b924-4d3f-95d2-5a874f543f78/bakuretsu-tenshi-angel-s-adolescence)  [<sup>Titan</sup>](https://titan-comics.com/c/2038-burst-angel-vol1/) <sup> - Previously Available on </sup> [<sup>Tokyopop</sup>](https://www.amazon.com/Burst-Angel-MANGA-1-Gonzo/dp/1427811822)
-
-    >*Culinary student Takeru’s life takes a sudden turn when he crosses paths with Jo, an ace sharpshooter, and the kind-hearted Meg. The dynamic duo run a ‘Jack of all trades’ service, which sees them thwart criminals, recover stolen treasures, and battle formidable opponents to pay the bills. Takeru is inspired by his new friends and finds courage in the face of adversity, proving that overcoming fears can lead to unexpected heroism.*
-
----
-
 **Manga.Club**
 
 ---
@@ -2546,6 +2542,9 @@ https://www.mangaupdates.com/poll.html?act=old_polls
 
     >*With BL manga as her greatest and only love, Aizawa is destined to be forever alone. All her time not spent in the office is spent fawning over fanart of her favorite pairing, completely wasting her beauty. One day, the goddess of her world, the artist Misumi, announces that she will descend on a comic convention, so off Aizawa goes! When she finds Misumi's booth, what awaits her is...a super cute high school girl?!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/32b34e96-f218-4ee9-8160-06269f6cd3dd" alt="cover-image" width="200"/>
+
 - [Mojito](https://mangadex.org/title/d67ed460-f859-4cdd-bddf-72838faea6de/mojito) [<sup>INKR</sup>](https://comics.inkr.com/title/1721-mojito?ref=genre_detail_ik-genre-30)
 
     >*After a photo of rising supermodel Xiao Zhong kissing a girl went viral, she was outed as a lesbian*
@@ -2578,6 +2577,9 @@ https://www.mangaupdates.com/poll.html?act=old_polls
 - [Eros/Psyche](https://mangadex.org/title/0c6b00b0-e735-4a2e-9f83-ae353a0c252f/eros-psyche) [<sup>INKR</sup>](https://comics.inkr.com/title/1215-eros-psyche?ref=genre_detail_ik-genre-30)
 
     >*From the artist of the bestselling Faithless series...comes Eros/Psyche. The Rose female boarding school is paradise for young girls...but only if you follow the rules. Because, if you disobey them, you can end up expelled, or even worse, dead. Sara and Silje are two students learning the rules of the school, which includes classes by day...and the casting of curses and spells by night. A love develops between the two, which is tender, but threatens to break under the weight of the dark secret society within The Rose. Acclaimed creator Maria Llovet (Faithless, Heartbeat, Loud) brings you a surreal, bewitching tale of love, magic, and tragedy in Eros/Psyche.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ed89b187-e951-4103-8162-a84eb1745f3d" alt="cover-image" width="200"/>
 
 - [Luisa - Now and Then](https://comics.inkr.com/title/1146-luisa-now-and-then?ref=genre_detail_ik-genre-30) <sup>Not on Mangadex - </sup> [<sup>INKR</sup>](https://comics.inkr.com/title/1146-luisa-now-and-then?ref=genre_detail_ik-genre-30)
 
@@ -2761,14 +2763,14 @@ https://www.mangaupdates.com/poll.html?act=old_polls
 **Webtoon Factory**
 
 ---
-<img src="https://www.webtoonfactory.com/assets-upload/webtoons/series-vertical/talesofloveandconsequences_vertical.jpg" alt="cover-image" width="200"/>
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c5a632b2-4ef5-4166-8037-2e6a9bc29faf" alt="cover-image" width="200"/>
 
 - [Tales of love and consequences](https://mangadex.org/title/6c1bfa78-c2db-4713-ad17-506138d79bfa/tales-of-love-and-consequences) [<sup>Webtoon Factory</sup>](https://www.webtoonfactory.com/en/serie/tales-of-love-and-consequences/)
 
     >*Sealia and Cloudy are in love. But their relationship is forbidden by their respective clans, which have been on unfriendly terms for generations due to their vastly different positions on the human race. When the two women are denounced, they are banished to Earth… a planet on a path to destruction. But that’s not factoring in the power of the love between the two women, and human ingeniousness. Are Sealia and Cloudy the only two deities down on Earth?*
 
 ---
-<img src="https://www.webtoonfactory.com/assets-upload/webtoons/vertical-21/mydemonsecretary_vertical.jpg" alt="cover-image" width="200"/>
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/b01be4fe-f8ac-441b-81e2-081f0676227c" alt="cover-image" width="200"/>
 
 - [My Demon Secretary](https://www.webtoonfactory.com/en/serie/my-demon-secretary/) [<sup>Webtoon Factory</sup>](https://www.webtoonfactory.com/en/serie/my-demon-secretary/)
 
@@ -2909,7 +2911,10 @@ https://www.mangaupdates.com/poll.html?act=old_polls
 - [What does the fox say?](https://mangadex.org/title/658662c8-bee6-442c-91c4-cb94681810b5/what-does-the-fox-say) <sup>Used to be Complete on Tappytoon? - </sup> [<sup>Tapas</sup>](https://tapas.io/series/what-does-the-fox-say-comic/info)
 
     >*Even with no experience in life or love, Seongji must still face the corporate world in all its grueling monotony just like the rest of us. Yet no matter how busy she gets, she can’t stop herself from fawning over her aloof new boss, Sumin. This could have been the start of a perfect love affair if not for the looming presence of Sumin’s ex, Saeju. Can Seongji still find love with her beautiful boss, or will these third-party interferences prove too much for her to bear?*
-    
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d9bf069d-76e3-462e-b7fb-bc204fb9c861" alt="cover-image" width="200"/>
+
 - [Relationship Guidelines](https://mangadex.org/title/1a35050d-3b44-4b61-9471-e140dc4329ef/relationship-guidelines) [<sup>Tapas</sup>](https://tapas.io/series/relationship-guidelines/info)
 
     >*“Ugh! Life’s been miserable ever since that one stupid kiss! I NEVER should've done that! 'You wanna try?' she asked—It’s all her fault, and now she’s ignoring me! I can’t stop thinking about her!!!" Poor, unfortunate Jiwon, stuck in a hormonal, teen game of cat and mouse. Kissed by her best friend, she’s left to her own devices to figure out what the hell is going on. Watch as cat turns to mouse, mouse to cat, and see how two childhood friends tiptoe the boundaries of their relationship.*
