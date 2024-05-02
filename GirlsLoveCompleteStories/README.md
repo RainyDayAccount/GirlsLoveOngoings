@@ -379,6 +379,12 @@
 
     >*Across the planet, animals are turning into humans! Well, mostly human anyway. These animal-featured new individuals must learn how to live in their new bodies and amongst one other. It’s for this reason some are sent to Animalium—an all-girls school specifically for this new species—and it’s there these girls will learn all they need to know about themselves and each other!*
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/345d04c2-852b-4abc-a3fd-29136e61b89b" alt="cover-image" width="200"/>
+
+- [Our Dreams at Dusk: Shimanami Tasogare](https://mangadex.org/title/2c2a45bc-42c8-4d62-995c-bd5523642ba8/shimanami-tasogare) [<sup>Seven Seas - Not Listed as GL</sup>](https://sevenseasentertainment.com/series/shimanami-tasogare/)
+
+    >*Not only is high schooler Tasuku Kaname the new kid in town, he’s also terrified that he’s been outed as gay. Just as he’s contemplating doing the unthinkable, Tasuku meets a mysterious woman who leads him to a group of people dealing with problems not so different from his own. In this realistic, heartfelt depiction of LGBT+ characters from different backgrounds finding their place in the world, a search for inner peace proves to be the most universal experience of all.*
 
 ---
 
@@ -606,6 +612,13 @@
 - [Revolutionary Girl Utena](https://mangadex.org/title/b5c810ba-d6d5-485e-8990-2fa48c893af8/revolutionary-girl-utena) [<sup>Viz Media</sup>](https://www.viz.com/revolutionary-girl-utena)
 
     >*Lured into the twisted duels of Ohtori Academy, can Utena become the prince she’s been waiting to meet?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3db4dee4-c1c0-46c3-94cd-c5f5ccf2da92" alt="cover-image" width="200"/>
+
+- [A Tropical Fish Yearns for Snow](https://mangadex.org/title/ba64bce2-ccc0-437c-87fc-aea738521e46/nettaigyo-wa-yuki-ni-kogareru) [<sup>Viz Media</sup>](https://www.viz.com/a-tropical-fish-yearns-for-snow)
+
+    >*Even though life is changing for Koyuki and Konatsu, the Aquarium Club and the little salamander that brought them together will remain a special, immutable link between them in the days ahead. As autumn arrives and Koyuki’s graduation looms, Konatsu summons all her courage to confront one lingering doubt—must their friendship end just because their stories are diverging?*
 
 ---
 
@@ -2974,9 +2987,288 @@ https://www.mangaupdates.com/poll.html?act=old_polls
 
 *Listing bookmarks > 10K*
 
-*Highest Rated Completed on MangaDex besides Above*
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/f9a61569-74d1-46f5-9f78-fd0369a75254" alt="cover-image" width="200"/>
+
+- [Hino, You Dummy!](https://mangadex.org/title/af737f18-6d40-4537-b0e6-ad32f2054daa/hino-san-no-baka)
+
+    >*Class president and overall good girl Koguma is concerned that her classmate Hino often skips classes by spending her time behind one of the school buildings. Koguma feels it's her duty to guide Hino down a better path, even if it means going along with Hino's unusual requests.*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/5599acd8-4da2-47cb-8e87-a9b9db80a6fc" alt="cover-image" width="200"/>
+
+- [Tensei Pandemic](https://mangadex.org/title/d4c2d0ec-03ce-4f18-81a7-93cffb7e74f5/tensei-pandemic)
+
+    >*Imamura Hinata is a high school boy with a cute appearance.*
+    >
+    >*Since his trauma with the first love, he wanted to be more manly than anybody else. But one day he woke up to something different…*
+    >
+    >The total opposite of his ideal male body!*
+    >
+    >*Pandemic love comedy!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/276911e6-7906-46f2-9108-1a1417d35d94" alt="cover-image" width="200"/>
+
+- [There's Weird Voices Coming from the Room Next Door!](https://mangadex.org/title/d7370cf3-c764-4469-9c72-8b70222f0409/there-s-weird-voices-coming-from-the-room-next-door)
+
+    >*Nakano's moved out of home for uni, but she's freaked out by the weird noises coming from the room next door! Can this naïve kid survive getting wrapped up in big-city ideas of female friendship and love? It's the start of a "Neighbourhood Yuri Romcom"!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/09e64b95-7157-4261-aade-0b2a57a752b6" alt="cover-image" width="200"/>
+
+- [A Yuri Story About a Girl Who Insists "It's Impossible for Two Girls to Get Together" Completely Falling Within 100 Days](https://mangadex.org/title/e2d04c0b-8a58-46e2-84c8-dfc22563a9b8/a-yuri-story-about-a-girl-who-insists-it-s-impossible-for-two-girls-to-get-together-completely)
+
+    >*"It's impossible for two girls to date, after all."*
+    >
+    >*One day, Marika Sakakibara, a popular high school girl, is suddenly shown a million yen by the cool, beautiful, Aya Fuwa.*
+    >
+    >*"I'll buy you. Ten thousand yen a day for one hundred days. Why don't you try it? See just how 'impossible' it is between two girls."*
+    >
+    >*"…Huh? Huuhhhh?"*
+    >
+    >*So begins their daily afterschool [REDACTED] time.*
+    >
+    >*From gently stroking breasts and holding hands, every day, Fuwa's actions begin to escalate!!*
+    >
+    >*And, after one hundred days, will Marika really still be able to proclaim that "It's impossible!"? (She will not.)*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ded16cc7-a76a-46e4-8162-a2c17fcca86f" alt="cover-image" width="200"/>
+
+- [Kusanagi-sensei Is Being Tested](https://mangadex.org/title/bb50d5ea-5eb2-4f28-95d3-07df5f1933b1/kusanagi-sensei-is-being-tested)
+
+    >*15 years ago, Kusanagi-sensei gave up her love (♀). Now, her lost love's daughter is her student?! As she wavers under the pressure of her student's relentless attacks, Kusanagi-sensei's (♀/36) era of trial begins!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/56558084-ed13-4710-9553-b9cb06e3cc77" alt="cover-image" width="200"/>
+
+- [JK-chan and Her Classmate's Mom](https://mangadex.org/title/24c2e0fc-e381-4e84-b011-1a11887ee6f0/jk-chan-and-her-classmate-s-mom)
+
+    >*Nakashima Yuka falls in love with her male classmate Toi Takuya's mother, Mihoko. Gay hilarity ensues.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ddc54ee3-fb30-48a1-a9dd-1edc993e040a" alt="cover-image" width="200"/>
+
+- [Catulus Syndrome](https://mangadex.org/title/20fd49ae-0e6f-451d-94ca-00aa780f3897/catulus-syndrome)
+
+    >*Catulus Syndrome - A strange illness which causes girls to develop catlike traits. Modern science has figured out two things about this illness:*
+    >
+    >*1. They're really cute!*
+    >
+    >*2. There's a high chance of other girls making their hearts flutter.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/bdd23364-f21a-47a9-b2a6-70a9fefbabea" alt="cover-image" width="200"/>
+
+- [Goblin Is Very Strong](https://mangadex.org/title/62eec846-a18f-4a09-9c9f-759270347a39/goblin-is-very-strong)
+
+    >*Goblin-san accidentally reached level 99… and now she keeps killing heroes.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/b1ff4e5d-d017-4e1c-917d-0f8bfe4ed10a" alt="cover-image" width="200"/>
+
+- [Temptation of Shiro Gal & Kuro Gal](https://mangadex.org/title/5ee04a5d-56bc-4f99-bf0b-078dce76184e/shiro-gal-to-kuro-gal-no-yuuwaku)
+
+    >*Rei, the white gal, and Natsuyu, the black gal, gets their classmate "Otaku-kun" involved in one thing or another.*
+    >
+    >*You'd think the two of them were seductively tempting Otaku-kun, but the one who was interested in Rei was the black gal next to her, Natsuyu...*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/5c745cf5-b930-470e-a8e4-45e9489c473b" alt="cover-image" width="200"/>
+
+- [The Tale of the Teapot Hero's Revenge](https://mangadex.org/title/2ea089e6-750d-4856-9097-96eda5542e21/yuwakashi-yuusha-no-fukushuutan) <sup>Cancelled</sup>
+
+    >*A Hero is someone chosen by God to receive a supernatural 'gift'. A unique existence, only one Hero can exist at a time, with a new one being chosen upon the former's death.*
+    >
+    >*This generation's Hero is an ordinary villager girl named Kyrie whose gift is merely being able to boil water.*
+    >
+    >*When her family and friends are slaughtered, Kyrie is backed into a corner and learns the true value of that boiling hot power, and how well it could be used to fan the flames of revenge that burned inside of her.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3158030f-8832-4efa-8bf5-238a307fa4f4" alt="cover-image" width="200"/>
+
+- [I Love Amy](https://mangadex.org/title/52ab10b8-d539-4839-9b31-7937fb08c813/i-love-amy)
+
+    >*"Is this how it feels to have a friend?"*
+    >
+    >*Bibi is obsessed with Peter, the prince of the school. When she spots Amy next to him, she starts to feel jealous. She invites Amy to her house to warn her, but instead takes a liking to the girl. They agree to be friends on the condition that Amy has to help Bibi confess.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3185f58f-02ba-4d8b-9d5c-d51160030da2" alt="cover-image" width="200"/>
+
+- [It's a Detached Relationship](https://mangadex.org/title/d461ebbe-5043-42bb-8c99-acdea0715be7/warikitta-kankei-desukara)
+
+    >*High school student Kaburagi Aya can't get used to the life of a high school student, and regularly uses a dating app. On this app, she meets a 24-year-old woman who goes by KURO, and Aya is fascinated by their conversations. But one day, KURO starts acting oddly, and Aya goes to the apartment building where she lives...*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/28f529ed-367e-4785-8d4b-94c2469f08f4" alt="cover-image" width="200"/>
+
+- [That Time I Was Blackmailed By the Class's Green Tea Bitch](https://mangadex.org/title/73965527-b393-4f65-9bc3-2439ec44935a/that-time-i-was-blackmailed-by-the-class-s-green-tea-bitch)
+
+    >*Green Tea Bitch (n.): A woman who pretends to be pure and innocent but in fact is manipulative and calculating.*
+    >
+    >*After school ends, a good honor student is threatened by the class's green tea bitch.*
+    >
+    >*"I never thought you wide-eyed goody-two-shoes would do something like this."*
+    >
+    >*"If you don't want me to expose your shameful secret…"*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/7f5a1421-13e9-4c70-b4ab-f5d7cef902d3" alt="cover-image" width="200"/>
+
+- [Shoujo Manga Protagonist x Rival-San](https://mangadex.org/title/b48eb409-e85f-4ca2-a1cc-4df560e59752/shoujo-manga-protagonist-x-rival-san)
+
+    >*Kimura-san wants to get close to her crush Mizushima-kun, but the beautiful and confrontational Hiyama-san has a problem with that… though it's not the kind of problem you'd expect from this scenario.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/37b2a406-8bab-47f5-b076-26503a81d3d4" alt="cover-image" width="200"/>
+
+- [I'm an Elite Angel, but I'm Troubled by an Impregnable JK!](https://mangadex.org/title/edcfac00-58df-4c70-be79-308d26cd3b28/i-m-an-elite-angel-but-i-m-troubled-by-an-impregnable-jk)
+
+    >*The role of angels is to evaluate the good deeds performed by humans and grant them "small wishes" in return. Ariel is one of these angels. However, what appeared in front of her was a high school girl who didn't have a "small wish" despite having performed over 10,000 good deeds. Ariel tries to approach this high school girl, and then… Angel (♀) × JK (♀) a somewhat naughtly slapstick romantic comedy ♡*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/b66bef61-e8a4-4c3b-b2fa-556f924aa5a4" alt="cover-image" width="200"/>
+
+- [A Story About Doing XX to Girls From Different Species](https://mangadex.org/title/45c31545-653a-4f35-b8d6-6b22aa48fc29/isyuzoku-joshi-ni-suru-hanashi)
+
+    >*The only human student at an all-girl school is on a mission to sexually harass each of the monster girls.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/88943c6a-2e48-4c34-82aa-f6415d30e475" alt="cover-image" width="200"/>
+
+- [Shino and Ren](https://mangadex.org/title/561cf196-01a3-4c38-a838-5c6bf84ab24d/shino-to-ren)
+
+    >*"I can't... take it... any longer..."*
+    >
+    >*"She's mine."*
+    >
+    >*The quiet and gentle Shino and the lively tomboyish Ren are lovers.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/588df460-cf2f-4f87-ae03-22630073f0c2" alt="cover-image" width="200"/>
+
+- [Shimeji Simulation](https://mangadex.org/title/28b5d037-175d-4119-96f8-e860e408ebe9/shimeji-simulation)
+
+    <*A surreal yet heartwarming 4-koma series about everyday life.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/7127438e-c3f6-43cc-afaf-7cf88627b184" alt="cover-image" width="200"/>
+
+- [A Love Letter for the Marching Puppy](https://mangadex.org/title/6233e1c1-bd5e-424f-a317-61484640fc7e/koushin-koinu-ni-koibumi-wo)
+
+    >*The stage is a modern school that fosters female officers, "Girl's Only Army School". A girl, Indou Shinobu, who came out from the countryside, meets Kagami a high-class senior student. Contrary to her high-handed attitude, Kagami occasionally shows kindness to Indou.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/68724017-c4dc-45ad-8bd9-d9b4bb973164" alt="cover-image" width="200"/>
+
+- [We Don't Need a Prince](https://mangadex.org/title/fb18b185-ed42-4d37-a99a-b16631ec0c44/ouji-sama-nante-iranai)
+
+    >*Yukino Suzushiro is a freshman who belongs to the Shakuyaku 'peasant' girls division at the class-based, segregation-enforcing Douwa All-Girls High School. After the entrance ceremony, she enters a greenhouse where she finds a gorgeous sleeping girl, Nobara Himezaki, who belongs to the Botan 'rich' girls school division. After Nobara bravely fends off a pervert intruder, Yukino doesn't meet Nobara again until the dorm room partners are shuffled, and she ends up being the only Shakuyaku girl in a Botan floor, with a Botan roomie… Nobara herself.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d256a3fd-7143-41e4-99d1-4c7404f56511" alt="cover-image" width="200"/>
+
+- [Gal and Otaku Can't Understand Each Other](https://mangadex.org/title/ef97c4a5-035e-4726-8ddc-cbec21f991a7/gyaru-to-otaku-wa-wakari-aenai)
+
+    >*Saotome is the top Gyaru in class - she's loud, known by everyone, and stylish. Otonashi, on the other hand, is the complete opposite. These two carry their own baggage that would ruin their built up identities… but what happens if they were to discover each other's secret?*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a98c78ce-a520-4a5c-97b7-07a511cc84d1" alt="cover-image" width="200"/>
+
+- [Yuri Love Slave](https://mangadex.org/title/86d4b7bc-c4eb-4bb6-810e-9e884a41321a/yuri-love-slave)
+
+    >*Asakura is an ordinary high school girl. Once upon a time, she accidentally saw Reina, the class president who was rude and stiff, going to a bookstore. Asakura followed the chairman, and discovered that book the chairman bought turn was a gay manga.*
+    >
+    >*Asakura, who was surprised by it, along with a feeling of shame, opened and read contents of the book, and over time something tickled her crotch. The devil's grandson whispered - "Dear Asakura, don't you want to try the things in this book? Don't you want to feel kimochii?"*
+    >
+    >*Ignoring the angel's warning on her right shoulder, Asakura's plunged into the devil's seduction, and her gay adventure with Reina begins...*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/dd5a526e-c7a8-4336-a2a6-955583c8316c" alt="cover-image" width="200"/>
+
+- [I Love Your Cruddy...](https://mangadex.org/title/25632c2e-90d3-4a9f-9cfd-3132d52ca5ee/kitanai-kimi-ga-ichiban-kawaii)
+
+    >*Sezaki Airi and Hanamura Hinako. In the class they are in different groups and castes with no interaction, but they have a secret that they cannot tell anyone else. The girls' secret is that of love, selfishness and fetishes...*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d0d03b16-6f10-4342-aa92-669caeba0475" alt="cover-image" width="200"/>
+
+- [About a College Girl Who Gets Picked Up at a Mixer by an Older Girl](https://mangadex.org/title/f9a2a3de-8556-4d4b-af98-2bf2bd6d84eb/about-a-college-girl-who-gets-picked-up-at-a-mixer-by-an-older-girl?tab=art)
+
+    >*College girl Kawada Rika gets roped into going to a mixer where she meets an older girl named Suda Natsuko and they are immediately enamored with each other.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/de67640e-40f5-4729-a429-124b52f89c25" alt="cover-image" width="200"/>
+
+- [Boyish Girl × Gyaru](https://mangadex.org/title/a296a0a2-7b49-404b-a967-24b4d5849b96/boyish-girl-gyaru?tab=chapters)
+
+    >*A boyish girl and a gyaru are dating.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/0c2bc97d-ad01-40d0-b48b-9bad053a1862" alt="cover-image" width="200"/>
+
+- [Come Rain or Shine](https://mangadex.org/title/43df19d5-0990-46ec-9367-ea29c502e7bb/ame-demo-hare-demo)
+
+    >*Country-born Mikoto and student council member Ren have always spent their time after school together. But one day, that ordinary routine suddenly comes to an end… With Uchouten High School as the stage, the love and youth of these impressionable young girls is about to begin!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/006eff46-17c5-4dab-a260-ed45a2b5c864" alt="cover-image" width="200"/>
+
+- [Classmate Designated Harmful](https://mangadex.org/title/c16a96d3-75aa-4617-a535-4f0ffe1e95c5/yuugai-shitei-doukyuusei)
+
+    >*Yatsuhashi Miyako is a diligent class rep while the girl who sits next to her, Miyakonojou Reika, was discovered to not be wearing panties. Will Miyako be able to reform Reika into a normal high school girl?!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/269f4372-fd55-4988-8c5a-e1d48e68013f" alt="cover-image" width="200"/>
+
+- [My Younger Senpai](https://mangadex.org/title/d0a48877-176b-4f60-8f4d-2ae47fbb2e9c/toshishita-no-senpai)
+
+    >*Nanasawa Nana, 25, has had a long unrequited crush on her senpai, Seto Aya, who she learns has just gotten a divorce. After an "incident" causes her to travel back in time to ten years ago, when Aya was 16, Nana, taking on the alias of Sasaki Mai, decides to make an effort to date Aya in this timeline, soon finding herself competing with her past self.*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/ddd74dfd-2587-4cf5-af62-725a6da0192e" alt="cover-image" width="200"/>
+
+- [The Model & The Plain Manager](https://mangadex.org/title/1618b5d8-3a74-4390-8e94-b3b0248b3588/model-chan-to-jimi-mane-san)
+
+    >*A cool model and a manager’s romantic comedy begins!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4f338d6c-c1a1-4658-b68d-9c80156899c9" alt="cover-image" width="200"/>
+
+- [Her Elder Sister Has a Crush on Her, but She Doesn't Mind.](https://mangadex.org/title/58dd8b2b-10cc-4060-8036-5c73f123d3b0/siscon-oneechan-to-kinishinai-imouto)
+
+    >*There's no such thing as an older sister who hates their younger sister. Every older sister on the face of the Earth loves their younger sister dearly. I, Sakura Shima, have an adorable sister one year younger than me. The sister yuri comedy everybody is talking about!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/1d1912bf-1f1c-4455-8758-ab022ac2ce92" alt="cover-image" width="200"/>
+
+- [A noble girl wants to be a harem protagonist!](https://mangadex.org/title/eab47dd9-c5ad-4bf2-b3fe-8952689af299/ojou-sama-wa-love-come-no-shujinkou-ni-naritai)
+
+    >*Tsubaki Saionji is a second-year high school girl. Despite her grace and elegance, she hides an embarrassing secret - she absolutely loves mindless ecchi harem love comedies, and always wants to be in the protagonist’s shoes.*
+    >
+    >*The irony of it all? Without realizing it, she already is a harem protagonist….*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/6f357a3b-3c44-4663-b12e-0785d24ce000" alt="cover-image" width="200"/>
+
+- [Senpai, Does It Taste Good?](https://mangadex.org/title/ea58f55b-16d4-43dd-ae69-af91fcb3db46/senpai-oishiidesu-ka)
+
+    >*Miho is a university student who bears trauma relating to food. Suddenly, she finds herself with a pretend partner. Not only that, her pretend partner is the #1 most beautiful woman in the university, Mori-senpai!? A girl's socializing story presented through food by the author of Fuzuroi no Renri!*
+
+*Highly Rated on MangaDex besides Above*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/143f4b6a-f737-4479-b6e8-43ae1dac575c" alt="cover-image" width="200"/>
+
+- [Fluttering Feelings](https://mangadex.org/title/a31e2583-0a30-47ca-8254-269a43262415/fluttering-feelings) <sup>Discontinued due to author's death</sup>
+
+    >*The story of two people brought together by the fluttering feelings that they know nothing about.*
 
 *Also By*
+
+
 
 **Webtoons**
 
