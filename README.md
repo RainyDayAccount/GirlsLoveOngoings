@@ -19,14 +19,14 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/80967c24-897d-4388-82dc-75e0242ef92e" alt="cover-image" width="200"/>
 
-- [Citrus +](https://mangadex.org/title/4a30061a-bc66-4efd-9c4b-87daf8313381/citrus) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/citrusplus/)
+- [Citrus +](https://mangadex.org/title/4a30061a-bc66-4efd-9c4b-87daf8313381/citrus) [<sup>Seven Seas - New Release on Nov 19, 2024</sup>](https://sevenseasentertainment.com/series/citrusplus/)
 
     >*High schoolers (and stepsisters) Yuzu and Mei have gone public with their relationship! The two are happy to be dating out in the open, but friends and family keep trying to butt in with advice. Can Yuzu and Mei figure things out on their own? The return of the modern yuri classic!*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/610b6c9f-d05c-4c0e-82ab-f9c27ca95535" alt="cover-image" width="200"/>
 
-- [I’m in Love with the Villainess](https://mangadex.org/title/22d6d048-9f9f-4c3a-95c2-3b145f110e20/i-m-in-love-with-the-villainess) [<sup>Seven Seas - New Release on May 7, 2024</sup>](https://sevenseasentertainment.com/series/im-in-love-with-the-villainess-manga/)
+- [I’m in Love with the Villainess](https://mangadex.org/title/22d6d048-9f9f-4c3a-95c2-3b145f110e20/i-m-in-love-with-the-villainess) [<sup>Seven Seas - New Release on Oct 22, 2024</sup>](https://sevenseasentertainment.com/series/im-in-love-with-the-villainess-manga/)
 
     >*Ordinary office worker Oohashi Rei wakes up in the body of the protagonist of her favourite otome game, Revolution. To her delight, the first person to greet her is also her favourite character, Claire François – the main antagonist of the story! Now, Rei is determined to romance Claire instead of the game’s male leads. But how will her villainous lady love react to this new courtship?!*
 
@@ -256,6 +256,27 @@
 - [I've Been Killing Slimes for 300 Years and Maxed Out My Level](https://mangadex.org/title/14610263-264a-4c22-8928-e4183e7d4719/slime-taoshite-300-nen-shiranai-uchi-ni-level-max-ni-nattemashita) [<sup>Yen Press - New Release on Jul 20, 2024 - Not Listed as GL</sup>](https://yenpress.com/series/i-ve-been-killing-slimes-for-300-years-and-maxed-out-my-level-manga)
 
     >*From corporate slave to a laid-back witch—reincarnation’s a pretty sweet deal! Or so Azusa believes until her maxed-out status comes to light...In this new manga adaptation of the original novel, enjoy the hilarity that ensues as Azusa attempts to evade all forms of adventure and regain her lazy life!*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/7301e9b0-2110-4390-9fb4-576b73b78c37" alt="cover-image" width="200"/>
+
+- [The Guy She Was Interested in Wasn't a Guy at All](https://mangadex.org/title/9d3d3403-1a87-4737-9803-bc3d99db1424/the-guy-she-was-interested-in-wasn-t-a-guy-at-all) [<sup>Yen Press - Releasing Oct 15, 2024</sup>](https://yenpress.com/titles/9781975399689-the-guy-she-was-interested-in-wasn-t-a-guy-at-all-vol-1)
+
+    >*Fashionable and upbeat high schooler Aya falls head over heels for an employee at a local CD shop. He’s got an air of mystery about him, always dressed well, and has impeccable taste in music. Little does she know—this supposedly male employee is actually her female classmate Mitsuki! Mitsuki generally keeps to herself, but since her seat is right next to Aya’s, she can't help but be extremely aware of the other’s crush. Revealing the truth is out of the question—but perhaps getting closer to Aya wouldn’t be so bad...*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/380172b0-9dc4-4ccb-abc9-4f74163145a7" alt="cover-image" width="200"/>
+
+- [Lycoris Recoil](https://mangadex.org/title/9c21fbcd-e22e-4e6d-8258-7d580df9fc45/lycoris-recoil?tab=art) [<sup>Yen Press - Releasing Oct 15, 2024</sup>](https://yenpress.com/series/lycoris-recoil-manga)
+
+    >*Japan—a nation where vicious crime and terror have been all but eliminated. And who keeps the peace? Cute schoolgirls, of course! Those uniformed youths you see on street corners and in stylish cafes may just be agents of Lycoris, with pistols in their purses and missions on their mind...*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/87653ddd-9c18-4c2a-873e-6cdf7dd047c2" alt="cover-image" width="200"/>
+
+- [When the Villainess Seduces the Main Heroine](https://mangadex.org/title/4b4ed76c-ca51-4d44-aaa4-d2398919fe09/the-villainess-who-steals-the-heroine-s-heart) [<sup>Yen Press - Releasing Oct 15, 2024</sup>](https://yenpress.com/series/when-the-villainess-seduces-the-main-heroine)
+
+    >*When the crown prince announces he’s breaking off his engagement to the infamous Akuya, his spurned fiancée wastes no time in turning her seductive words of passion to her actual target—Sei, a commoner who worked her way up through the ranks with her wit and charm alone…and is also the very girl the prince dumped Akuya for! Sei’s about to get a taste of what a real lover’s like in this steamy tale of two girls who traded in their Prince Charming for each other instead!*
 
 ---
 
@@ -832,9 +853,16 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/7742fe31-b962-42b3-a812-33451043c3da" alt="cover-image" width="200"/>
 
-- [Winter Before Spring](https://www.webtoons.com/en/canvas/winter-before-spring-gl/list?title_no=575257) [<sup>Coming Soon</sup>](https://www.webtoons.com/en/canvas/winter-before-spring-gl/special-announcement/viewer?title_no=575257&episode_no=98)
+- [Winter Before Spring](https://www.webtoons.com/en/drama/winter-before-spring/list?title_no=6400)
 
-    >*Hana has recently just fallen in love with her best friend, who just happens to be a girl. After a confrontation with her best friend, Hana accidentally blurts out and confesses her true feelings. Fearing that she would be rejected, her friend accepts her feelings graciously and they start dating. Is this a dream? Hana, overwhelmed with happiness as her wish came true- is suddenly struck down, her world crashing down as she finds out the nasty truth about her best friend.*
+    >*Hana finds herself grappling with an unexpected emotion when she realizes she’s fallen in love with her best friend, who happens to be a girl. Fearing she'd be rejected, her best friend unexpectedly reciprocates, and they embark on a new romantic journey together. Hana is suddenly struck down, her world crashing down as cracks begin to form in what seemed to be her perfect vision of love when she is confronted with the nasty truth about her new girlfriend. But when things seem bleakest and Hana has given up on love, a new face arrives at the school that has the potential to change everything...*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/cd50231a-2f93-4835-b291-8a10f01ef3e4" alt="cover-image" width="200"/>
+
+- [Katlaya Rising](https://www.webtoons.com/en/action/katlaya-rising/list?title_no=4843)
+
+    >*In her forever-festering pit of a hometown, all that the 22-year old exterminator Katlaya wants is a monster-free future... with a hot wife! On this one night, Katlaya will fight through everything that gets in the way of her ideal future-- be it corrupting monster, corrupt officials, or even the town's cult god, Amihan.*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c6c53365-c171-4c30-8538-b454cd7d8820" alt="cover-image" width="200"/>
@@ -897,6 +925,13 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 - [Help Wanted](https://tapas.io/series/HelpWantedcomic/info)
 
     >*In an attempt to get out of the small town she grew up in, Anne Black moves to Minneapolis, Minnesota, where she takes the first job she can get her hands on – Live-In Caretaker at the Lynnhurst House. Her new home, however, is much more than she bargained for. Between the eccentric tenants, her cute, flirty boss, and the mysterious happenings on the property, Anne begins to suspect the Lynnhurst House is not your normal apartment building*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8a2695c7-36a0-4167-8aa3-6b5128f11afe" alt="cover-image" width="200"/>
+
+- [Omega Heroine Wants Her Alpha Villainess](https://tapas.io/series/omega-heroine-wants-her-alpha-villainess/info)
+
+    >*After a biking mishap, Willow Ji lands in an Omegaverse novel as a doomed Alpha villainess. To avoid a shark-infested fate, she navigates cautiously around Serena Wei, the Omega heroine, aiming to win her heart with kindness. Initially suspicious, Serena gradually warms up to Willow, even harboring feelings for her. As the lines between protagonist and antagonist blur, the question arises: when will Willow realize that their feelings are mutual, and her "foe" has also fallen deeply for her?*
 
 ---
 
@@ -975,13 +1010,6 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 **Mangadex**
 
 *Listing bookmarks > 10K*
-
----
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/7301e9b0-2110-4390-9fb4-576b73b78c37" alt="cover-image" width="200"/>
-
-- [The Guy She Was Interested in Wasn't a Guy at All](https://mangadex.org/title/9d3d3403-1a87-4737-9803-bc3d99db1424/the-guy-she-was-interested-in-wasn-t-a-guy-at-all)
-
-    >*A popular Twitter shorts series depicting the love story between a gyaru and her classmate she mistook as a guy outside of school, bonding over their mutual love for rock music.*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/b714afa2-299e-4858-baa8-81d45bf8b27f" alt="cover-image" width="200"/>
@@ -1333,15 +1361,6 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
     >*Kuruma Suuna, a gloomy and socially awkward girl, begins her high school dorm life only to discover her new roommate, Hamanasu Ruka, flirting with another girl!*
 
 ---
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/87653ddd-9c18-4c2a-873e-6cdf7dd047c2" alt="cover-image" width="200"/>
-
-- [The Villainess Who Steals the Heroine's Heart](https://mangadex.org/title/4b4ed76c-ca51-4d44-aaa4-d2398919fe09/the-villainess-who-steals-the-heroine-s-heart)
-
-    >*Akuya, the prince's fiancee, is as infamous as she is beautiful. Despite her position, she falls in love at first sight with Sei, a commoner who is becoming a rising star thanks to her talents and cuteness.*
-    >
-    >*One day, the prince makes the stunning announcement that he is breaking off his engagement! Seeing a chance to strike while the iron is hot, Akuya decides to steal Sei away with sizzling hot and erotic words of love...*
-
----
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/20717f1b-daf1-441e-94c4-323ad7c88673" alt="cover-image" width="200"/>
 
 - [Mutually Unrequited Twin Sisters](https://mangadex.org/title/0afc1883-d6ff-4c76-8f35-fb6010dc9d95/mutually-unrequited-twin-sisters)
@@ -1363,6 +1382,13 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
     >*Kasane Hayafuji's secret joy in life is seeing Aoyama-san, a waitress at a family restaurant. One night, she saw Aoyama standing alone in the rain. When she tried to help, Aoyama suddenly made her an offer.*
 
     >*"Will you be my big sister?"*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/50ba23fe-9cbc-4edc-b012-f52bf500c28c" alt="cover-image" width="200"/>
+
+- [The Two Sides of Seiyuu Radio](https://mangadex.org/title/96335764-0c1f-4686-9193-b1c6bb537a71/seiyuu-radio-no-ura-omote)
+
+    >*Yugure Yuhi and Utatane Yasumi, two high schooler voice actresses who just happened to attend the same school and coincidentally got placed into the same class, are the two hosts of a radio weekly program. As fellow classmates and voice actresses, they show all the listeners their great friendship! At least, on the surface. In reality, the quiet girl Chika and the gyaru Yumiko are complete opposites. And they absolutely cannot stand each other. Off air, chaos and insults erupt. On air, they're the best of friends. Just where will this tumultuous relationship lead them?*
 
 ---
 
@@ -1414,7 +1440,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d861577e-9d9b-46b3-aba3-c550e1404a4d" alt="cover-image" width="200"/>
 
-- [Happiness Rides a Broomstick](https://mangadex.org/title/71d51fb0-fc54-400a-8819-c12ae212ed73/happiness-rides-a-broomstick) <sup>Same Creator as</sup> [<sup>Ring My Bell!</sup>](https://tapas.io/series/ringmybell/info) <sup> - Hiatus</sup>
+- [Happiness Rides a Broomstick](https://mangadex.org/title/71d51fb0-fc54-400a-8819-c12ae212ed73/happiness-rides-a-broomstick) <sup>Same Creator as</sup> [<sup>Ring My Bell!</sup>](https://tapas.io/series/ringmybell/info)
 
     >*Although she is just a college freshman, Kim Danjo, much like her name, lives a monotonous life. One day Danjo goes to a storage room to run an errand for her sunbae when she witnesses a broom transform into a human girl. From that day on, the broom persistently asks for Danjo's help, claiming she has no where to go. In the end, Danjo accidentally gives the broom who claims to actually be a Dookkabei (Korean supernatural creature) the name Eundohae and they start living together in Danjo's small gosiwon.*
 
@@ -1561,7 +1587,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/6891991e-8e2c-4065-b48b-191cae7bdc16" alt="cover-image" width="200"/>
 
-- [Fatal Kiss](https://www.webtoons.com/en/canvas/fatal-kiss-gl/list?title_no=641203) <sup>Hiatus</sup>
+- [Fatal Kiss](https://www.webtoons.com/en/canvas/fatal-kiss-gl/list?title_no=641203)
 
     >*What would you do if your crush was a monster?*
 
