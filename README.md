@@ -124,7 +124,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4893af1d-3ef2-491b-af78-05feb4a250e4" alt="cover-image" width="200"/>
 
-- [SHWD](https://mangadex.org/title/90c15eec-393e-4099-a38c-0851f626cb85/shwd) [<sup>Seven Seas - New Release on Oct 1, 2024(Cancelled?)</sup>](https://sevenseasentertainment.com/series/shwd/)
+- [SHWD](https://mangadex.org/title/90c15eec-393e-4099-a38c-0851f626cb85/shwd) [<sup>Seven Seas - New Release on Oct 1, 2024(?)</sup>](https://sevenseasentertainment.com/series/shwd/)
 
     >*Special Hazardous Waste Disposal (or SHWD) has a mission to destroy mysterious biological weapons left behind after the last war. Though SHWD mostly hires men, their newest recruit, Koga, a buff female operative, is assigned to Sawada, the only other woman in the Tokyo branch. Before long, Koga finds herself falling for Sawada, whose powerful psyche compliments Koga’s big muscles. Together, the unlikely duo must confront monsters beyond their wildest nightmares. Office romance meets buddy cops meets yuri horror!*
 
@@ -179,21 +179,21 @@
 **Yen Press**
 
 ---
-<img src="https://images.yenpress.com/imgs/9781975351762.jpg?w=408&h=612&type=books&s=64635f9163c1f5a8cecb333f995c5030" alt="cover-image" width="200"/>
+<img src="https://images.yenpress.com/imgs/9781975394448.jpg?w=408&h=612&type=books&s=583ceaab66ab7be3f7fcc68cb159ea69" alt="cover-image" width="200"/>
 
-- [Adachi and Shimamura](https://mangadex.org/title/a1620de1-6eb6-4948-b228-b232f910155a/adachi-to-shimamura) [<sup>Yen Press - New Release on Jun 18, 2024</sup>](https://yenpress.com/series/adachi-and-shimamura-manga)
+- [Adachi and Shimamura](https://mangadex.org/title/a1620de1-6eb6-4948-b228-b232f910155a/adachi-to-shimamura) [<sup>Yen Press</sup>](https://yenpress.com/series/adachi-and-shimamura-manga)
 
     >*The second floor of the gym. That’s our spot. Class is in session right now, but they don’t hold class in a place like this. This is where Shimamura and I became friends. What is this feeling? Yesterday, I dreamed of kissing her. I’m not like that, and I’m sure Shimamura isn’t either. But…when Shimamura thinks of the word “friend”, I want to be the first thing that comes to her mind. That’s all.*
 
 ---
-<img src="https://images.yenpress.com/imgs/9781975348922.jpg?w=408&h=612&type=books&s=6a721f7d89c71c819e29fb205705e445" alt="cover-image" width="200"/>
+<img src="https://images.yenpress.com/imgs/9781975348946.jpg?w=408&h=612&type=books&s=9f00070a37b8e285bf83ec2438f36eee" alt="cover-image" width="200"/>
 
-- [Assorted Entanglements](https://mangadex.org/title/5412816d-a3c9-4bab-956b-b08d1f8f41f6/fuzoroi-no-renri) [<sup>Yen Press - New Release on Jun 18, 2024</sup>](https://yenpress.com/series/assorted-entanglements) <sup> - Same Creator as </sup> [<sup>Now Loading…!</sup>](https://sevenseasentertainment.com/series/now-loading/)
+- [Assorted Entanglements](https://mangadex.org/title/5412816d-a3c9-4bab-956b-b08d1f8f41f6/fuzoroi-no-renri) [<sup>Yen Press - New Release on Oct 15, 2024</sup>](https://yenpress.com/series/assorted-entanglements) <sup> - Same Creator as </sup> [<sup>Now Loading…!</sup>](https://sevenseasentertainment.com/series/now-loading/)
 
     >*Discover a variety of stories about women's love, starting with Iori: twenty-eight-year-old office worker who sets out to drown her love and job sorrows in booze. When she wakes up next to someone, she can’t believe her partner was Minami, a worker at the bar who doesn’t want to forget what they have!*
 
 ---
-<img src="https://images.yenpress.com/imgs/9781975388072.jpg?w=408&h=612&type=books&s=586eb01f0ecb29add49489ca93d4490f" alt="cover-image" width="200"/>
+<img src="https://images.yenpress.com/imgs/9781975388096.jpg?w=408&h=612&type=books&s=bc4f8f0ccb75b707bc69fccafb0f6b59" alt="cover-image" width="200"/>
 
 - [Cocoon Entwined](https://mangadex.org/title/bf7fbf85-00ed-4cda-9f8c-149f3113b096/cocoon-entwined) [<sup>Yen Press - New Release on May 21, 2024</sup>](https://yenpress.com/series/cocoon-entwined)
 
@@ -206,7 +206,7 @@
     >*In her final days of high school, Mei Soraike tried to confess her love to her best friend only to have her hopes crushed. A little heartbreak is fine, though—because she’ll absolutely, definitely, undoubtedly get a girlfriend in college! And as soon as Mei sets her resolve, potential paramours start aggressively sidling up to her one after another...! How on earth is she supposed to settle on someone when she’s falling head over heels for every cutie she meets?*
 
 ---
-<img src="https://images.yenpress.com/imgs/9781975372231.jpg?w=408&h=612&type=books&s=1665a6a05324ee31008b6b5161ba4cd1" alt="cover-image" width="200"/>
+<img src="https://images.yenpress.com/imgs/9781975390228.jpg?w=408&h=612&type=books&s=4398687544f401ed17895617ac0ec688" alt="cover-image" width="200"/>
 
 - [Monthly in the Garden with My Landlord](https://mangadex.org/title/bc998000-171b-4fbe-9dd8-570e56c0845d/maitsuki-niwatsuki-ooyatsuki) [<sup>Yen Press - New Release on Aug 20, 2024</sup>](https://yenpress.com/series/monthly-in-the-garden-with-my-landlord)
 
@@ -222,14 +222,14 @@
 ---
 <img src="https://images.yenpress.com/imgs/9781975388911.jpg?w=408&h=612&type=books&s=a2500b9d1cd35610c921e06b32a0a3fc" alt="cover-image" width="200"/>
 
-- [She Loves to Cook, She Loves to Eat](https://mangadex.org/title/a9a3d2c8-fb68-4067-948b-7602f1bb060d/tsukuritai-onna-to-tabetai-onna) [<sup>Yen Press - New Release on May 21, 2024</sup>](https://yenpress.com/series/she-loves-to-cook-and-she-loves-to-eat)
+- [She Loves to Cook, She Loves to Eat](https://mangadex.org/title/a9a3d2c8-fb68-4067-948b-7602f1bb060d/tsukuritai-onna-to-tabetai-onna) [<sup>Yen Press</sup>](https://yenpress.com/series/she-loves-to-cook-and-she-loves-to-eat)
 
     >*Cooking is how Nomoto de-stresses, but one day, she finds herself making way more than she can eat by herself. And so, she invites her neighbor Kasuga, who also lives alone. What will come out of this impromptu dinner invitation...?*
 
 ---
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/3863a200-b3ff-47e2-87d8-82e2f5f3ec7a" alt="cover-image" width="200"/>
+<img src="https://images.yenpress.com/imgs/9781975378677.jpg?w=285&h=422&type=books&s=e30f518be76876684be68863baadd413" alt="cover-image" width="200"/>
 
-- [Sister and Giant: A Young Lady Is Reborn in Another World](https://mangadex.org/title/21b848be-1bfe-4f97-b92c-62d319d8a093/onee-sama-to-watashi-ojou-sama-ga-isekai-tensei) [<sup>Yen Press - Releasing Jun 18, 2024</sup>](https://yenpress.com/series/sister-and-giant-a-young-lady-is-reborn-in-another-world?format=Digital)
+- [Sister and Giant: A Young Lady Is Reborn in Another World](https://mangadex.org/title/21b848be-1bfe-4f97-b92c-62d319d8a093/onee-sama-to-watashi-ojou-sama-ga-isekai-tensei) [<sup>Yen Press - New Release on Sep 17, 2024</sup>](https://yenpress.com/series/sister-and-giant-a-young-lady-is-reborn-in-another-world?format=Digital)
 
     >*Reincarnated in another world, Hinako declines the abilities offered to her by the Goddess, and instead takes a vow of sisterhood with the giant Eiris, becoming known herself as “the smallest giant.” The two may be different species, born on different worlds, but they share one goal—searching for the precious siblings they lost. But they must be cautious, for just as their bonds and strength win them fame, they also bring attention from the knights of the church…*
 
@@ -248,23 +248,23 @@
     >*Princess Anisphia may not be able to use magic, but she didn’t let that stop her from developing “magicology,” a unique theory based on memories from her past life. While testing out her new flying broom, she happens across Euphyllia, a magical genius, having her engagement unjustly and publicly broken off. Seeing the tears in Euphyllia’s eyes, Anisphia takes the obvious course of action—kidnapping the girl for herself!*
 
 ---
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/0e17d5c2-d543-4f73-a5a1-64f4e7eedc0f" alt="cover-image" width="200"/>
+<img src="https://images.yenpress.com/imgs/9781975390495.jpg?w=408&h=612&type=books&s=5eb92a1bcb876c0fd2ac28bcd6a454fe" alt="cover-image" width="200"/>
 
-- [This Monster Wants to Eat Me](https://mangadex.org/title/48863213-086b-4dfb-8103-8e279b8e5f5d/watashi-o-tabetai-hitodenashi) [<sup>Yen Press - Releasing Jun 18, 2024</sup>](https://yenpress.com/series/this-monster-wants-to-eat-me?format=Digital)
+- [This Monster Wants to Eat Me](https://mangadex.org/title/48863213-086b-4dfb-8103-8e279b8e5f5d/watashi-o-tabetai-hitodenashi) [<sup>Yen Press - New Release on Sep 17, 2024</sup>](https://yenpress.com/series/this-monster-wants-to-eat-me?format=Digital)
 
     >*“I’ve come to eat you.” So softly utters the mermaid Shiori, as she emerges from the sea and takes high school girl Hinako by the hand. Hinako lives alone in a town by the sea, and possesses an unusually delicious body that is irresistible to nearby monsters. To ensure that she matures to the best condition, Shiori seeks to protect Hinako—all so that someday, she can devour every piece of her. What will become of Hinako’s feelings as this looming unjust death closes in on her...?*
 
 ---
-<img src="https://images.yenpress.com/imgs/9781975375416.jpg?w=408&h=612&type=books&s=df35bc6c95e49366c6a71eb219e40c9e" alt="cover-image" width="200"/>
+<img src="https://images.yenpress.com/imgs/9781975392840.jpg?w=408&h=612&type=books&s=d927ff93e322030c008d218c251860a1" alt="cover-image" width="200"/>
 
-- [I've Been Killing Slimes for 300 Years and Maxed Out My Level](https://mangadex.org/title/14610263-264a-4c22-8928-e4183e7d4719/slime-taoshite-300-nen-shiranai-uchi-ni-level-max-ni-nattemashita) [<sup>Yen Press - New Release on Jul 20, 2024 - Not Listed as GL</sup>](https://yenpress.com/series/i-ve-been-killing-slimes-for-300-years-and-maxed-out-my-level-manga)
+- [I've Been Killing Slimes for 300 Years and Maxed Out My Level](https://mangadex.org/title/14610263-264a-4c22-8928-e4183e7d4719/slime-taoshite-300-nen-shiranai-uchi-ni-level-max-ni-nattemashita) [<sup>Yen Press - New Release on Jul 23, 2024 - Not Listed as GL</sup>](https://yenpress.com/series/i-ve-been-killing-slimes-for-300-years-and-maxed-out-my-level-manga)
 
     >*From corporate slave to a laid-back witch—reincarnation’s a pretty sweet deal! Or so Azusa believes until her maxed-out status comes to light...In this new manga adaptation of the original novel, enjoy the hilarity that ensues as Azusa attempts to evade all forms of adventure and regain her lazy life!*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/7301e9b0-2110-4390-9fb4-576b73b78c37" alt="cover-image" width="200"/>
 
-- [The Guy She Was Interested in Wasn't a Guy at All](https://mangadex.org/title/9d3d3403-1a87-4737-9803-bc3d99db1424/the-guy-she-was-interested-in-wasn-t-a-guy-at-all) [<sup>Yen Press - Releasing Oct 15, 2024</sup>](https://yenpress.com/titles/9781975399689-the-guy-she-was-interested-in-wasn-t-a-guy-at-all-vol-1)
+- [The Guy She Was Interested in Wasn't a Guy at All](https://mangadex.org/title/9d3d3403-1a87-4737-9803-bc3d99db1424/the-guy-she-was-interested-in-wasn-t-a-guy-at-all) [<sup>Yen Press - Releasing Oct 22, 2024</sup>](https://yenpress.com/titles/9781975399689-the-guy-she-was-interested-in-wasn-t-a-guy-at-all-vol-1)
 
     >*Fashionable and upbeat high schooler Aya falls head over heels for an employee at a local CD shop. He’s got an air of mystery about him, always dressed well, and has impeccable taste in music. Little does she know—this supposedly male employee is actually her female classmate Mitsuki! Mitsuki generally keeps to herself, but since her seat is right next to Aya’s, she can't help but be extremely aware of the other’s crush. Revealing the truth is out of the question—but perhaps getting closer to Aya wouldn’t be so bad...*
 
@@ -278,7 +278,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/87653ddd-9c18-4c2a-873e-6cdf7dd047c2" alt="cover-image" width="200"/>
 
-- [When the Villainess Seduces the Main Heroine](https://mangadex.org/title/4b4ed76c-ca51-4d44-aaa4-d2398919fe09/the-villainess-who-steals-the-heroine-s-heart) [<sup>Yen Press - Releasing Oct 15, 2024</sup>](https://yenpress.com/series/when-the-villainess-seduces-the-main-heroine)
+- [When the Villainess Seduces the Main Heroine](https://mangadex.org/title/4b4ed76c-ca51-4d44-aaa4-d2398919fe09/the-villainess-who-steals-the-heroine-s-heart) [<sup>Yen Press - Releasing Sep 17, 2024</sup>](https://yenpress.com/series/when-the-villainess-seduces-the-main-heroine)
 
     >*When the crown prince announces he’s breaking off his engagement to the infamous Akuya, his spurned fiancée wastes no time in turning her seductive words of passion to her actual target—Sei, a commoner who worked her way up through the ranks with her wit and charm alone…and is also the very girl the prince dumped Akuya for! Sei’s about to get a taste of what a real lover’s like in this steamy tale of two girls who traded in their Prince Charming for each other instead!*
 
@@ -288,16 +288,18 @@
 
 ---
 
-<img src="https://mangadex.org/covers/020d602f-c43a-4b9f-a4f8-3ac8ddfd99c3/c97e0a32-4de1-49b5-8f2a-3dd68531eada.jpg" alt="cover-image" width="200"/>
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/0a723c97-8148-4ecd-8bf4-52acab0e7404" alt="cover-image" width="200"/>
 
-- [Please Spoil Me, Hinamori-san!](https://mangadex.org/title/020d602f-c43a-4b9f-a4f8-3ac8ddfd99c3/amaesasete-hinamori-san) [<sup>Kodansha - Releasing Sep 17, 2024</sup>](https://www.yurianimenews.com/yurimanga/kodansha-licenses-spoil-me-plzzz-hinamori-san-yuri-manga-series)
+- [Please Spoil Me, Hinamori-san!](https://mangadex.org/title/020d602f-c43a-4b9f-a4f8-3ac8ddfd99c3/amaesasete-hinamori-san) [<sup>Kodansha - Releasing Sep 17, 2024(?)</sup>](https://www.yurianimenews.com/yurimanga/kodansha-licenses-spoil-me-plzzz-hinamori-san-yuri-manga-series)
 
     >*Ichigo Hinamori has always looked up to her senpai Yaya Suou for her poise, impeccable grades, and kind heart. But that all changes the day Ichigo stumbles upon Yaya wailing like a little kid in the nurse’s office. It turns out everyone’s favorite honor student is desperate to get off her pedestal and be spoiled rotten instead—and now she’s hoping Ichigo will be the one to indulge her!*
+    
+[Amazon Release Link](https://www.amazon.com/Spoil-Me-Plzzz-Hinamori-san-1/dp/B0CQLDHJ2G?psc=1&linkCode=sl1&tag=yurianimenews-20&linkId=9661580329bca3e8b174f0e1467d7414&language=en_US&ref_=as_li_ss_tl)
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/c5ce3de2-af05-4dbd-ba69-86c82cb2a08e" alt="cover-image" width="200"/>
 
-- [Whispering You a Love Song](https://mangadex.org/title/0e8fac17-979e-4e37-8f45-2c334b25d6dd/whisper-me-a-love-song) [<sup>Kodansha</sup>](https://kodansha.us/series/whisper-me-a-love-song)
+- [Whisper Me a Love Song](https://mangadex.org/title/0e8fac17-979e-4e37-8f45-2c334b25d6dd/whisper-me-a-love-song) [<sup>Kodansha</sup>](https://kodansha.us/series/whisper-me-a-love-song)
 
     >*An adorable new yuri manga for fans of Kase-san and Yamada and Bloom Into You. One day, high school girl Himari sees a girl, Yori, sing in a band, and it awakens feelings she doesn’t understand… but Yori does!*
 
@@ -311,9 +313,16 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/2b95308f-a5bd-45e5-9feb-b1edc6eabb0d" alt="cover-image" width="200"/>
 
-- [The Moon on a Rainy Night](https://mangadex.org/title/c8a0426d-539b-4f6a-9537-fbccf4962529/the-moon-on-a-rainy-night) [<sup>Kodansha - New Release on Jun 11, 2024</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/) <sup> - Same Creator as </sup> [<sup>Living With My Brother's Wife</sup>](https://global.manga-up.com/manga/33)
+- [The Moon on a Rainy Night](https://mangadex.org/title/c8a0426d-539b-4f6a-9537-fbccf4962529/the-moon-on-a-rainy-night) [<sup>Kodansha</sup>](https://kodansha.us/series/the-moon-on-a-rainy-night/) <sup> - Same Creator as </sup> [<sup>Living With My Brother's Wife</sup>](https://global.manga-up.com/manga/33)
 
     >*One rainy night, Saki is rushing to a piano lesson when she crashes into a beautiful, long-haired girl, dropping her sheet music in the process. Saki stutters an apology, but the girl simply hands back her sheet music and leaves without a word. Saki begins her first day of high school the following morning, only to find the stranger from the night before sitting at the desk next to hers. She learns that the girl’s name is Kanon and that she is not quite completely deaf, but very hard of hearing. Though Kanon needs to be close to people to read their lips, she tends to push people away with her icy demeanor. Through one kind gesture, Saki slowly begins breaking down the walls around Kanon, even as she feels something new blossoming within her.*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/2e2b3f74-8562-4248-baa7-0c9a29428e8d" alt="cover-image" width="200"/>
+
+- [I Want to Love You Till Your Dying Day](https://mangadex.org/title/0c44cf39-3d6c-4472-815b-9e163613cfe9/kimi-ga-shinu-made-koi-wo-shitai?tab=art) [<sup>Kodansha - Releasing Feb 2025</sup>](https://kodansha.us/2024/03/30/april-fall-2024-spring-2025-new-licensing-announcement-/)
+
+    >*At the mysterious orphanage where Sheena lives, death is nothing new to its residents—girls who no longer have families of their own, who are raised as weapons of war, taught to kill and take the lives of others without batting an eye. Everyone, that is, except Sheena, who wishes for nothing more than the growing conflict around her to end. On the night of her roommate’s death, Sheena meets a strange girl covered in blood, who smiles despite the turmoil surrounding them. The next day, the girl appears as a new student in Sheena's class and introduces herself as Mimi. Initially thought to be a school myth, there are now whispers in the orphanage’s halls that Mimi is their secret weapon—an immortal who cannot die. When Mimi is later assigned as Sheena’s new roommate, Sheena’s world grows even more complicated when she begins living with someone who loves and welcomes death, when all Sheena wants to do is stop it…*
 
 ---
 
@@ -327,9 +336,9 @@
     >*Toru Aikawa is a university student who spends his days going through the motions of attending school and working at a local convenience store. The only time he really feels alive is when he’s playing the massive multiplayer VR game Real World Online. One day, he has a stroke of luck: he’s hit by a runaway bus and reincarnated as his game character. But something’s gone wrong... Instead of the invincible warrior he mains, he’s in the body of Nacht Schatten, the alluring dragon princess he made as a joke! Nacht’s build is anything but optimized—she would never survive in the cutthroat world of an isekai story! And more to the point, she’s a girl! But perhaps things aren’t as bad as they seem. Perhaps Nacht Schatten is more capable than she appears.*
 
 ---
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/41e5c080-bc73-4fc6-968e-c670d5aaf971" alt="cover-image" width="200"/>
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/31072819-4b49-4015-a7f2-fb17d4ea631f" alt="cover-image" width="200"/>
 
-- [Gushing Over Magical Girls](https://mangadex.org/title/feff4eaf-01df-4a05-83f4-68bb5cdf4fad/gushing-over-magical-girls) [<sup>J-Novel</sup>](https://j-novel.club/series/gushing-over-magical-girls)
+- [Gushing Over Magical Girls](https://mangadex.org/title/feff4eaf-01df-4a05-83f4-68bb5cdf4fad/gushing-over-magical-girls) [<sup>J-Novel - New Release on Jul 31, 2024</sup>](https://j-novel.club/series/gushing-over-magical-girls)
 
     >*Hiiragi Utena, a girl who loves Magical Girls, lives her ordinary everyday life wishing to be like them. One day a curious character appears in front of her and offers her the power to make her wishes come true, but…
 Magical Girls vs. The Forces of Evil, the fierce battle begins!*
@@ -357,7 +366,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 **Square Enix**
 
 ---
-<img src="https://fyre.cdn.sewest.net/manga-books/64deed0daed7bb35a2ace635/cover_img_247x350_othersidepicnic_09_coverfinal--ARkB0M1F.jpg" alt="cover-image" width="200"/>
+<img src="https://fyre.cdn.sewest.net/manga-books/6549da1aaed7bb35a2c799f7/cover_img_247x350_othersidepicnic_10_coverfinal-YlECfw9D0.jpg?quality=85&width=768" alt="cover-image" width="200"/>
 
 - [Otherside Picnic](https://mangadex.org/title/26e40241-4a4e-4d12-a04d-cb3f7f707100/urasekai-picnic) [<sup>Square Enix - New Releases on Jul 9, 2024 and Nov 5, 2024</sup>](https://squareenixmangaandbooks.square-enix-games.com/en-us/series/otherside-picnic)
 
@@ -398,27 +407,38 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
     >*After finding out she is to be forced into an marriage of convenience as soon as she graduates high school, Kokoro sees her life ending before her eyes at her father's wishes. And so in her final year of high school, she decides to indulge in her love of other women, and create an incredible sketchbook of lesbian romance to leave behind as her legacy. As she observes the young women of her town, she learns more about their desires, their struggles, and the unpredictable whims of love.*
 
 ---
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4f1d299b-84cd-4251-bd7b-73b49f802699" alt="cover-image" width="200"/>
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/86652535-724b-4d9b-a78c-48e4cd56b702" alt="cover-image" width="200"/>
 
-- [If My Favorite Pop Idol Made It to the Budokan, I Would Die](https://mangadex.org/title/491bdbe0-0c83-42d5-8b20-3a651e65f70b/oshi-ga-budoukan-ittekuretara-shinu) [<sup>Tokyopop - New Release on Nov 5, 2024</sup>](https://tokyopop.com/products/9781427875341_if-my-favorite-pop-idol-made-it-to-the-budokan-i-would-die-volume-5)
+- [If My Favorite Pop Idol Made It to the Budokan, I Would Die](https://mangadex.org/title/491bdbe0-0c83-42d5-8b20-3a651e65f70b/oshi-ga-budoukan-ittekuretara-shinu) [<sup>Tokyopop - New Releases on Jul 9, Sep 3, Nov 5 and Dec 3, 2024</sup>](https://tokyopop.com/products/9781427878281_if-my-favorite-pop-idol-made-it-to-the-budokan-i-would-die-volume-10)
 
     >*Forthright and impetuous Eripiyo is the number one stan for Maina, a sidelined member of the underground idol group Cham Jam, spending a fortune on CDs, merch, and fan meetings to support her fave. As fan events come and go, Eripiyo remains steadfast in catching a glimpse of Maina at every opportunity — and despite her shy personality, Maina's adoration and gratitude for Eripiyo's support is beginning to bridge the awkward gap between them as idol and fan.*
 
 ---
-<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/a7abb935-a40d-446e-838c-1dfeddb70ebf" alt="cover-image" width="200"/>
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d38d819f-5a6d-4679-8472-8411bbe1a821" alt="cover-image" width="200"/>
 
-- [Konohana Kitan](https://mangadex.org/title/95f7b86c-008c-4c6a-8c96-017577daef9d/konohana-kitan) [<sup>Tokyopop - New Release on May 28, 2024</sup>](https://tokyopop.com/products/9781427874085_konohana-kitan-volume-13?_pos=5&_sid=0e67720ba&_ss=r)
+- [Konohana Kitan](https://mangadex.org/title/95f7b86c-008c-4c6a-8c96-017577daef9d/konohana-kitan) [<sup>Tokyopop - New Release on Sep 24, 2024</sup>](https://tokyopop.com/products/9781427878090_konohana-kitan-volume-14)
 
     >*Yuzu and Satsuki are now working as maids at the Akitsushima Hotel, an inn for Western Great Spirits that they arrived at on their travels. Will they be able to pull off their duties despite being astonished by the inn's quirky owner and the other maids? Fox workers will wait on you hand and foot.*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/d06198d5-73c9-4ae6-882e-d1ee4b78da40" alt="cover-image" width="200"/>
 
-- [Alter Ego](https://mangadex.org/title/3f7fb508-be22-453a-ba33-2631345b529f/alter-ego) [<sup>Tokyopop - New Release on June 25, 2024</sup>](https://tokyopop.com/collections/alphabetical/products/9781427876638_alter-ego-2-noel-and-june)
+- [Alter Ego](https://mangadex.org/title/3f7fb508-be22-453a-ba33-2631345b529f/alter-ego) [<sup>Tokyopop</sup>](https://tokyopop.com/collections/alphabetical/products/9781427876638_alter-ego-2-noel-and-june)
 
     >*Noel has always been in love with her best friend Elena, but she's never been able to find the courage to confess her feelings. Then, when her friend starts dating a boy, Noel’s world collapses as she sees her chance at love slipping away.*
     >
     >*One night, in a moment of desperation, Noel ends up confessing her feelings for Elena to a complete stranger — but as fate would have it, this stranger turns out to be a girl named June, Elena's other best friend... and Noel's rival in love! Worst of all, now June knows Noel's secret. With everything suddenly going wrong, how can Noel ever win the girl of her dreams?*
+
+---
+
+**Monogatari Novels**
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/675bf9a5-dbf7-4b26-9a88-817619c7770f" alt="cover-image" width="200"/>
+
+- [Soulmate](https://mangadex.org/title/04f2b88a-e167-410e-ac38-4fd4777f4e0f/soulmate) [<sup>Monogatari Novels - Releasing Sep 10, 2024</sup>](https://www.monogatari-novels.com/soulmate-en-vol-1/)
+
+    >*Yu Qi went to sleep embraced by her girlfriend, Ouyang Yuanzi. However, when she opened her eyes she realized that she had been transported 10 years back to the past, back when she was still in high school. While she sees this as an opportunity to save the love of her life, what she doesn't realize is that her teenage self is in her adult body, 10 years into the future, and she has no clue about the life Qi she has built or how precious the time she has left with Yuanzi is. No matter the time, no matter the age, their love resonates as they stand by each other's side. Will they be able to conquer fate?*
 
 ---
 
@@ -427,7 +447,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/2153f4cc-ea5c-4e35-8f23-132cc57e5b1f" alt="cover-image" width="200"/>
 
-- [Grand Slam Romance](https://www.abramsbooks.com/product/grand-slam-romance-grand-slam-romance-book-1_9781419758010/) [<sup>Abrams Books - New Release on May 14, 2024</sup>](https://store.abramsbooks.com/products/grand-slam-romance-major-league-hotties-grand-slam-romance-book-2)
+- [Grand Slam Romance](https://www.abramsbooks.com/product/grand-slam-romance-grand-slam-romance-book-1_9781419758010/) [<sup>Abrams Books</sup>](https://store.abramsbooks.com/products/grand-slam-romance-major-league-hotties-grand-slam-romance-book-2)
 
     >*Mickey Monsoon is the hotshot pitcher for the Belle City Broads, and their team is poised to sweep the league this season. But Mickey is thrown off their game when Astra Maxima shows up to catch for the Gaiety Gals, the Broads’ fiercest rival. Years ago, Mickey and Astra were best friends . . . and maybe more. That was until Astra unceremoniously dumped Mickey to become a softball wunderkind at a private girl’s school in Switzerland. Now, Astra is flirty, arrogant, and reckless on the field—everything the rule-abiding Mickey hates.*
     >
@@ -787,7 +807,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/12b69b54-4f93-4551-b925-dc1e4ef4edcb" alt="cover-image" width="200"/>
 
-- [Nevermore](https://www.webtoons.com/en/supernatural/nevermore/list?title_no=2740)
+- [Nevermore](https://www.webtoons.com/en/supernatural/nevermore/list?title_no=2740) <sup>Season 2 To Come</sup>
 
     >*There is nothing definitive about life after death, except the involuntary enrollment at the mysterious Nevermore Academy. Now Lenore and Annabel Lee must begin their curriculum to recover the memories of their tragic demise. Between the Dean's macabre demeanor and the tell-tale dangers of Final Exams, both girls must learn to rely on one another and their newly acquired ghost forms, or Spectres, to not only graduate from the academy… but to earn a second chance at life.*
 
@@ -801,28 +821,28 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8f952afd-be5d-4c2e-82e7-ece2709184c2" alt="cover-image" width="200"/>
 
-- [Sunset Phoenix](https://www.webtoons.com/en/mystery/sunset-phoenix/list?title_no=4078)
+- [Sunset Phoenix](https://www.webtoons.com/en/mystery/sunset-phoenix/list?title_no=4078) <sup>Season 2 To Come</sup>
 
     >*An immortal criminal kingpin is dead, and you’re holding the murder weapon. Things can't look much worse for Emilia, a spy in the wrong place, wrong time. Framed for the murder, she and her reckless immortal boss Valentine must find the real culprit before the city succumbs to war between the criminal factions… and Emilia loses her own head.*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/0a50f343-589e-4aee-a1a6-c46ac2c4028e" alt="cover-image" width="200"/>
 
-- [Paperteeth](https://www.webtoons.com/en/comedy/paperteeth/list?title_no=5969)
+- [Paperteeth](https://www.webtoons.com/en/comedy/paperteeth/list?title_no=5969) <sup>Hopium</sup>
 
     >*Avery is a vampire hunter! Who unfortunately gets bitten by and subsequently turned into, a vampire.*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/600c5395-865c-44ac-83ed-e47ffb0a115d" alt="cover-image" width="200"/>
 
-- [6th Degree](https://www.webtoons.com/en/action/6thdegree/list?title_no=3067) <sup>Hiatus - Hopium</sup>
+- [6th Degree](https://www.webtoons.com/en/action/6thdegree/list?title_no=3067) <sup>Hopium</sup>
 
     >*What is the price of revenge? Kris knows she’s different but lives in the dark about her power, controlled by her father’s supervision and her job as “The Cleaner,” doing the dirty work of the Hyuu Police Department. When she finally has a chance to learn more about herself, her father is murdered by a vicious crime syndicate. Eden, the chairwoman of a rival crime family, gives Kris another chance at life. With vengeance on her mind, will Kris adapt to her new life in the underworld, or will she fall deeper into the pit?*
 
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/4f78afe7-91ba-48dd-88f5-1a5c6d989c1c" alt="cover-image" width="200"/>
 
-- [Straylight Tiger](https://www.webtoons.com/en/sf/straylight-tiger/list?title_no=2807)
+- [Straylight Tiger](https://www.webtoons.com/en/sf/straylight-tiger/list?title_no=2807) <sup>Season 2 To Come</sup>
 
     >*When humans can shift into animals, manipulate elemental powers, or possess weapons created from otherworldly metals, things undoubtedly escalate quickly. Still, as an extremist cult emerges to dominate the one city that unites the three species, a powerful corporation recruits a secret task force to challenge them.*
 
@@ -843,7 +863,7 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/e8e5ca7b-cfbf-4ea3-aa7f-4aa4e1b2118e" alt="cover-image" width="200"/>
 
-- [REVEAL OUT!](https://www.webtoons.com/en/romance/reveal-out/list?title_no=4090) <sup>Hiatus</sup>
+- [REVEAL OUT!](https://www.webtoons.com/en/romance/reveal-out/list?title_no=4090) <sup><sup>Season 2 To Come</sup></sup>
 
     >*Eeden thought she'd missed out on life: her art career is a disaster, her landlord kicked her out, and worst of all, she's never even had a girlfriend! But life takes a turn when a chance encounter with an old crush sends her back in time. Now she's 18 again and starting college, with a chance to get everything right. Armed with a plan and a crush, Eeden knows exactly how to create the life full of joy she deserves: make it bold, make it beautiful, and most of all, make it gay!!*
 
@@ -885,9 +905,9 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/b29b3a73-0864-4a63-b3da-fcb889350f00" alt="cover-image" width="200"/>
 
-- [Unnie, I Like You](https://www.webtoons.com/en/canvas/unnie-i-like-you/list?title_no=652951) [<sup>Coming Soon</sup>](https://www.webtoons.com/en/creator/58998/posts/500-58998-lfm8)
+- [Unnie, I Like You](https://www.webtoons.com/en/drama/unnie-i-like-you/list?title_no=6509)
 
-    >*Park Chanmi is a cold-looking athletics freshman who remembers her past life. In past life, she loved the beautiful girl, but couldn't confess to her because the girl was already in love with a man and her life ended early and tragically. In this life, Chanmi thinks that everything will happen again, so she wants to protect her beloved one. But now her beloved one is a teacher at the university where Chanmi is studying.*
+    >*Park Chanmi vividly remembers her past life, where she harbored deep feelings for the beautiful Hanbyeol, whose life tragically ended too soon. In her present life, Chanmi is startled to discover that her lost love has returned as a university professor yet does not recall their past life. Fearing history may repeat itself, Chanmi is determined to protect the sole person she cherishes the most.*
     
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/cd635e33-703e-4733-8317-37e2d467916c" alt="cover-image" width="200"/>
@@ -895,6 +915,13 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 - [The Siren's Light](https://www.webtoons.com/en/canvas/the-sirens-light-gl/list?title_no=658256) [<sup>Coming Soon</sup>](https://www.webtoons.com/en/canvas/the-sirens-light-gl/announcement/viewer?title_no=658256&episode_no=104)
 
     >*In a coastal town haunted by an ominous warning, "Never sail into the sea when your heart bears the weight of sorrow," Jaena, burdened by the pain of a recent breakup, stumbles upon a mystical encounter that changes her life forever. As the deep sea threatens to swallow her whole, an alluring beauty emerges from the depths, followed by a kiss that ignites a bond between two worlds — that of a human and an annoying, flirtatious siren.*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8f1f2de9-4c90-4c19-b79f-2bf6418d6b13" alt="cover-image" width="200"/>
+
+- [Surprise! You’re Gay!](https://www.webtoons.com/en/canvas/surprise-youre-gay/list?title_no=834337) [<sup>Coming Soon</sup>](https://www.webtoons.com/en/canvas/surprise-youre-gay/exciting-news-/viewer?title_no=834337&episode_no=40)
+
+    >*Some are born gay, some achieve gayness, and some have gayness thrust upon them.*
 
 ---
 
