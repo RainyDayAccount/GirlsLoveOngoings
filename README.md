@@ -1656,7 +1656,21 @@ Magical Girls vs. The Forces of Evil, the fierce battle begins!*
 - [HeartWorker](https://www.webtoons.com/en/canvas/heartworker-/list?title_no=807311)
 
     >*Amelia (32) gets along really well with her best friend's little sister Emma (26) A few snippets of the life of a pair of roommates/fwb...*
+    
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/b761b10b-7c9a-4e63-b0d8-11da6a4514b2" alt="cover-image" width="200"/>
 
+- [She's A Keeper](https://www.webtoons.com/en/canvas/shes-a-keeper-gl/list?title_no=347889)
+
+    >*The rate of kidnapping in Phili has been going crazy. Clara del Samson happens to be a daughter of a multi-millionaire businessman. Meanwhile, the Keeper Corp is best known for their “Keepers” who are experts at protecting elites; one of them is Keeper Elle- who was hired to protect Clara. Upload Schedule: Mondays*
+
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/8134c338-fdfc-40a6-97fe-7382ed4ac937" alt="cover-image" width="200"/>
+
+- [Shadows Of The Heart](https://www.webtoons.com/en/canvas/shadows-of-the-heart/list?title_no=897459)
+
+    >*In a world where secrets thrive and hearts entwine, this GL series follows the journey of two girls discovering love amid hidden desires, as they confront the shadows within their own hearts and learn to embrace the light of their true feelings.*
+    
 ---
 
 *Highest Rated Ongoing on Webtoons that I could find*
