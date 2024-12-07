@@ -19,7 +19,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/1e1e51b5-eed6-49b8-b340-6f68aa365291" alt="cover-image" width="200"/>
 
-- [I Married My Female Friend](https://mangadex.org/title/bc9ccb3d-bb15-431d-b7ef-35084514df69/onna-tomodachi-to-kekkon-shitemita) [<sup>Seven Seas - New Release on Apr 9, 2024</sup>](https://sevenseasentertainment.com/series/i-married-my-best-friend-to-shut-my-parents-up/)
+- [I Married My Female Friend](https://mangadex.org/title/bc9ccb3d-bb15-431d-b7ef-35084514df69/onna-tomodachi-to-kekkon-shitemita) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/i-married-my-best-friend-to-shut-my-parents-up/)
 
     >*Kurumi and Ruriko made a deal: if they were both single in five years, they would marry each other. Five years later, neither woman is attached, so it’s time for a wedding! Marriage is full of firsts, especially for two friends, so they have a lot to learn about each other in their newly shared home. But will they continue this arrangement like two especially close roommates…or will a different kind of love bloom between them?*
 
@@ -112,7 +112,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/9a77cffd-2d3e-4017-b973-ec4cf3c61ea8" alt="cover-image" width="200"/>
 
-- [Pandora in the Crimson Shell: Ghost Urn](https://mangadex.org/title/f92d21bf-a646-494b-ad65-65bc7be587c5/koukaku-no-pandora-ghost-urn) [<sup>Seven Seas - New Release on Jun 18, 2024</sup>](https://sevenseasentertainment.com/series/pandora-in-the-crimson-shell-ghost-urn/)
+- [Pandora in the Crimson Shell: Ghost Urn](https://mangadex.org/title/f92d21bf-a646-494b-ad65-65bc7be587c5/koukaku-no-pandora-ghost-urn) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/pandora-in-the-crimson-shell-ghost-urn/)
 
     >*When Nanakorobi Nene, a cybernetically-enhanced girl-next-door, heads to the island metropolis of Cenancle to live with her aunt, she has no way of knowing what’s in store for her. A chance meeting intertwines her fate with that of the super-rich inventor, Uzal Delilah, and her adorable and grumpy companion, Clarion, who happens to be a cyborg just like Nene.*
 
@@ -156,7 +156,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/74d49386-9435-45c1-aad1-359980f2e605" alt="cover-image" width="200"/>
 
-- [Sheep Princess in Wolf’s Clothing](https://mangadex.org/title/6fe56296-e980-4321-8a7b-bc8b4e2750c8/the-sheep-princess-in-wolf-s-clothing) [<sup>Seven Seas - New Release on Jul 16, 2024</sup>](https://sevenseasentertainment.com/series/sheep-princess-in-wolfs-clothing/)
+- [Sheep Princess in Wolf’s Clothing](https://mangadex.org/title/6fe56296-e980-4321-8a7b-bc8b4e2750c8/the-sheep-princess-in-wolf-s-clothing) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/sheep-princess-in-wolfs-clothing/)
 
     >*Aki Rikujo, a Wolfa, works as a butler at the royal castle in the land of Sheepa. Her quiet and peaceful days get shaken up when she saves the life of Princess Momo Shiudafaris. The shy sheep princess immediately latches onto Aki who, before she knows it, becomes the princess’s private tutor. Momo wants more than just math lessons from Aki, and even sneaks into the wolf-woman’s bedroom to seduce her! Aki soon realizes that, under the timid woolly exterior, Momo is a wild animal!*
 
@@ -198,7 +198,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/84375e93-e32c-4a26-a651-6d2ed901555c" alt="cover-image" width="200"/>
 
-- [The Summer You Were There](https://mangadex.org/title/6ecc62e4-25ad-4102-b0d8-580a8023d2fb/kimi-to-tsuzuru-utakata) [<sup>Seven Seas - New Release on Jul 30, 2024</sup>](https://sevenseasentertainment.com/series/the-summer-you-were-there/)
+- [The Summer You Were There](https://mangadex.org/title/6ecc62e4-25ad-4102-b0d8-580a8023d2fb/kimi-to-tsuzuru-utakata) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/the-summer-you-were-there/)
 
     >*Shizuku is a shy high schooler who hardly talks to other people. Instead, she loses herself in writing, crafting a novel that she never intends to show anyone. But when her cute, popular classmate Kaori gets her hands on Shizuku’s manuscript, everything changes. Kaori suggests that, in order to give Shizuku material for her next book, the two of them should start dating! Can this mismatched pair create their own happily ever after?*
 
@@ -219,7 +219,7 @@
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/cdef5aff-3847-4c46-9ad0-ef3d8820b107" alt="cover-image" width="200"/>
 
-- [Throw Away the Suit Together](https://mangadex.org/title/d006f413-bad9-4f82-a0aa-901ef2d0ece6/kimi-to-shiranai-natsu-ni-naru) [<sup>Seven Seas - Releasing Jul 16, 2024</sup>](https://sevenseasentertainment.com/series/throw-away-the-suit-together/)
+- [Throw Away the Suit Together](https://mangadex.org/title/d006f413-bad9-4f82-a0aa-901ef2d0ece6/kimi-to-shiranai-natsu-ni-naru) [<sup>Seven Seas</sup>](https://sevenseasentertainment.com/series/throw-away-the-suit-together/)
 
     >*Getting into university and job hunting is what they’re expected to do, because that’s what “everyone” does—but what do they really want for themselves? When Haru and Hii-chan decide to take life into their own hands, they toss their resumes into the sea and move to an island together. They soon learn that island living isn’t all blue skies and sunny days…and yet, whatever the future holds, they will face it together.*
 
@@ -391,6 +391,20 @@
 **Yen Press**
 
 ---
+<img src="https://images.yenpress.com/imgs/9781975388096.jpg?w=408&h=612&type=books&s=bc4f8f0ccb75b707bc69fccafb0f6b59" alt="cover-image" width="200"/>
+
+- [Cocoon Entwined](https://mangadex.org/title/bf7fbf85-00ed-4cda-9f8c-149f3113b096/cocoon-entwined) [<sup>Yen Press</sup>](https://yenpress.com/series/cocoon-entwined)
+
+    >*Clad in school uniforms practically breathing with life are the girls of Hoshimiya Girls’ Academy, their hair long and luxurious. When a puzzling incident involving the ever-mysterious and elusive student Hoshimiya-san disturbs their peaceful paradise, the hidden feelings these innocent schoolgirls possess begin to entwine and overflow in unimaginable ways…*
+	
+	---
+<img src="https://images.yenpress.com/imgs/9781975390228.jpg?w=408&h=612&type=books&s=4398687544f401ed17895617ac0ec688" alt="cover-image" width="200"/>
+
+- [Monthly in the Garden with My Landlord](https://mangadex.org/title/bc998000-171b-4fbe-9dd8-570e56c0845d/maitsuki-niwatsuki-ooyatsuki) [<sup>Yen Press</sup>](https://yenpress.com/series/monthly-in-the-garden-with-my-landlord)
+
+    >*Asako Suga, who is heartbroken after breaking up with her partner, decides to move to change her mind. The property she is interested in is a one-story house a little far from the city center. Asako fell in love with the house, which was recently built and has a garden, but what is worrisome is the landlord there. She's young and cute, and has a certain secret!*
+
+---
 <img src="https://images.yenpress.com/imgs/9781975325596.jpg?w=408&h=612&type=books&s=4270e5943abc957614355cdd5ffd19e1" alt="cover-image" width="200"/>
 
 - [A Witch's Love at the End of the World](https://mangadex.org/title/caf7e86a-1fc7-4dcd-820a-17d267153654/a-witch-s-love-at-the-end-of-the-world) [<sup>Yen Press</sup>](https://yenpress.com/series/a-witch-s-love-at-the-end-of-the-world#)
@@ -400,7 +414,7 @@
 ---
 <img src="https://images.yenpress.com/imgs/9781975374693.jpg?w=408&h=612&type=books&s=010ee88aac2ac99e74d51dc691eaca13" alt="cover-image" width="200"/>
 
-- [Breasts Are My Favorite Things in the World!](https://mangadex.org/title/af906856-ef0c-4c7a-aa61-27edebe9e834/sekai-de-ichiban-oppai-ga-suki)  [<sup>Yen Press - New Release on Aug 20, 2024</sup>](https://yenpress.com/series/breasts-are-my-favorite-things-in-the-world?format=Digital)
+- [Breasts Are My Favorite Things in the World!](https://mangadex.org/title/af906856-ef0c-4c7a-aa61-27edebe9e834/sekai-de-ichiban-oppai-ga-suki)  [<sup>Yen Press</sup>](https://yenpress.com/series/breasts-are-my-favorite-things-in-the-world?format=Digital)
 
     >*When bosom buddies Chiaki Ichihara and Hana Harumi share an accidental kiss, Chiaki realizes there might be more to life than just fondling breasts—now she wants Hana’s heart too! Will she be able to confess her feelings during a steamy hot spring vacation...? Meanwhile, discipline monitor Riku Matsuzaka has an awakening of her own!When bosom buddies Chiaki Ichihara and Hana Harumi share an accidental kiss, Chiaki realizes there might be more to life than just fondling breasts—now she wants Hana’s heart too! Will she be able to confess her feelings during a steamy hot spring vacation...? Meanwhile, discipline monitor Riku Matsuzaka has an awakening of her own!*
 
@@ -414,7 +428,7 @@
 ---
 <img src="https://images.yenpress.com/imgs/9781975369897.jpg?w=408&h=612&type=books&s=2cf28d259c7565779c3ba8f2e8b6e79a" alt="cover-image" width="200"/>
 
-- [Cheerful Amnesia](https://mangadex.org/title/f9448f90-c068-4b6a-8c85-03d739aef255/cheerful-amnesia) [<sup>Yen Press - New Release on Jun 18, 2024</sup>](https://yenpress.com/series/cheerful-amnesia#)
+- [Cheerful Amnesia](https://mangadex.org/title/f9448f90-c068-4b6a-8c85-03d739aef255/cheerful-amnesia) [<sup>Yen Press</sup>](https://yenpress.com/series/cheerful-amnesia#)
 
     >*No matter how upbeat Arisa is about her amnesia, losing her memories has brought its share of problems. She can’t remember her girlfriend Mari’s favorite foods, the anniversary of their first date, and—most important of all—what they got up to in bed. Mari proposes an overnight trip to a hot springs resort, which would be the perfect chance for them to clear the air and put their complicated feelings into words. The only issue? Arisa will have to start working again if they want to pay for it!*
 
@@ -492,7 +506,7 @@
 ---
 <img src="https://images.yenpress.com/imgs/9781975370237.jpg?w=408&h=612&type=books&s=481e74e1484102355a93f1d53a8b5caa" alt="cover-image" width="200"/>
 
-- [The Witch's Marriage](https://mangadex.org/title/9b7c6a16-5759-4598-99aa-0ef01f8c2e74/the-witch-s-marriage) [<sup>Yen Press - New Release on Jun 18, 2024</sup>](https://yenpress.com/series/the-witches-marriage)
+- [The Witch's Marriage](https://mangadex.org/title/9b7c6a16-5759-4598-99aa-0ef01f8c2e74/the-witch-s-marriage) [<sup>Yen Press</sup>](https://yenpress.com/series/the-witches-marriage)
 
     >*Having passed their first trial, Melissa and Tanya continue to strengthen their bond and, with it, their magic power. But with Melissa’s pride and Tanya’s insecurity keeping the two from taking the next step on the path to magic mastery, they need to find a way to get closer. One day, the perfect opportunity arrives—they’re invited to a special school for witch partners looking to get stronger! Will they pull through together when their trust is put to the test?*
 
@@ -531,7 +545,7 @@
 ---
 <img src="https://cdn.kodansha.us/statics/Publications/32214/Pages/page-0001.jpg?f=webp&w=405" alt="cover-image" width="200"/>
 
-- [I Can't Say No to the Lonely Girl](https://mangadex.org/title/d7576e72-0301-4ed3-9137-722ed768bfda/i-can-t-say-no-to-the-lonely-girl) [<sup>Kodansha - New Release on May 28, 2024</sup>](https://kodansha.us/series/i-cant-say-no-to-the-lonely-girl)
+- [I Can't Say No to the Lonely Girl](https://mangadex.org/title/d7576e72-0301-4ed3-9137-722ed768bfda/i-can-t-say-no-to-the-lonely-girl) [<sup>Kodansha</sup>](https://kodansha.us/series/i-cant-say-no-to-the-lonely-girl)
 
     >*In this juicy yuri manga, the goody-goody high school girl Sakurai meets a lonely girl—and ends up entangled in a web of blackmail that might just lead to romance. It’s hard to keep up with school when you can never say no to a devious classmate!*
 
@@ -1749,6 +1763,13 @@
 
 **Scholastic**
 
+---
+<img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/12c427e5-3740-470e-8688-513aec78c66e" alt="cover-image" width="200"/>
+
+- [Rainbow](https://shop.scholastic.com/teachers-ecommerce/teacher/books/rainbow-volume-1-original-graphic-novel-9781339011233.html) [<sup>Also on Tapas</sup>](https://tapas.io/series/RAINBOW/info) <sup> and </sup> [<sup>Webtoons</sup>](https://www.webtoons.com/en/canvas/rainbow/list?title_no=268239)
+
+    >*Overly imaginative teenager Boo Meadows has always escaped her daily grind by living with her head in the clouds-- for better or worse. But when she meets the girl of her daydreams, it may finally be time to face reality.*
+    
 ---
 <img src="https://github.com/RainyDayAccount/GirlsLoveOngoings/assets/162847751/45791f15-ee6b-4663-821b-fd71c9bff30c" alt="cover-image" width="200"/>
 
